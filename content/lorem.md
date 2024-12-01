@@ -1,6 +1,7 @@
 ---
 date: '2024-11-30T22:41:34+01:00'
 draft: true
+featured_image: "/images/mountains.jpg"
 title: 'Lorem'
 ---
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Aliquam sit amet commodo lorem. Fusce placerat neque purus, id aliquam lorem fermentum eu. Phasellus eget dui eu ex placerat laoreet. Nam sed erat tincidunt, volutpat ligula ac, hendrerit metus. Quisque porta pulvinar nisi, ac lacinia justo consectetur sed. Duis sollicitudin nulla eu erat dictum, sit amet tempor nisi tincidunt. Cras scelerisque a mauris sit amet mollis. Etiam mollis nunc non ex commodo dapibus. Vestibulum ante ipsum primis in faucibus orci luctus et ultrices posuere cubilia curae; Vestibulum non aliquet erat. Vivamus fermentum sapien at odio rhoncus mollis. Vivamus elit nulla, egestas eget aliquam sed, fringilla non odio. Pellentesque neque tellus, consequat vel odio eu, finibus condimentum felis.
