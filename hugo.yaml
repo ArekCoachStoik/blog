@@ -2,3 +2,5 @@ baseURL: https://example.org/
 languageCode: pl-PL
 title: WTiS
 theme: ananke
+params:
+  custom_css: ["css/style.css"]
