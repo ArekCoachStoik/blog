@@ -1,14 +1,22 @@
 ---
-date: '2024-12-01T16:00:00+01:00'
+date: '2024-11-30T22:40:21+01:00'
 draft: false
-featured_image: "/images/arek.jpeg"
+featured_image: "/images/mountains2.jpg"
 tags: ["example", "test"]
-title: '.'
-description: ""
+title: 'Markdown'
+description: "Post explaining how to use markdown"
 ---
-# ARKADIUSZ KORBA  - ARCOS (ARek_COach_Stoik)
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
-## Headers
+# Markdown syntax guide
+Lorem ipsum dolor sit amet, consectetur adipiscing elit,
+sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris 
+nisi ut aliquip ex ea commodo consequat.
+
+
+Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
+
+# Headers
+następną sekcje
 
 # This is a Heading h1
 ## This is a Heading h2

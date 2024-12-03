@@ -1,6 +1,7 @@
 baseURL: https://example.org/
 languageCode: pl-PL
-title: WTiS
+title: DOM
 theme: ananke
+omit_header_text: false
 params:
   custom_css: ["css/style.css"]
