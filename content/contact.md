@@ -13,6 +13,4 @@ type: page
 
 # MENTOR - COACH
 
-E-MAIL: wtis@gmail.com 
-
-WWW: https://wodatlenisen.site/
+{{< form-contact action="https://formspree.io/f/movqzaok"  >}}

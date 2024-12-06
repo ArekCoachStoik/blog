@@ -1,5 +1,6 @@
 baseURL: https://wodatlenisen.site/
 languageCode: pl-PL
+defaultContentLanguage: pl
 title: DOM
 theme: ananke
 omit_header_text: false
