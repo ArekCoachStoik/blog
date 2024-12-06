@@ -1,7 +1,7 @@
 ---
 date: '2024-11-30T22:41:34+01:00'
 draft: false
-featured_image: "/images/wtis.jpg"
+featured_image: "/images/wtis01.jpg"
 title: 'WTiS_01 - Woda'
 ---
 
