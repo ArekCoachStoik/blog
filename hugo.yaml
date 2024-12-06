@@ -5,3 +5,18 @@ theme: ananke
 omit_header_text: false
 params:
   custom_css: ["css/style.css"]
+
+menu:
+  main:
+    - name: Kontakt
+      url: /contact
+      weight: 0
+    - name: WTiS
+      url: /WTiS
+      weight: 1
+    - name: Blog
+      url: /post
+      weight: 2
+    - name: O mnie
+      url: /about
+      weight: 3

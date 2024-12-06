@@ -1,18 +1,18 @@
 ---
-title: O mnie
-date: '2024-11-28T16:00:00+01:00'
+title:
+
 draft: false
 featured_image: ''
 omit_header_text: true
 description: We'd love to hear from you
 type: page
-menu: main
 ---
 
 ![This is text if image doesn't load](/images/arek.jpg "")
 # ARKADIUSZ KORBA (ARCOS)
 Jestem certyfikowanym coachem, trenerem, mentorem oraz managerem z ponad 20 letnim stażem korporacyjnym. 
 Na co dzień zajmuję się rozwojem jednostek, zespołów oraz dużych  organizacji, w tym międzynarodowych.
+
 Pasjonuje się filozofią stoicką, psychologią behawioralną oraz dobrze zbilansowanym energetycznie stylem życia.
 Uwielbiam poznawać świat i ludzi oraz wyznaje zasadę, iż: *“nawet najdalsza podróż zaczyna się od pierwszego kroku”*
 
@@ -25,4 +25,3 @@ staram sie przekazywać główne jej załozenia. Mam nadzieję, ze przekazywana 
 sie wartościowa równiez dla Ciebie oraz stanie się pierwszym krokiem w drodze do zmiany.
 
 ## ZAPRASZAM CIEBIE DO WSPÓLNEJ PODRÓŻY
-**NA BLOGU JAK I W RAMACH BEZPOŚREDNIEGO KONTAKTU**
