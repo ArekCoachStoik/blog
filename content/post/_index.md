@@ -1,5 +1,5 @@
 ---
-title: „Szczęście jest wtedy, gdy to, co myślisz, to, co mówisz i to, co robisz jest ze sobą w harmonii"
+title: „Szczęście jest wtedy, gdy to, co myślisz, to, co mówisz i to, co robisz jest ze sobą w harmonii" Mahatma Gandhi 
 date: 2017-03-02T12:00:00-05:00
 omit_header_text: true
 draft: false 
