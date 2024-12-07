@@ -1,7 +1,7 @@
 ---
 date: '2023-01-30T22:41:34+01:00'
 draft: false
-featured_image: "/images/wtis.jpg"
+featured_image: "/images/wtis02.jpg"
 title: 'WTiS_02 - Tlen'
 ---
 ![This is text if image doesn't load](/images/tlen.jpg "nazwa")
