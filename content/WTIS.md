@@ -9,11 +9,13 @@ type: page
 ![This is text if image doesn't load](/images/glowna.JPG "nazwa")
 
 
-**"MOJA DROGA W POSZUKIWANIU HARMONII"**
+## "MOJA DROGA W POSZUKIWANIU HARMONII"
 
 Brak głębokiego sensu życia, niedosyt wartościowych relacji, wypalenie zawodowe, ciągłe zabieganie i brak harmonii życiowej to typowe bolączki dzisiejszej cywilizacji. Większość z nas przechodzi trudniejsze momenty w swoim życiu prywatnym i zawodowym, to normalne. 
 
 Podobnie było w moim przypadku. Po wielu latach pracy, gonitwy za „potrzebami” życia codziennego oraz braku odpowiedniej troski o zdrowie w wymienionych powyżej obszarach zaczynałem odczuwać istotne deficyty. Zacząłem szukać wskazówek po to, aby uporządkować swoje życie i nadać mu głębszy sens. Chciałem znaleźć sposób na to, aby sentencja *„co Cię nie zabije to Cię wzmocni”* odnosiła się do umiejętności wychodzenia z trudności silniejszym i odporniejszym. Nauczyć się patrzeć na życiowe problemy z ciekawością traktując je jako obszar nowej szansy, a nie kolejnego zagrożenia. Świadomie zacząłem szukać swojej drogi do pełni szczęścia i życia w harmonii. Byłem pewien, że jest to możliwe, wymaga tylko autorefleksji i ciągłego poszerzania swojego światopoglądu.
+
+![This is text if image doesn't load](/images/WTIS_burnout.jpg "nazwa")
 
 Postanowiłem coś zmienić. W tym celu przez ostatnie lata przeczytałem wiele książek z zakresu filozofii, psychologii behawioralnej, zdrowego odżywiania, jak również rozwoju osobistego. Dodatkowo w czasie mojego ulubionego hobby, czyli biegania przesłuchałem tysiące godzin podcastów inspirujących osób: filozofów, ludzi nauki i polityki. 
 
@@ -28,9 +30,13 @@ Dzięki tym wszystkim doświadczeniom pojawił się w mojej głowie pomysł jak 
 Tak jak wspomniałem wcześniej to co skłoniło mnie do działania to z jednej strony brak harmonii we własnym życiu, z drugiej coraz większe doświadczenie i wiedza zdobyta w ramach życia prywatnego i zawodowego.  Na bazie tych wszystkich doświadczeń odkryłem, że tylko systematyczna praca, czyli wysiłek włożony w kreowanie **ENERGII WITALNEJ** (życiowej) pozwala cieszyć się dobrym, w pełni wartościowym i harmonijnym życiem. 
 
 Kiedyś o energii życiowej myślałem jedynie w kategoriach tajemniczych energoterapeutów, którzy w magiczny sposób próbowali znaleźć receptę na życiowe problemy.
-Niestety nie ma prostych recept, które działają od ręki. Zmiana wymaga dużej samoświadomości, chęci i wysiłku. Ja sam od lat systematycznie pracuję nad sobą, gdyż jestem pewien, że nie da się jednym ruchem zmienić swojego życia. Trzeba z dużą odwagą i intencjonalnym wysiłkiem dążyć do zmiany każdego dnia. Już samo świadome dążenie do zmiany swojego życia daje dużo satysfakcji, gdyż cytując za Chantal Delsol *„droga jest ważniejsza niż cel!”*. Jak wszyscy wiemy na każdej drodze przydają się dobre drogowskazy. 
+Niestety nie ma prostych recept, które działają od ręki. Zmiana wymaga dużej samoświadomości, chęci i wysiłku. Ja sam od lat systematycznie pracuję nad sobą, gdyż jestem pewien, że nie da się jednym ruchem zmienić swojego życia. Trzeba z dużą odwagą i intencjonalnym wysiłkiem dążyć do zmiany każdego dnia. Już samo świadome dążenie do zmiany swojego życia daje dużo satysfakcji, gdyż cytując za Chantal Delsol *„droga jest ważniejsza niż cel!”*. 
 
-Ja osobiście wiele swoich odnalazłem w książkach filozoficznych, które po dłuższej przerwie odkryłem zupełnie na nowo. Dlaczego znalazłem je w filozofii? Zacząłem głęboko ufać w to, że nauki płynące z filozofii są kluczem do uczciwego, szczęśliwego i harmonijnego życia. Tutaj pojawił się dylemat, gdyż nurtów filozoficzny jest co nie miara. Ja szukałem czegoś co nie jest tylko pięknym traktatem teoretycznym, ale również świetnie sprawdzałoby się w praktyce. W ten sposób trafiłem na filozofię stoicką, której właśnie sensem jest praktyka. Bardzo dużą cześć moich przemyśleń zaczerpnąłem od praktycznych stoików, którzy bardzo niesłusznie mają przyklejoną łatkę bezczynności. Prawda jednak jest taka, że stoicy stanowią źródło praktycznej wiedzy popartej licznymi drogowskazami *”jak żyć dobrze”*. 
+![This is text if image doesn't load](/images/WTIS_road.jpg "nazwa")
+
+
+Jak wszyscy wiemy na każdej drodze przydają się dobre, sprawdzone drogowskazy.
+Ja osobiście wiele swoich odnalazłem w książkach filozoficznych, które odkryłem na nowo po dłuższej przerwie. Dlaczego znalazłem je w filozofii? Zacząłem głęboko ufać w to, że nauki płynące z filozofii są kluczem do uczciwego, szczęśliwego i harmonijnego życia. Tutaj pojawił się dylemat, gdyż nurtów filozoficzny jest co nie miara. Ja szukałem czegoś co nie jest tylko pięknym traktatem teoretycznym, ale również świetnie sprawdzałoby się w praktyce. W ten sposób trafiłem na filozofię stoicką, której właśnie sensem jest praktyka. Bardzo dużą cześć moich przemyśleń zaczerpnąłem od praktycznych stoików, którzy bardzo niesłusznie mają przyklejoną łatkę bezczynności. Prawda jednak jest taka, że stoicy stanowią źródło praktycznej wiedzy popartej licznymi drogowskazami *”jak żyć dobrze”*. 
 
 Pomysł na „filozofię” **WODA TLEN iSEN** (WTiS) kiełkował w mojej głowie od dawna jednak, dopiero zbliżając się do pięćdziesiątki postanowiłem go spisać i zebrać w całość. Kształt przygotowanej przeze mnie idei wynika z wnikliwej analizy otaczającej nas rzeczywistości, a także obserwacji zachodzących w naturze odwiecznych procesów życiowych. Doszedłem do wniosku, że nie ma nic złego w próbie skonsolidowania całej tej wiedzy w swoisty „mój” drogowskaz. 
 
@@ -67,7 +73,7 @@ Na podstawie własnych doświadczeń, po głębokiej analizie całej zdobytej wi
 
 W ten oto sposób dotarliśmy do drugiego istotnego wymiaru *“filozofii”* WTiS związanego z naszą ludzką egzystencją, czyli **ENERGII WITALNEJ** (życiowej) od wieków będącej przedmiotem badań i rozważań.
 
-![This is text if image doesn't load](/images/qi.png "nazwa")
+![This is text if image doesn't load](/images/Qi.png "nazwa")
 
 *Chiński Symbol Qi (czyt. Chi), czyli energia witalna powiązana z siłami życiowymi natury i człowieka*
 
@@ -106,3 +112,5 @@ Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję.
 Witaj w krainie *„filozofii”* **WODA TLEN iSEN :-)**
 
 **ZAPRASZAM DO WSPOLNEGO PODRÓŻY I ODKRYWANIA TEGO CO W ŻYCIU NAJWAŻNIEJSZE!**
+
+![This is text if image doesn't load](/images/glowna.JPG "nazwa")
