@@ -38,7 +38,7 @@ I na koniec w ramach zajawki dalszych artykułów na tym blogu powiem tylko ze w
 
 ## **WSKAZÓWKI:**
 
-1.Wysypiaj się. Minimum 6 godzin snu dziennie 
+1.Wysypiaj się. Min 6-7,5h snu dziennie to 4 lub 5 pełnych cykli snu. 
 
 2.Nie poddawaj się streotypom stygmatyzującym odpowiednio długi sen!
 
