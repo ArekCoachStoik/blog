@@ -2,6 +2,15 @@ on:
   push:
     branches:
       - main
+    paths:
+      - 'archetypes/**'
+      - 'content/**'
+      - 'layouts/**'
+      - 'themes/**'
+      - 'hugo.yaml'
+    schedule:
+      # Trigger the workflow every day at 4 AM (UTC)
+      - cron: '0 4 * * *'
 
 jobs:
   deploy:
