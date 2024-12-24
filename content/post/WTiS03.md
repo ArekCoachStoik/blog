@@ -34,7 +34,7 @@ Przyczyn jest wiele, ale to zaburzenia w wydzielaniu hormonu melatoniny są kluc
 
 I na koniec w ramach zajawki dalszych artykułów na tym blogu powiem tylko ze w czasie snu dzieje sie magia. Jeśli chcesz wiedzieć zapraszam do dalszego czytnia.
 
-#### SEN TO TRZECI FILAR HARMONIJNEGO ŻYCIA ! 
+#### SEN TO TRZECI FILAR HARMONIJNEGO ŻYCIA! 
 
 ## **WSKAZÓWKI:**
 
