@@ -30,7 +30,7 @@ Minimalne zapotrzebowanie dla dorosłego człowieka wynosi między 2-3 litry dzi
 Procentowy udział wody w organizmie można bardzo łatwo sprawdzić w ramach prostego badania masy ciała. Wykonuje się je na wagach, które są w stanie wykonać nie tylko pomiar masy ciała, ale również pomiar tkanki tłuszczowej. Takimi profesjonalnymi wagami dysponują dietetycy, ale coraz więcej domowych wag ma również uproszczone wersje tej funkcji. Istotą regularnego badania nie jest precyzyjne sprawdzanie procentowej ilości wody, ale monitorowanie jej zmiany i świadomość w przypadku niedoboru. 
 
 Woda nie tylko jest niezbędna do życia, ale jest przede wszystkim podstawowym skladnikiem wiekszości organów naszego ciała tak kluczowych jak mięśnie, mózg czy serce. Stąd pomysł powiązania wody z procesem **BUDOWANIA** zarówno energii fizycznej (mięśnie), intelektualnej (mózg) jak i duchowej (serce).
-#### WODA TO PIERWSZY FILAR HARMONIJNEGO ŻYCIA ! 
+#### WODA TO PIERWSZY FILAR HARMONIJNEGO ŻYCIA! 
 
 
 ## **WSKAZÓWKI:**
