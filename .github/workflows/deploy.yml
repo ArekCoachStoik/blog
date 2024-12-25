@@ -8,9 +8,9 @@ on:
       - 'layouts/**'
       - 'themes/**'
       - 'hugo.yaml'
-    schedule:
-      # Trigger the workflow every day at 4 AM (UTC)
-      - cron: '0 4 * * *'
+  schedule:
+    # Trigger the workflow every day at 4 AM (UTC)
+    - cron: '0 4 * * *'
 
 jobs:
   deploy:
