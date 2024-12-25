@@ -40,6 +40,8 @@ Ja osobiście wiele swoich odnalazłem w książkach filozoficznych, które odkr
 
 Pomysł na „filozofię” **WODA TLEN iSEN** (WTiS) kiełkował w mojej głowie od dawna jednak, dopiero zbliżając się do pięćdziesiątki postanowiłem go spisać i zebrać w całość. Kształt przygotowanej przeze mnie idei wynika z wnikliwej analizy otaczającej nas rzeczywistości, a także obserwacji zachodzących w naturze odwiecznych procesów życiowych. Doszedłem do wniosku, że nie ma nic złego w próbie skonsolidowania całej tej wiedzy w swoisty „mój” drogowskaz. 
 
+![This is text if image doesn't load](/images/WTIS_road_mark.jpg "nazwa")
+
 Szanując i doceniając dorobek wcześniejszych filozofów i myślicieli zdaję sobie sprawę, że moje refleksje na temat życia na pewno na wyrost nazywam *„filozofią”* (stąd za każdym razem ubieram to słowo w cudzysłów) niemniej dla mnie jest to *„filozofia”* mojego życia, którą dzięki temu blogowi oraz napisanej książce chętnie się z Tobą podzielę. 
 
 Jeśli wciąż czytasz dalej to bardzo dziękuję. Mam nadzieję drogi czytelniku, że w tej publikacji znajdziesz coś wartościowego dla siebie. Z dużą dozą wdzięczności oraz poczuciem odpowiedzialności za Twój bezcenny czas zapraszam na wspólną podróż do krainy mojej *„filozofii”* **WODA TLEN iSEN**.
@@ -107,7 +109,7 @@ W odważnym i systematycznym ich odkrywaniu niech pomogą nam słowa chińskiego
 
 Jeśli czujesz się zainteresowany lub choć odrobinę zaintrygowany jestem przekonany, że się nie zawiedziesz. Zapraszam do wspólnego odkrywania tego co jest dość proste, ale jak się okazuje nie takie oczywiste. Podzielę się z Tobą zdobytą wiedzą i dołożę wszelkich starań, aby przekazywane przeze mnie informacje były interesujące, intuicyjne i łatwe do wprowadzenia w Twoim życiu.
 
-Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję.
+Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję 
 
 Witaj w krainie *„filozofii”* **WODA TLEN iSEN :-)**
 
