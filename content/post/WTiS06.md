@@ -1,5 +1,5 @@
 ---
-date: '2025-06-30T22:41:34+01:00'
+date: '2025-12-29T01:41:34+01:00'
 draft: false
 featured_image: "/images/Life_energy.webp"
 title: 'WTiS_06 - Energia Duchowa'

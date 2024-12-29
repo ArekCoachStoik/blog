@@ -113,6 +113,4 @@ Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję
 
 Witaj w krainie *„filozofii”* **WODA TLEN iSEN :-)**
 
-**ZAPRASZAM DO WSPOLNEGO PODRÓŻY I ODKRYWANIA TEGO CO W ŻYCIU NAJWAŻNIEJSZE!**
-
-![This is text if image doesn't load](/images/glowna.JPG "nazwa")
+![This is text if image doesn't load](/images/WTiS_arcos.png "nazwa")

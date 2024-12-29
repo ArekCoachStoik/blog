@@ -20,8 +20,10 @@ Do swojej pracy jako autor treści używam pseudonimu **ARCOS** który powstał 
 do rozwoju osobistego siebie i innych oraz mojego zamiłowania do filozofii **S**toickiej, która jest moim drogowskazem jak "żyć dobrze".
 
 Jestem twórcą autorskiej filozofii harmonijnego zycia **WODA TLEN iSEN (WTiS)**. 
-W ramach tego bloga, napisanej ksiązki oraz indywidualnych sesji mentoringowo-coachingowych 
+W ramach tego bloga, napisanej książki oraz indywidualnych sesji mentoringowo-coachingowych 
 staram sie przekazywać główne jej załozenia. Mam nadzieję, ze przekazywana tutaj wiedza stanie 
-sie wartościowa równiez dla Ciebie oraz stanie się pierwszym krokiem w drodze do zmiany.
+sie wartościowa również dla Ciebie oraz stanie się pierwszym krokiem w drodze do zmiany.
 
 ## ZAPRASZAM CIEBIE DO WSPÓLNEJ PODRÓŻY
+
+![This is text if image doesn't load](/images/WTiS_arcos.png "nazwa")
