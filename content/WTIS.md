@@ -16,14 +16,15 @@ Brak głębokiego sensu życia, niedosyt wartościowych relacji, wypalenie zawod
 Podobnie było w moim przypadku. Po wielu latach pracy, gonitwy za „potrzebami” życia codziennego oraz braku odpowiedniej troski o zdrowie w wymienionych powyżej obszarach zaczynałem odczuwać istotne deficyty. Zacząłem szukać wskazówek po to, aby uporządkować swoje życie i nadać mu głębszy sens. Chciałem znaleźć sposób na to, aby sentencja *„co Cię nie zabije to Cię wzmocni”* odnosiła się do umiejętności wychodzenia z trudności silniejszym i odporniejszym. Nauczyć się patrzeć na życiowe problemy z ciekawością traktując je jako obszar nowej szansy, a nie kolejnego zagrożenia. Świadomie zacząłem szukać swojej drogi do pełni szczęścia i życia w harmonii. Byłem pewien, że jest to możliwe, wymaga tylko autorefleksji i ciągłego poszerzania swojego światopoglądu.
 
 ![This is text if image doesn't load](/images/WTIS_burnout.jpg "nazwa")
+*Zdjęcie: Nubelson Fernandes na Unsplash*
 
 Postanowiłem coś zmienić. W tym celu przez ostatnie lata przeczytałem wiele książek z zakresu filozofii, psychologii behawioralnej, zdrowego odżywiania, jak również rozwoju osobistego. Dodatkowo w czasie mojego ulubionego hobby, czyli biegania przesłuchałem tysiące godzin podcastów inspirujących osób: filozofów, ludzi nauki i polityki. 
 
-Od lat nieskończonym źródłem inspiracji była i jest moja rodzina. Jestem szczęśliwym ojcem trójki wspaniałych dzieci Adasia, Emilki i Madzi oraz nieustającym fanem mojej kochanej żony Anetki.  Rodzinna inspiracja była zawsze dla mnie bardzo istotna, gdyż daje ona siłę i poczucie więzi, dlatego na pewno będę do niej wracał w kolejnych fragmentach mojej książki. 
+Od lat nieskończonym źródłem inspiracji była i jest moja rodzina. Jestem szczęśliwym ojcem trójki wspaniałych dzieci Adasia, Emilki i Madzi oraz nieustającym fanem mojej kochanej żony Anetki.  Rodzinna inspiracja była zawsze dla mnie bardzo istotna, gdyż daje ona siłę i poczucie więzi, dlatego na pewno będę do niej wracał w kolejnych wpisach na moim blogu. 
 
 Dodatkowo istotne doświadczenie zdobyłem pracując przez ostatnie 25 lat na pozycjach managerskich zarówno w organizacjach lokalnych, ogólnopolskich jak i europejskich. Nauczyłem się tam bardzo wiele tak zwanych kompetencji „miękkich”, które dotyczą głównie relacji międzyludzkich, umiejętności efektywnego kierowania wielokulturowymi zespołami, jak również kompetencji „twardych” takich jak negocjacje czy zarządzanie złożonymi projektami. 
 
-Dzięki tym wszystkim doświadczeniom pojawił się w mojej głowie pomysł jak poukładać całą tą wiedzę w jedną całość i stworzyć coś na wzór “filozofii” harmonijnego życia. Po tym jak ta idea nabrała realnego kształtu, a upływający czas zmotywował mnie do działania, nie pozostało mi nic innego jak przelać to na papier i podzielić się z innymi. 
+Dzięki tym wszystkim doświadczeniom pojawił się w mojej głowie pomysł jak poukładać całą tą wiedzę w jedną całość i stworzyć coś na wzór “filozofii” harmonijnego życia. Po tym jak ta idea nabrała realnego kształtu, a upływający czas zmotywował mnie do działania, nie pozostało mi nic innego jak *"przelać to na papier"* i podzielić się z innymi. 
 
 ## Skąd pomysł na moją „filozofię” życia?
 
@@ -33,27 +34,38 @@ Kiedyś o energii życiowej myślałem jedynie w kategoriach tajemniczych energo
 Niestety nie ma prostych recept, które działają od ręki. Zmiana wymaga dużej samoświadomości, chęci i wysiłku. Ja sam od lat systematycznie pracuję nad sobą, gdyż jestem pewien, że nie da się jednym ruchem zmienić swojego życia. Trzeba z dużą odwagą i intencjonalnym wysiłkiem dążyć do zmiany każdego dnia. Już samo świadome dążenie do zmiany swojego życia daje dużo satysfakcji, gdyż cytując za Chantal Delsol *„droga jest ważniejsza niż cel!”*. 
 
 ![This is text if image doesn't load](/images/WTIS_road.jpg "nazwa")
-
+*Zdjęcie: Jerry Cavan na Unsplash*
 
 Jak wszyscy wiemy na każdej drodze przydają się dobre, sprawdzone drogowskazy.
-Ja osobiście wiele swoich odnalazłem w książkach filozoficznych, które odkryłem na nowo po dłuższej przerwie. Dlaczego znalazłem je w filozofii? Zacząłem głęboko ufać w to, że nauki płynące z filozofii są kluczem do uczciwego, szczęśliwego i harmonijnego życia. Tutaj pojawił się dylemat, gdyż nurtów filozoficzny jest co nie miara. Ja szukałem czegoś co nie jest tylko pięknym traktatem teoretycznym, ale również świetnie sprawdzałoby się w praktyce. W ten sposób trafiłem na filozofię stoicką, której właśnie sensem jest praktyka. Bardzo dużą cześć moich przemyśleń zaczerpnąłem od praktycznych stoików, którzy bardzo niesłusznie mają przyklejoną łatkę bezczynności. Prawda jednak jest taka, że stoicy stanowią źródło praktycznej wiedzy popartej licznymi drogowskazami *”jak żyć dobrze”*. 
+Ja osobiście wiele swoich odnalazłem w książkach filozoficznych, które odkryłem na nowo po dłuższej przerwie. 
+
+Dlaczego znalazłem je w filozofii? Zacząłem głęboko ufać w to, że nauki płynące z filozofii są kluczem do uczciwego, szczęśliwego i harmonijnego życia. Tutaj pojawił się dylemat, gdyż nurtów filozoficzny jest co nie miara. Ja szukałem czegoś co nie jest tylko pięknym traktatem teoretycznym, ale również świetnie sprawdzałoby się w praktyce. 
+
+W ten sposób trafiłem na filozofię stoicką, której właśnie sensem jest praktyka. Bardzo dużą cześć moich przemyśleń zaczerpnąłem od praktycznych stoików, którzy bardzo niesłusznie mają przyklejoną łatkę bezczynności. Prawda jednak jest taka, że stoicy stanowią źródło praktycznej wiedzy popartej licznymi drogowskazami *”jak żyć dobrze”*. 
 
 Pomysł na „filozofię” **WODA TLEN iSEN** (WTiS) kiełkował w mojej głowie od dawna jednak, dopiero zbliżając się do pięćdziesiątki postanowiłem go spisać i zebrać w całość. Kształt przygotowanej przeze mnie idei wynika z wnikliwej analizy otaczającej nas rzeczywistości, a także obserwacji zachodzących w naturze odwiecznych procesów życiowych. Doszedłem do wniosku, że nie ma nic złego w próbie skonsolidowania całej tej wiedzy w swoisty „mój” drogowskaz. 
 
 ![This is text if image doesn't load](/images/WTIS_road_mark.jpg "nazwa")
+*Zdjęcie: Giammarco Boscaro na Unsplash*
 
 Szanując i doceniając dorobek wcześniejszych filozofów i myślicieli zdaję sobie sprawę, że moje refleksje na temat życia na pewno na wyrost nazywam *„filozofią”* (stąd za każdym razem ubieram to słowo w cudzysłów) niemniej dla mnie jest to *„filozofia”* mojego życia, którą dzięki temu blogowi oraz napisanej książce chętnie się z Tobą podzielę. 
 
-Jeśli wciąż czytasz dalej to bardzo dziękuję. Mam nadzieję drogi czytelniku, że w tej publikacji znajdziesz coś wartościowego dla siebie. Z dużą dozą wdzięczności oraz poczuciem odpowiedzialności za Twój bezcenny czas zapraszam na wspólną podróż do krainy mojej *„filozofii”* **WODA TLEN iSEN**.
+Jeśli wciąż czytasz dalej to bardzo dziękuję. Mam osobistą nadzieję drogi czytelniku, że na tym blogu znajdziesz coś wartościowego dla siebie, a czas spędzony na lekturze uznasz za wartościowy dla Siebie.
+
+Z dużą dozą wdzięczności oraz poczuciem odpowiedzialności za Twój bezcenny czas zapraszam na wspólną podróż do krainy mojej *„filozofii” WODA TLEN iSEN*.
 
 ## CO TO JEST „FILOZOFIA” WODA TLEN iSEN?
 
 ![This is text if image doesn't load](/images/WTiS_piktogram.png "nazwa")
 
-W każdym naturalnym środowisku pojawiają się 3 podstawowe procesy życiowe, które w cykliczny sposób się powtarzają. Wszystko zaczyna się od procesu **BUDOWANIA** *(kształtowania/uczenia)*, który staje się fundamentem do **DZIAŁANIA** *(rozwoju/tworzenia)* po którym konieczna jest **REGENERACJA** *(odbudowa/wypoczynek)*. Wszystkie te procesy łączą się i stanowią **3 FILARY energii życiowej i życia w harmonii**, gdyż uzupełniają się i tworzą jedną całość. 
+Zacznijmy zatem od początku. W każdym naturalnym środowisku pojawiają się 3 podstawowe procesy życiowe, które w cykliczny sposób się powtarzają. Wszystko zaczyna się od procesu **BUDOWANIA** *(kształtowania/uczenia)*, który staje się fundamentem do **DZIAŁANIA** *(rozwoju/tworzenia)*, po którym konieczna jest **REGENERACJA** *(odbudowa/wypoczynek)*. 
+
+Wszystkie te procesy łączą się i stanowią **3 FILARY energii życiowej i życia w harmonii**, gdyż uzupełniają się i tworzą jedną spójną całość. 
 
 Stworzona przez ze mnie **“filozofia” WODA TLEN iSEN** łączy **BUDOWANIE** z **WODĄ** podstawowym budulcem i składnikiem materii, **DZIAŁANIE** z **TLENEM** bez którego większość życiowych procesów nie może mieć miejsca oraz **REGENERACJĘ** ze **SNEM** kluczowym, a jednocześnie najbardziej niedocenianym filarem zbilansowanego 
-i harmonijnego życia. Poniżej znajdziesz moją autorską wizualizację połączenia tych procesów w jedną całość.
+i harmonijnego życia. 
+
+Poniżej znajdziesz moją autorską wizualizację połączenia tych procesów w jedną całość, której centralnym punktem staje się energia życiowa witalna w chinskiej filozofii okreslana jako CHi.
 
 ## 3 FILARY ŻYCIA W HARMONII
 
@@ -109,8 +121,8 @@ W odważnym i systematycznym ich odkrywaniu niech pomogą nam słowa chińskiego
 
 Jeśli czujesz się zainteresowany lub choć odrobinę zaintrygowany jestem przekonany, że się nie zawiedziesz. Zapraszam do wspólnego odkrywania tego co jest dość proste, ale jak się okazuje nie takie oczywiste. Podzielę się z Tobą zdobytą wiedzą i dołożę wszelkich starań, aby przekazywane przeze mnie informacje były interesujące, intuicyjne i łatwe do wprowadzenia w Twoim życiu.
 
-Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję 
+Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję i zapraszam na **BLOG**, gdzie znajdziesz wiele artykułow wyjaśniających krok po kroku ideę **WTiS** lub do **SKLEP'u**, gdzie już niedługo znajdziesz kolejne interesujące materiały.
 
-Witaj w krainie *„filozofii”* **WODA TLEN iSEN :-)**
+Witaj ma nadzieje na dobre w krainie *„filozofii”* **WODA TLEN iSEN :-)**
 
 ![This is text if image doesn't load](/images/WTiS_arcos.png "nazwa")

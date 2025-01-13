@@ -1,5 +1,5 @@
 ---
-title: "WODA, TLEN iSEN czyli prosta „filozofia” szczęśliwego i harmonijnego życia"
+title: WODA, TLEN iSEN czyli prosta „filozofia” szczęśliwego i harmonijnego życia
 description: ""
 theme_version: '2.8.2'
 type: page
@@ -7,7 +7,11 @@ cascade:
   featured_image: '/images/wtis.jpg'
 ---
 
-# WITAM 
-## Na moim blogu poświęconym filozofii harmonijnego źycia
+# Witaj na blogu 
 
-![This is text if image doesn't load](/images/3filary.jpg "nazwa")
+![This is text if image doesn't load](/images/WTiS_piktogram.png "")
+
+## Zapraszam do zapoznania się z najnowszymi wpisami ... a jeśli jesteś pierwszy kliknij na [TU ZACZNIJ](/about)
+
+
+

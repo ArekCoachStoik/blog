@@ -1,7 +1,7 @@
 baseURL: https://wodatlenisen.site/
 languageCode: pl-PL
 defaultContentLanguage: pl
-title: "HOME"
+title: "DOM"
 theme: ananke
 omit_header_text: false
 params:
@@ -16,10 +16,13 @@ menu:
     - name: WTiS
       url: /WTiS
       weight: 1
-    - name: Blog
+    - name: BLOG
       url: /post
       weight: 2
-    - name: O mnie
+    - name: "TU ZACZNIJ"
       url: /about
+      weight: -1
+    - name: "SKLEP"
+      url: /SKLEP
       weight: 3
 

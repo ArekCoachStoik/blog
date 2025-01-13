@@ -20,12 +20,15 @@ Sam **SEN** jest bardzo często niedoceniany wręcz stygmatyzowany. Często sły
 Twoje ciało potrzebuje **REGENERACJI** i to na pewno nie takiej jak poniżej .....
 
 ![This is text if image doesn't load](/images/wtis03sen.jpg "nazwa")
+*Zdjęcie: John Moeses Bauan na Unsplash*
+
 
 Odpowiedniej jakości i długości dobry **SEN** to nie tylko sprawdzony sposób na odbudowę energii fizycznej, ale przede wszystkim przepis na zdrowie i długowieczność.  Jak dla mnie są to argumenty, które warto wziąć po uwagę. Skoro na pytanie „kto chciałby żyć długo i …. zdrowo” odpowiedz jest dość oczywista, dlaczego **SEN** jest tak mocno nie doceniony.  
 
 Jak to bywa z większością istotnych spraw w naszym życiu, aby cokolwiek docenić (w tym wypadku sen), potrzebujemy zobaczyć wymierne korzyści lub zagrożenia. I tutaj pojawia się problem zbawienne efekty dobrego wysypiania się nie pojawiają się od razu - a w dzisiejszym instant czasach wszystko chcemy mieć na już. Ze snem tak to nie działa, gdyż, aby je zobaczyć trzeba do snu podchodzić bardzo systematycznie zarówno jeśli chodzi o regularność chodzenia spać do łóżka, czasu jaki na niego poświęcamy oraz zadbać o higienę nie tylko ciała ale i głowy (higiena cyfrowa czyli brak niebieskiego światła i rozpraszaczy przed snem). 
 
 ![This is text if image doesn't load](/images/wtis03sen2.jpg "nazwa")
+*Zdjęcie: Nubelson Fernandes na Unsplash*
 
 Faktem jest, że zmiany cywilizacyjne potęgują problem niewyspania. Zjawisko to jednak ma wiele innych podłoży. Nie tylko osoby, które świadomie dokonują wyboru o skracaniu snu śpią za krótko. Jest wiele osób, które pomimo chęci przespania dobrej jakościowo nocy nie są w stanie tego zrealizować.
 

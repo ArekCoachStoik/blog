@@ -17,8 +17,8 @@ Dlaczego przygodę z filozofią Woda, Tlen i Sen w obszarze energii zaczynamy od
 
 Jeśli w budowę **ENERGII FIZYCZNEJ** nie włożymy odpowiednio dużo wysiłku, będzie nam bardzo trudno rozwijać inne ważne obszary naszego życia. Parafrazując łacińską maksymę „mens sana in corpore sano” Nie ma zdrowego ducha bez zdrowego ciała. 
 
-qd  w![This is text if image doesn't load](/images/Phisical_energy.webp "nazwa")
-
+![This is text if image doesn't load](/images/Phisical_energy.webp "nazwa")
+*Zdjęcie: Iucas Favre na Unsplash*
 
 Dbanie o **ENERGIĘ FIZYCZNĄ** powinniśmy zatem rozpocząć od *"świadomego odżywiania"*, które jest głównym czynnikiem wpływającym na nasze zdrowie oraz **BUDUJĄCYM** energię fizyczną naszego organizmu. Następnym elementem cyklicznych procesów życiowych jest **DZIAŁANIE** stąd kolejnym ważnym wymiarem energii fizycznej będzie *"aktywność fizyczna"*. Całość procesów związanych z energią fizyczną zamyka **REGENERACJA** co w przypadku energii fizycznej jest realizowane poprzez *"prawidłowy sen".*
 
@@ -34,4 +34,5 @@ Dbanie o **ENERGIĘ FIZYCZNĄ** powinniśmy zatem rozpocząć od *"świadomego o
 ### **WODA TLEN iSEN - ENERGIA FIZYCZNA**
 
 ![This is text if image doesn't load](/images/wtis04_matryca_EF.jpg "nazwa")
+*Autorska koncepcja matrycy Energii Fizycznej
 
