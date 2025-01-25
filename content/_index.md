@@ -11,7 +11,9 @@ cascade:
 
 ![This is text if image doesn't load](/images/WTiS_piktogram.png "")
 
-## Zapraszam do zapoznania się z najnowszymi wpisami ... a jeśli jesteś pierwszy kliknij na [TU ZACZNIJ](/about)
+## Zapraszam do zapoznania się z najnowszymi wpisami .......... 
+
+a jeśli jesteś tutaj pierwszy raz kliknij na **[TU ZACZNIJ](/about)**
 
 
 

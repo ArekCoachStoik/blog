@@ -1,5 +1,5 @@
 ---
-title: "WODA TLEN iSEN"
+title: "WODA TLEN i SEN"
 date: 2017-03-02T12:00:00-05:00
 omit_header_text: true
 draft: false 

@@ -10,6 +10,6 @@ type: page
 ![This is text if image doesn't load](/images/ARCOS_logo2.png "")
 
 
-# MENTOR - COACH
+# TRENER - MENTOR - COACH
 
 {{< form-contact action="https://formspree.io/f/movqzaok"  >}}
