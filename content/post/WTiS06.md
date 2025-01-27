@@ -1,5 +1,5 @@
 ---
-date: '2025-01-20T01:41:34+01:00'
+date: '2025-01-29T01:41:34+01:00'
 draft: false
 featured_image: "/images/Life_energy.webp"
 title: 'WTiS_06 - Energia Duchowa'
@@ -47,7 +47,7 @@ To właśnie Energia silnika duchowego połączona z silnikiem fizycznym i intel
 Sceptycy (np. ateiści, agnostycy) powiedzą, że da się przecież lecieć bez jednego silnika, skojarzonego tutaj z duszą/wiarą/cnotą. Dlaczego zatem jest to takie ważne by o silniku duchowym nie zapomnieć? Według mnie jest to istotne, gdyż brak rozeznania między dobrem a złem doprowadza do sytuacji, w której nieświadomie postępujemy źle.
 Nad istotą i pochodzeniem zła od lat prowadzane są rozważania i badania zintensyfikowane przez rozwój takich nauk jak psychologia czy psychiatria. 
 
-Jednym z filozofów, który zmierzył się z tematem zła był Karol Gustaw Jung, który w swojej „Odpowiedzi Hiobowi” dotyka natury Boga i człowieka. Jest to wymagająca i kontrowersyjna pozycja pozwalająca w sposób refleksyjny i złożony podejść do istoty oraz genezy pochodzenia zła.
+Jednym z psychologów, który zmierzył się z tematem zła był Karol Gustaw Jung, który w swojej „Odpowiedzi Hiobowi” dotyka natury Boga i człowieka. Jest to wymagająca i kontrowersyjna pozycja pozwalająca w sposób refleksyjny i złożony podejść do istoty oraz genezy pochodzenia zła.
 
 Pozostawiając na boku psychologiczne i filozoficzne rozważania intuicja podpowiada, że zło na pierwszy rzut oka wygląda atrakcyjnie, wciąga i nie oczekuje od człowiek zbyt dużego wysiłku. W odróżnieniu od zła natura dobra jest taka, że potrzebuje wewnętrznej dyscypliny, która często wymaga istotnego wysiłku. I tu pojawia się główny kłopot, gdyż nasz mózg bardzo wysiłku nie lubi. 
 
@@ -82,11 +82,11 @@ Permanentna manipulacja naszą uwagą (uważnością) wykorzystująca efekt “z
 
 ## **WSKAZÓWKI:**
 
-1.Praca na rozróżnieniem dobra od zła to podstawowy BUDULEC energii duchowej.
+1.Praca nad rozróżnieniem dobra od zła to podstawowy BUDULEC energii duchowej.
 
-2.Energia duchowa daje siłe do działania DZIAŁANIA  (wolontariatu) zgodnie z naszym kompasem moralny,. 
+2.Energia duchowa wykorzystująca kompas moralny daje siłę do DZIAŁANIA (np. w formie wolontariatu). 
 
-3.Medytacja najlepszą formą REGENERACJI po wysiłku duchowym.
+3.Medytacja lub trening uważności to sprawdzone metody REGENERACJI po wysiłku duchowym.
 
 
 ### **WODA TLEN iSEN - ENERGIA DUCHOWA**

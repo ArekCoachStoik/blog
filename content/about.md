@@ -12,62 +12,80 @@ type: page
 
 ![This is text if image doesn't load](/images/WTiS_arcos.png "")
 
-Jestem zaszczycony Twoją obecnością na moim blogu i dołożę wszelkich starań, aby czas spędzony tutaj był dla Ciebie bardzo interesujący. Twój czas jest najbardziej wartościową rzeczą o jakiej możemy pomyśleć lub ofiarować. To jedyna, rzecz której nie możemy kupić, oddać czy wydłużyć. 
+Jestem zaszczycony Twoją obecnością na moim blogu i dołożę wszelkich starań, aby czas spędzony tutaj był dla Ciebie wartościowy i inspirujący. 
 
-Dlatego tak bardzo doceniam, że ten największy skarb jaki realnie jest w Twoim posiadaniu poświęcasz właśnie dla mnie. To duże wyróżnienie, za które jeszcze raz bardzo dziękuję.
+**Czas** jest najcenniejszym zasobem, jakim dysponujemy – to jedyna rzecz, której nie można kupić, odzyskać ani wydłużyć. 
+
+Tym bardziej doceniam, że ten bezcenny skarb jaki masz w swoim posiadaniu postanowiłeś poświęcić właśnie tutaj. To dla mnie ogromne wyróżnienie i motywacja by dostarczać Ci treści, które naprawdę mają znaczenie. 
+
+Jeszcze raz dziękuję za Twoją obecność i zaufanie.
 
 ## **Kim jestem ?**
 
 ### Nazywam się ARKADIUSZ KORBA pseudonim "ARCOS"
 
 
-Jestem managerem z ponad 25 letnim stażem zawodowym. Na co dzień zajmuję się zarządzaniem i rozwojem zespołów, a także jednostek w strukturach krajowych jak i międzynarodowych. Jestem trenerem, mentorem a także certyfikowanym coachem. Wszystkie te umiejętności wykorzystuje na co dzień w pracy w moich zespołach, a szczegolnie w pracy indywidualnej (1:1).
+Jestem menedżerem z ponad 25 letnim stażem zawodowym. Na co dzień zajmuję się zarządzaniem i rozwojem zespołów oraz jednostek w strukturach krajowych jak i międzynarodowych. Pełnię także rolę trenera, mentora a także certyfikowanego coacha. Wszystkie te umiejętności wykorzystuje w codziennej pracy z moimi zespołami, a szczególnie w pracy indywidualnej (1:1).
 
-Pasjonuje się filozofią stoicką, psychologią zachowań ludzkich oraz dobrze zbilansowanym energetycznie trybem życia. 
+Pasjonuje się filozofią stoicką, psychologią ludzkich zachowań oraz prowadzeniem zrównoważonego i energetycznie harmonijnego trybu życia. 
 
-Jestem propagatorem minimalizmu, detoksu cyfrowego oraz treningu uważności, czyli skupienia na tu i teraz.
+Jestem propagatorem minimalizmu, detoksu cyfrowego oraz treningu uważności, czyli sztuki skupienia się na chwili obecnej. Wierzę, że te praktyki mogą znacząco poprawić jakość życia i wewnętrzny spokój.
 
 I na koniec co dla mnie jest najistotniejsze jestem szczęśliwym mężem oraz ojcem trójki dzieci, a spędzanie czasu na wspólnych podróżach to znak rozpoznawczy naszej "dużej" rodziny.
 
-Uwielbiam poznawać świat i ludzi, motywować siebie i innych do ciągłego rozwoju i cyklicznego "poszerzania" strefy komfortu zamiast z niej "wychodzenia". Do tego potrzebna jest otwartość na nowe doświadczenia, patrzenie na nie z ciekawością jak na kolejną przygodę ale przede wszystkim odwaga aby na nią wyruszyć.
+Uwielbiam poznawać świat i ludzi, motywować siebie oraz innych do nieustannego rozwoju. Wierzę w ideę stopniowego "poszerzania" strefy komfortu, zamiast nagłego wychodzenia z niej. Taki proces wymaga otwartości na nowe doświadczenia, ciekawości wobec świata i przede wszystkim odwagi, by wyruszyć w kolejną życiową przygodę.
 
-Dlatego staram się, żyć zgodnie z radą chińskiego filozofa Laozi z księgi **"Drogi i Dobra""** ,który wskazuje, że: 
+Staram się, żyć zgodnie z radą chińskiego filozofa Laozi zapisaną w **"Dao De Jing" (Księdze Drogi i Dobra)** ,cytuję : 
 
 ### *“nawet najdalsza podróż zaczyna się od pierwszego kroku”*
 
-Mam nadzieję, że dzieki mojemu blogowi również i Ty znajdziesz swój sposób na trwałą zmianę ważnych dla Ciebie  elementów Twojego życia. 
+Mam nadzieję, że dzięki mojemu blogowi również Ty znajdziesz swój sposób na wprowadzenie trwałych i pozytywnych zmian w ważnych dla Ciebie obszarach życia.
 
 ![This is text if image doesn't load](/images/arek.jpg "")
 
 
 ## **Skąd pseudonim :-)**
 
-Do swojej pracy jako autor treści używam pseudonimu **"ARCOS"** ,który powstał z połaczenia mojego imienia **AR**ek, następnie **CO**achingu który jest sprawdzonym (niestety w Polsce mocno zdewaluowanym) narzędziem wykorzystywanym do rozwoju osobistego oraz mojego zamiłowania do filozofii **S**toickiej, która od kilku lat jest moim ulubionym drogowskazem jak "żyć dobrze".
+
+Do swojej pracy jako autor treści używam pseudonimu "ARCOS", który powstał z połączenia trzech kluczowych elementów:
+
+**AR** jak Arek – moje imię,
+
+**CO** jak coaching – narzędzie, które mimo swojej dewaluacji w Polsce, pozostaje niezwykle skuteczne w rozwoju osobistym,
+
+**S** jak stoicyzm – filozofia, która od kilku lat stanowi mój ulubiony drogowskaz na drodze do dobrego życia.
+
 
 ## **Misja i myśl przewodnia**
 
-Misja, która mi przyświeca to **propagowanie harmonijnego stylu życia**, który według mojego doświadczenia jest receptą na życie pełne i szczęśliwe. 
+Moja misja to **propagowanie harmonijnego stylu życia**, który - według mojego doświadczenia - jest receptą na pełne i szczęśliwe życie
 
-Jako osoba aspirująca do nazywania siebie stoikiem, skupiam się na takich zmianach w obszarze naszego życia, które są **od nas zależne**. Dzieki temu szansa, że uda się je wprowadzić jako stałą zmianę w naszym życiu, a nie często ulotne "noworoczne postanowienie" jest bardzo duża. 
+Jako osoba aspirująca do nazywania siebie stoikiem, koncentruję się na zmianach w tych obszarach życia, które są **od nas zależne**. Dzięki temu szanse na ich trwałe wprowadzenie są zdecydowanie większe niż w przypadku ulotnych, „noworocznych postanowień”.
 
-Próba skupienie się na rzeczach od nas zależnych jest myślą przewodnią wszystkich moich rozważań i przemyśleń, którymi się będę z Wami tutaj dzielił.
+Skupienie na tym, co jest w naszej mocy, stanowi myśl przewodnią wszystkich moich przemyśleń, którymi będę się z Tobą dzielił na tym blogu.
 
 ## **"Filozofia" WODA TLEN iSEN (WTiS)**. 
-Aby zebrać wszystkie moje przemyślenia w jedną całość stworzyłem autorską metodę harmonijnego życia. Mój pomysł jak realizować harmonijne życie nazywam "filozofią" **WODA TLEN iSEN**. Mając w sobie dużo pokory mam świadomość, że być może na wyrost swój pomysł nazywam "filozofią", stąd za każdym razem z szacunku dla wielkich filozoficznych myślicieli będę to słowo pisał w cudzysłowie.
+Aby zebrać swoje przemyślenia w spójną całość, stworzyłem autorską metodę harmonijnego życia, którą nazywam "filozofią" **WODA TLEN iSEN**. Mając w sobie dużo pokory mam świadomość, że być może na wyrost swój pomysł nazywam filozofią. Dlatego też za każdym razem z szacunku dla wielkich filozoficznych myślicieli będę to słowo pisał w cudzysłowie.
 
-Podstawowe założenia mojej "filozofii" znajdziesz w zakładce **[WTiS](/wtis)**
+Główne założenia mojej "filozofii" znajdziesz w zakładce **[WTiS](/wtis)**
 
-W ramach tego bloga będę rozwijał jej główne założenia, wykorzystując wiedzę inspirujących ludzi ze świata nauki, polityki, biznesu czy filozofii. Dodatkowo znajdziesz tutaj wskazówki jak samemu można skutecznie wprowadzić "filozofię" **WODA TLEN iSEN** do swojego życia.
+Na blogu będę rozwijał jej podstawy, czerpiąc z wiedzy inspirujących ludzi ze świata nauki, biznesu, polityki i filozofii. Znajdziesz tu również praktyczne wskazówki, jak wprowadzić "filozofię" **WODA TLEN iSEN** do swojego życia.
 
-Mam nadzieję, że po przeczytaniu tego wstępu jesteś zaciekawiony i delikatnie zaintrygowany.
+Mam nadzieję, że ten wstęp wzbudził Twoją ciekawość i zainspirował Cię do dalszego odkrywania treści na blogu. 
 
-Ja dołożę wszelkich stara aby przekazywana tutaj wiedza stała się wartościowa również dla Ciebie oraz była pierwszym krokiem w drodze do trwałej zmiany.
+Dołożę wszelkich starań, aby przekazywana tutaj wiedza była wartościowa również dla Ciebie i stała się pierwszym krokiem na drodze do trwałej zmiany.
 
-Każda osoba zainteresowaną moją "filozofią" jest dla mnie ważna. Gorąco zachęcam do komentowania poszczególnych postów na **[BLOG](/post)**, napisania wiadomości poprzez formularz w zakładce **[Kontakt](/contact)**, jak również zapoznanie sie szerzej z genezą filozofii w zakładce **[WTiS](/wtis)**. 
+Każda osoba zainteresowaną moją "filozofią" jest dla mnie ważna. Gorąco zachęcam do :
 
-W przygotowaniu są również inne materiały takie jak książka, ebook raz indywidualny TEST energii życiowej, które będą dostępne w zakładce **[SKLEP](/sklep)**
+1.komentowania postów na **[BLOG](/post)**, 
 
-Każdego z Was, kto chciałby bliżej poznać jej założenia zarówno podczas krótkiej nieformalnej bezpośredniej rozmowy jak i profesjonalnej sesji mentoringowo-coachingowych serdecznie zapraszam do bezpośredniego kontaktu również przez zakładkę **[Kontakt](/contact)**, gdzie wszystko sprawnie ustalimy.
+2.napisania wiadomości przez formularz w zakładce **[Kontakt](/contact)**
+
+3.zapoznanie sie szerzej z genezą filozofii w zakładce **[WTiS](/wtis)**. 
+
+Wkrótce udostępnię również dodatkowe materiały, takie jak książka, ebook oraz TEST energii życiowej, które znajdziesz w zakładce **[SKLEP](/sklep)** 
+
+Jeśli chcesz bliżej poznać założenia WTiS, zapraszam zarówno do krótkiej, nieformalnej rozmowy, jak i profesjonalnych sesji mentoringowo-coachingowych. Szczegóły znajdziesz w zakładce **[Kontakt](/contact)**, gdzie wszystko sprawnie ustalimy.
 
 ## JESZCZE RAZ SERDECZNIE ZAPRASZAM DO WSPÓLNEJ PODRÓŻY BY RAZEM ODKRYĆ ....
 
