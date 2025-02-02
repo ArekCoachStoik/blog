@@ -28,20 +28,28 @@ Twoje ciało potrzebuje **REGENERACJI** i to na pewno nie takiej jak poniżej ..
 
 Odpowiedniej jakości i długości dobry **SEN** to nie tylko sprawdzony sposób na odbudowę energii fizycznej, ale przede wszystkim przepis na zdrowie i długowieczność.  Jak dla mnie są to argumenty, które warto wziąć po uwagę. Skoro na pytanie „kto chciałby żyć długo i …. zdrowo” odpowiedz jest dość oczywista, to dlaczego **SEN** jest tak mocno nie doceniony.  
 
-Jak to bywa z większością istotnych spraw w naszym życiu, aby cokolwiek docenić (w tym wypadku sen), potrzebujemy zobaczyć wymierne korzyści. I tutaj pojawia się problem, gdyż zbawienne efekty dobrego wysypiania się nie pojawiają się od razu. Szczególnie w dzisiejszych czasach "instant", kiedy **chcemy mieć** wszystko tu i teraz (z ang."on demand") staje się to nie lada wyzwaniem. Niestety w kwestii snu, aby zauważyć efekty trzeba do niego podchodzić bardzo systematycznie i metodycznie. Trzeba zadbać o 3 kluczowe elementy: regularność zasypiania (ta sama godzina), poświęcanie na sen odpowiedniej ilości czasu (6-9h) oraz co mocno niedoceniane zadbanie przed snem o higienę nie tylko ciała ale i głowy (higiena cyfrowa czyli brak niebieskiego światła i rozpraszaczy przed snem). 
+Jak to bywa z większością istotnych spraw w naszym życiu, aby coś naprawdę docenić – w tym wypadku sen – musimy dostrzec jego wymierne korzyści. I tu pojawia się problem, ponieważ zbawienne efekty dobrego wysypiania się nie są natychmiastowe. Szczególnie w dzisiejszych czasach, kiedy żyjemy w kulturze „instant”, gdzie wszystko chcemy mieć tu i teraz (ang, "on demand)", cierpliwe budowanie zdrowych nawyków staje się nie lada wyzwaniem.
+
+Niestety, jeśli chodzi o sen, efekty jego jakościowej poprawy nie są widoczne od razu. Aby je zauważyć, trzeba podchodzić do niego systematycznie i metodycznie, dbając o trzy kluczowe elementy:
+
+1/ Regularność zasypiania – kładzenie się spać o tej samej godzinie
+
+2/ Odpowiednia długość snu – minimum 6–9 godzin
+
+3/ Higiena snu – zadbanie o higienę ciała i umysłu (cyfrowy detoks, unikanie niebieskiego światła i rozpraszaczy przed snem)
 
 ![This is text if image doesn't load](/images/wtis03sen2.jpg "nazwa")
 *Zdjęcie: Nubelson Fernandes na Unsplash*
 
-Faktem jest, że zmiany cywilizacyjne potęgują problem niewyspania. Zjawisko to jednak ma wiele innych podłoży. Nie tylko osoby, które świadomie dokonują wyboru o skracaniu snu śpią za krótko. Jest wiele osób, które pomimo chęci przespania dobrej jakościowo nocy nie są w stanie tego zrealizować.
+Faktem jest, że zmiany cywilizacyjne potęgują problem niewyspania. Jednak zjawisko to ma wiele innych przyczyn. Nie tylko osoby, które świadomie skracają sen, cierpią na jego niedobór. Wiele osób, mimo szczerych chęci, nie jest w stanie przespać dobrej jakości nocy.
 
-Przyczyn jest wiele, ale to zaburzenia w wydzielaniu hormonu melatoniny są kluczowym podłożem problemów ze snem. Problemy z wydzielaniem melatoniny wynikają ze stresu, nierównomiernego trybu życia i braku higieny cyfrowej. Dodatkowo z wiekiem (niestety już po czterdziestym roku życia) szyszynka odpowiedzialna za wytwarzanie tego hormonu w sposób naturalny zmniejsza jego produkcję. 
+Przyczyn jest wiele, ale kluczową rolę odgrywają zaburzenia w wydzielaniu melatoniny – hormonu snu. Jego niedobory wynikają m.in. ze stresu, nieregularnego trybu życia oraz braku higieny cyfrowej. Co więcej, z wiekiem (niestety już po czterdziestce) szyszynka – organ odpowiedzialny za produkcję melatoniny – zaczyna wytwarzać jej coraz mniej.
 
-Niedobory melatoniny są początkiem rozregulowania zegara biologicznego, który pomaga w stabilnym i jakościowo prawidłowym śnie. Śnie którego długość u osoby dorosłej powinna minimalnie trwać sześć godzin a optymalnie nawet dziewięć.   
+Niedobór melatoniny prowadzi do rozregulowania zegara biologicznego, a to z kolei wpływa na jakość i stabilność snu. Optymalna długość snu u osoby dorosłej wynosi od sześciu do nawet dziewięciu godzin.
 
-I na koniec w ramach zajawki dalszych artykułów na tym blogu powiem tylko ze w czasie snu dzieje sie magia. Jeśli chcesz dowiedzieć się więcej zapraszam do czytania kolejnych wpisów na moim blogu. 
+A na koniec – mała zapowiedź kolejnych wpisów na blogu: w czasie snu dzieje się prawdziwa magia. Jeśli chcesz dowiedzieć się więcej, zapraszam do lektury kolejnych artykułów.
 
-Dobrych i długich snów !
+Dobrych i długich snów!
 
 #### SEN TO TRZECI FILAR HARMONIJNEGO ŻYCIA! 
 
