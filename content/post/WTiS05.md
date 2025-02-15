@@ -50,7 +50,6 @@ Właśnie ten obszar stanowi centralny punkt **„filozofii” WODA, TLEN i SEN*
 
 ![This is text if image doesn't load](/images/wtis05pasja.jpg "nazwa")
 
-
  Ostatnim elementem **ENERGII INTELEKTUALNEJ** o którym nie można zapominać jest **REGENERACJA**. Bez niej budowanie i działanie w obszarze energii intelektualnej nie bedzie efektywne. Przerwy w pracy zarówno te bardzo krótkie jak i długie w ramach weekendowych wypadów czy zaplanowanych skrupulatnie urlopów stanowia istotna oraz integralna cześć **ENERGII INTELEKTUALNEJ**. 
  
  Jest to bardzo przyjemny, niezbędny ale często wprowadzający w zakłopotanie obszar naszego życia. Wrócimy do niego jeszcze w szczegółach w kolejnych wpisach na blogu. 

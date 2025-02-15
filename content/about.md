@@ -77,11 +77,11 @@ Dołożę wszelkich starań, aby przekazywana tutaj wiedza była wartościowa r�
 
 Każda osoba zainteresowaną moją "filozofią" jest dla mnie ważna. Gorąco zachęcam do :
 
-1.komentowania postów na **[BLOG](/post)**, 
+1.Komentowania postów na **[BLOG'u](/post)**, 
 
-2.napisania wiadomości przez formularz w zakładce **[Kontakt](/contact)**
+2.Napisania wiadomości przez formularz w zakładce **[Kontakt](/contact)**
 
-3.zapoznanie sie szerzej z genezą filozofii w zakładce **[WTiS](/wtis)**. 
+3.Zapoznanie sie szerzej z genezą filozofii w zakładce **[WTiS](/wtis)**. 
 
 Wkrótce udostępnię również dodatkowe materiały, takie jak książka, ebook oraz TEST energii życiowej, które znajdziesz w zakładce **[SKLEP](/sklep)** 
 

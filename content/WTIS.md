@@ -11,27 +11,30 @@ type: page
 
 ## "MOJA DROGA W POSZUKIWANIU HARMONII"
 
-Brak głębokiego sensu życia, niedosyt wartościowych relacji, wypalenie zawodowe, ciągłe zabieganie i brak harmonii życiowej to typowe bolączki dzisiejszej cywilizacji. Większość z nas przechodzi trudniejsze momenty w swoim życiu prywatnym i zawodowym, to normalne. 
+Brak głębszego sensu życia, niedosyt wartościowych relacji, wypalenie zawodowe, ciągłe zabieganie i brak harmonii to bolączki współczesnej cywilizacji. Każdy z nas doświadcza trudniejszych momentów – zarówno w życiu prywatnym, jak i zawodowym. To naturalna część ludzkiej egzystencji.
 
-Podobnie było w moim przypadku. Po wielu latach pracy, gonitwy za „potrzebami” życia codziennego oraz braku odpowiedniej troski o zdrowie w wymienionych powyżej obszarach zaczynałem odczuwać istotne deficyty. Zacząłem szukać wskazówek po to, aby uporządkować swoje życie i nadać mu głębszy sens. Chciałem znaleźć sposób na to, aby sentencja *„co Cię nie zabije to Cię wzmocni”* odnosiła się do umiejętności wychodzenia z trudności silniejszym i odporniejszym. Nauczyć się patrzeć na życiowe problemy z ciekawością traktując je jako obszar nowej szansy, a nie kolejnego zagrożenia. Świadomie zacząłem szukać swojej drogi do pełni szczęścia i życia w harmonii. Byłem pewien, że jest to możliwe, wymaga tylko autorefleksji i ciągłego poszerzania swojego światopoglądu.
+Tak było również w moim przypadku. Po latach nieustannej gonitwy za codziennymi „potrzebami” i zaniedbywania własnego dobrostanu zacząłem odczuwać istotne braki. Czułem, że coś umyka, że czegoś mi brakuje. Postanowiłem poszukać wskazówek, które pomogłyby mi uporządkować życie i nadać mu głębszy sens. Chciałem, aby sentencja *„co Cię nie zabije, to Cię wzmocni”* stała się dla mnie rzeczywistością – by trudności nie osłabiały, lecz wzmacniały moją odporność.
+
+Zacząłem patrzeć na życiowe wyzwania z ciekawością, traktując je jako okazje do rozwoju, a nie kolejne zagrożenia. Świadomie wkroczyłem na drogę poszukiwania harmonii i prawdziwego szczęścia. Wiedziałem, że jest to możliwe – wymaga jedynie autorefleksji oraz nieustannego poszerzania horyzontów.
 
 ![This is text if image doesn't load](/images/WTIS_burnout.jpg "nazwa")
 *Zdjęcie: Nubelson Fernandes na Unsplash*
 
-Postanowiłem coś zmienić. W tym celu przez ostatnie lata przeczytałem wiele książek z zakresu filozofii, psychologii behawioralnej, zdrowego odżywiania, jak również rozwoju osobistego. Dodatkowo w czasie mojego ulubionego hobby, czyli biegania przesłuchałem tysiące godzin podcastów inspirujących osób: filozofów, ludzi nauki i polityki. 
+Postanowiłem coś zmienić. Przez ostatnie lata przeczytałem wiele książek o filozofii, psychologii behawioralnej, zdrowym odżywianiu oraz rozwoju osobistym. Towarzyszyło mi także moje ulubione hobby – bieganie, podczas którego przesłuchałem tysiące godzin podcastów inspirujących osób: filozofów, naukowców i ludzi świata polityki.
 
-Od lat nieskończonym źródłem inspiracji była i jest moja rodzina. Jestem szczęśliwym ojcem trójki wspaniałych dzieci Adasia, Emilki i Madzi oraz nieustającym fanem mojej kochanej żony Anetki.  Rodzinna inspiracja była zawsze dla mnie bardzo istotna, gdyż daje ona siłę i poczucie więzi, dlatego na pewno będę do niej wracał w kolejnych wpisach na moim blogu. 
+Od lat nieskończonym źródłem inspiracji była i nadal jest moja rodzina. Jestem szczęśliwym ojcem trójki wspaniałych dzieci – Adasia, Emilki i Madzi – oraz oddanym fanem mojej kochanej żony Anetki. To właśnie rodzina daje mi siłę i poczucie więzi, dlatego na pewno będę do tego tematu wracał w kolejnych wpisach.
 
-Dodatkowo istotne doświadczenie zdobyłem pracując przez ostatnie 25 lat na pozycjach managerskich zarówno w organizacjach lokalnych, ogólnopolskich jak i europejskich. Nauczyłem się tam bardzo wiele tak zwanych kompetencji „miękkich”, które dotyczą głównie relacji międzyludzkich, umiejętności efektywnego kierowania wielokulturowymi zespołami, jak również kompetencji „twardych” takich jak negocjacje czy zarządzanie złożonymi projektami. 
+Cenne doświadczenie zdobyłem także podczas 25 lat pracy na stanowiskach menedżerskich – zarówno w organizacjach lokalnych, ogólnopolskich, jak i europejskich. Nauczyłem się tam wielu umiejętności „miękkich”, związanych z relacjami międzyludzkimi i skutecznym zarządzaniem wielokulturowymi zespołami, a także kompetencji „twardych”, takich jak negocjacje czy zarządzanie złożonymi projektami.
 
-Dzięki tym wszystkim doświadczeniom pojawił się w mojej głowie pomysł jak poukładać całą tą wiedzę w jedną całość i stworzyć coś na wzór “filozofii” harmonijnego życia. Po tym jak ta idea nabrała realnego kształtu, a upływający czas zmotywował mnie do działania, nie pozostało mi nic innego jak *"przelać to na papier"* i podzielić się z innymi. 
+Dzięki tym wszystkim doświadczeniom zacząłem dostrzegać, jak można poukładać zdobytą wiedzę w jedną spójną całość i stworzyć coś na wzór „filozofii” harmonijnego życia. Gdy idea ta nabrała realnego kształtu, a upływający czas zmotywował mnie do działania, nie pozostało mi nic innego, jak przelać ją na papier i podzielić się nią z innymi.
 
 ## Skąd pomysł na moją „filozofię” życia?
 
-Tak jak wspomniałem wcześniej to co skłoniło mnie do działania to z jednej strony brak harmonii we własnym życiu, z drugiej coraz większe doświadczenie i wiedza zdobyta w ramach życia prywatnego i zawodowego.  Na bazie tych wszystkich doświadczeń odkryłem, że tylko systematyczna praca, czyli wysiłek włożony w kreowanie **ENERGII WITALNEJ** (życiowej) pozwala cieszyć się dobrym, w pełni wartościowym i harmonijnym życiem. 
+Tak jak wspomniałem wcześniej, do działania skłoniły mnie dwie rzeczy: brak harmonii we własnym życiu oraz coraz większe doświadczenie i wiedza, które zdobywałem zarówno w sferze prywatnej, jak i zawodowej. Na tej podstawie odkryłem, że tylko systematyczna praca – czyli świadomy wysiłek włożony w kreowanie energii witalnej – pozwala cieszyć się pełnym, wartościowym i harmonijnym życiem.
 
-Kiedyś o energii życiowej myślałem jedynie w kategoriach tajemniczych energoterapeutów, którzy w magiczny sposób próbowali znaleźć receptę na życiowe problemy.
-Niestety nie ma prostych recept, które działają od ręki. Zmiana wymaga dużej samoświadomości, chęci i wysiłku. Ja sam od lat systematycznie pracuję nad sobą, gdyż jestem pewien, że nie da się jednym ruchem zmienić swojego życia. Trzeba z dużą odwagą i intencjonalnym wysiłkiem dążyć do zmiany każdego dnia. Już samo świadome dążenie do zmiany swojego życia daje dużo satysfakcji, gdyż cytując za Chantal Delsol *„droga jest ważniejsza niż cel!”*. 
+Kiedyś postrzegałem „energię życiową” jako coś zarezerwowanego dla tajemniczych energoterapeutów, którzy w magiczny sposób próbowali znaleźć receptę na wszystkie problemy. Dziś wiem, że nie istnieją proste rozwiązania, które działają natychmiast. Każda zmiana wymaga samoświadomości, chęci i wysiłku.
+
+Sam od lat systematycznie pracuję nad sobą, bo jestem pewien, że nie da się jednym ruchem odmienić swojego życia. To proces, który wymaga odwagi i codziennej, świadomej pracy nad sobą. Już samo dążenie do zmiany daje ogromną satysfakcję, bo – jak powiedziała Chantal Delsol – *„droga jest ważniejsza niż cel”.*
 
 ![This is text if image doesn't load](/images/WTIS_road.jpg "nazwa")
 *Zdjęcie: Jerry Cavan na Unsplash*
@@ -121,7 +124,7 @@ W odważnym i systematycznym ich odkrywaniu niech pomogą nam słowa chińskiego
 
 Jeśli czujesz się zainteresowany lub choć odrobinę zaintrygowany jestem przekonany, że się nie zawiedziesz. Zapraszam do wspólnego odkrywania tego co jest dość proste, ale jak się okazuje nie takie oczywiste. Podzielę się z Tobą zdobytą wiedzą i dołożę wszelkich starań, aby przekazywane przeze mnie informacje były interesujące, intuicyjne i łatwe do wprowadzenia w Twoim życiu.
 
-Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję i zapraszam na **BLOG**, gdzie znajdziesz wiele artykułow wyjaśniających krok po kroku ideę **WTiS** lub do **SKLEP'u**, gdzie już niedługo znajdziesz kolejne interesujące materiały.
+Jeśli mówisz TAK - zrobiłeś pierwszy KROK - dziękuję i zapraszam na **[BLOG](/post)**, gdzie znajdziesz wiele artykułow wyjaśniających krok po kroku ideę **WTiS** lub do **[SKLEP](/sklep)**, gdzie już niedługo znajdziesz kolejne interesujące materiały.
 
 Witaj ma nadzieje na dobre w krainie *„filozofii”* **WODA TLEN iSEN :-)**
 

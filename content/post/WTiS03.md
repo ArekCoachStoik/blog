@@ -47,6 +47,9 @@ Przyczyn jest wiele, ale kluczową rolę odgrywają zaburzenia w wydzielaniu mel
 
 Niedobór melatoniny prowadzi do rozregulowania zegara biologicznego, a to z kolei wpływa na jakość i stabilność snu. Optymalna długość snu u osoby dorosłej wynosi od sześciu do nawet dziewięciu godzin.
 
+Mam nadzieję, że po przeczytaniu powyższego nie masz już wątpliwości jak ważny jest sen.
+Stąd pojawił się pomysł powiązania **SNU** z procesem **REGENERACJI** zarówno energii fizycznej (mięśnie), intelektualnej (mózg) jak i duchowej (serce).
+
 A na koniec – mała zapowiedź kolejnych wpisów na blogu: w czasie snu dzieje się prawdziwa magia. Jeśli chcesz dowiedzieć się więcej, zapraszam do lektury kolejnych artykułów.
 
 Dobrych i długich snów!
