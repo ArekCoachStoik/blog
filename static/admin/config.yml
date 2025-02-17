@@ -4,6 +4,8 @@ display_url: https://wodatlenisen.site
 backend:
   name: github
   repo: ArekCoachStoik/blog
+  base_url: https://sveltia-cms-auth.korba-adam.workers.dev/
+
 media_folder: static/images
 public_folder: /images
 locale: pl
