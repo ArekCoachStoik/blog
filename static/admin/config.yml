@@ -1,0 +1,22 @@
+site_url: https://wodatlenisen.site
+display_url: https://wodatlenisen.site
+
+backend:
+  name: github
+  repo: ArekCoachStoik/blog
+media_folder: static/images
+public_folder: /images
+locale: pl
+show_preview_links: true
+collections:
+  - name: 'blog'
+    label: 'Blog'
+    folder: 'content/post'
+    create: true
+    editor:
+      preview: false
+    fields:
+      - { label: 'Title', name: 'title', widget: 'string' }
+      - { label: 'Publish Date', name: 'date', widget: 'datetime' }
+      - { label: 'Description', name: 'description', widget: 'string' }
+      - { label: 'Body', name: 'body', widget: 'markdown' }
