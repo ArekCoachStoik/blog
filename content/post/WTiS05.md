@@ -1,7 +1,7 @@
 ---
 date: '2024-12-29T22:41:34+01:00'
 draft: false
-featured_image: "/images/Intelektual_energy.webp"
+featured_image: "/images/Intelektual_energy.jpg"
 title: 'WTiS_05 - Energia Intelektualna'
 ---
 

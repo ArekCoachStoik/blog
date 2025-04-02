@@ -4,6 +4,9 @@ draft: false
 featured_image: "/images/wtis07pyramid.jpg"
 title: 'WTiS_07 Piramida żywienia'
 ---
+
+*"Człowiek nie żyje, aby jadł, ale je, aby żył" - Sokrates*
+
 Zasady świadomego i zdrowego odżywiania nie bez powodu zostały opisane w piramidzie żywienia, a temat jest stary jak świat. Odpowiedni dobór pożywienia, który zagwarantuje nam nie tylko odpowiednią dawkę energii fizycznej, ale również zdrowie i długowieczność był przedmiotem badań i analiz od czasów starożytnych.
 
 Z czasem okazało się że w prawidłowo skonstruowanej diecie kluczowa jest nie tylko różnorodność spożywanych pokarmów, ale także ich właściwe proporcje, które układają się w swoistego rodzaju piramidę. Do prawidłowego opisywania tych proporcji używa się pojęcia **zbilansowanej diety**, która staje się fundamentem wszelkiej maści planów żywieniowych opracowanych przez dietetyków.
@@ -21,7 +24,7 @@ Stwierdzenie *„Jesteś tym, co jesz”* doskonale oddaje istotę świadomego o
 
 Współczesny styl życia i jego tempo mocno zaburzyły naturalne proporcje w naszej diecie. Spożywamy zbyt wiele przetworzonych produktów, które zawierają nadmierne ilości cukru (co zwiększa ryzyko cukrzycy) oraz soli (prowadzącej do nadciśnienia). Jemy nieregularnie, za dużo i często o niewłaściwych porach. Spożycie mięsa, które dzięki masowej produkcji stało się tańsze niż owoce i warzywa, również znacząco wzrosło. Żyjemy szybko i jemy szybko (fast food). Jeśli nie chcemy zwolnić stylu życia zwolnijmy chociaż w kwestii jedzenia. Slow food czyli jedzenie, które nie jest silnie przetworzone , dobrze zbilansowane oraz przygotowywane przed posiłkiem a nie w mikrofali, jest sposobem na walkę z "szybkim jedzeniem"
 
-Jak już wcześniej wspomniałem jednym z najbardziej niebezpiecznych składników nasze żywienia jest cukier. Ma on charakter silnie uzależniający i znajduje się w nadmiarze w większości gotowych posiłkow i napojów. Bardzo niepokojące są statystyki dotyczące spożycia cukru. W Polsce, w ciągu ostatnich 10 lat, jego konsumpcja na osobę wzrosła o 12 kg, osiągając poziom ponad 50 kg rocznie. W konsekwencji dzieci w Polsce tyją najszybciej w Europie, a według prognoz do 2025 roku aż **25% osób poniżej 20. roku życia będzie otyłych**.
+Jak już wcześniej wspomniałem jednym z najbardziej niebezpiecznych składników nasze żywienia jest cukier. Ma on charakter silnie uzależniający i znajduje się w nadmiarze w większości gotowych posiłkow i napojów. Bardzo niepokojące są statystyki dotyczące spożycia cukru. W Polsce, w ciągu ostatnich 10 lat, jego konsumpcja na osobę wzrosła o 12 kg, osiągając poziom ponad 50 kg rocznie. W konsekwencji dzieci w Polsce tyją najszybciej w Europie, a według prognoz do końca 2025 roku aż **25% osób poniżej 20. roku życia będzie otyłych**.
 
 ![This is text if image doesn't load](/images/wtis07fat.jpg "nazwa")
 *Zdjęcie: Towfiqu Barbhuiya na Unsplash*
