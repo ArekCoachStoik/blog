@@ -1,5 +1,5 @@
 ---
-title: WTiS_07 Piramida żywienia
+title: WTiS_07 - Piramida żywienia
 date: 2025-02-12T01:41:00
 description: WODA TLEN iSEN
 draft: false
