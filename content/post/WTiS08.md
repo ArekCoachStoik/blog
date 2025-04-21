@@ -1,29 +1,31 @@
 ---
-date: '2025-03-29T01:41:34+01:00'
+title: WTiS_08 - Kondycja fizyczna
+date: 2025-03-29T01:41:00
+description: WODA TLEN I SEN
 draft: false
-featured_image: "/images/wtis08WF.jpg"
-title: 'WTiS_08 Kondycja fizyczna'
+featured_image: /images/wtis08WF.jpg
 ---
-
-*"„Ci którzy myślą ze nie maja czasu na uprawianie sportu prędzej czy później będą musieli znaleźć czas na chorobę” - Edward Stanley*
+_"„Ci którzy myślą ze nie maja czasu na uprawianie sportu prędzej czy później będą musieli znaleźć czas na chorobę” - Edward Stanley_
 
 Wychowanie fizyczne kojarzy nam się z lekcjami WF w szkole. Jeśli zapytamy przeciętnego ucznia to skojarzenia ma raczej negatywne niż pozytywne. Nie ma nic zatem w tym dziwnego, że na zwolnienia z lekcji WF patrzy się z dużą tolerancją i przymrużeniem oka. Mam nadzieję, że żadnej odpowiedzialnej osoby nie trzeba przekonywać jaki to poważny błąd. Połączenie w nazwie przedmiotu WF aktywności fizycznej z wychowaniem nie jest przypadkowe. To w jaki sposób "wychowamy" nasz organizm  bycia aktywnym fizycznie ma wpływ na nasze zdrowie, samopoczucie i energię witalną. Jest oto o tyle krytyczne, że jeśli do złych nawyków związanych z kondycją fizyczną dołożymy jeszcze brak prawidłowego odżywiania mamy gotowy przepis na problemy zdrowotne. 
 
 ![This is text if image doesn't load](/images/wtis08bieg.jpg "nazwa")
-*Zdjęcie: Fitsum Admasu na Unsplash*
+
+_Zdjęcie: Fitsum Admasu na Unsplash_
 
 Dobra kondycja naszego ciała odgrywa nie tylko istotną rolę w byciu zdrowym ale w całym procesie wykorzystywania naszej energii życiowej. Zadbanie o nią wcale nie jest tak bardzo trudne. Nasz organizm potrzebuje 3 x w tygodniu prostej aktywności fizycznej trwającą minimum 30 minut, dzięki której tętno naszego serca podniesiemy do 130 uderzeń na minutę **(3/30/130)**. Mimo ze jestem fanem minimalizmu w kwestii aktywności fizycznej mam maksymalistyczne podejście. Każdy kto traktuje poważnie temat zdrowia i zależy mu na dobrze zbilansowanej energii fizycznej powinien znaleźć **minimum** 3 razy w tygodniu przestrzeń na dawkę ruchu (pływanie, rower, bieganie, siłownia czy ćwiczenia ogólnorozwojowe). Potrzebujemy taką dawkę, która podniesie nasze tętno, a co najważniejsze wyciągnie organizm/serce z komfortu siedzenia. 
 
 Odpowiednia ilość ruchu powinna być jednak metodycznie wkomponowana w każdy nasz dzień. Najprostszym miernikiem systematyczności może być codzienna ilość zrobionych kroków. Ta prosta informacja jest dzisiaj dostępna praktycznie na wyciągnięcie ręki, a bardzo często na naszej ręce. Większość zegarków sportowych i telefonów jest w stanie nie tylko je mierzyć, ale dla wszystkich fanów statystyk i analizy pokazać trendy, progres i regres. Minimalna ilość kroków którą warto zrobić każdego dnia to **10000**. Każdy dzień, w którym nie udaje się tego zrealizować powinien dawać do myślenia. Cel 10000 kroków dziennie powinniśmy realizować nawet bez aktywnego uprawiania sportu. 
 
 ![This is text if image doesn't load](/images/wtis08walk.jpg "nazwa")
-*Zdjęcie: Krzysztof Kowalik na Unsplash*
 
+_Zdjęcie: Krzysztof Kowalik na Unsplash_
 
 Codzienny spacer, na który poświęcisz ok 1h, tak po prostu dookoła swojego domu jest wystarczający. Możesz to robić z najbliższą Ci osobą lub samotnie dedykując ten czas dla siebie i swoich myśli. Spacer to najprostsza i najtańsza metoda na działanie w obszarze aktywności fizycznej. Nie potrzeba żadnych przygotowań, czasu na dotarcie do miejsca. Zakładasz buty, wychodzi z domu i jesteś na „sali treningowej”. Jeśli uda Ci się każdego dnia wkomponować spacer do Twojej rutyny fundament świadomego **DZIAŁANIA** w ramach energii fizycznej stanie się faktem. Ale czy da się to robić systematycznie?
 
 ![This is text if image doesn't load](/images/wtis08watch.jpg "nazwa")
-*Zdjęcie: Sonja Langford na Unsplash*
+
+_Zdjęcie: Sonja Langford na Unsplash_
 
 **Systematyka najważniejsza i wcale nie najtrudniejsza**
 
@@ -43,7 +45,7 @@ O moim bieganiu mogę śmiało powiedzieć, że się uzależniłem. Jako młody 
 
 Pamietam jak dziś spotkanie towarzyskie późną zimową porą, kiedy miałem 38 lat. Siedząc na kanapie a jakże, dobry znajomy opowiadał mi o swojej kontuzji kolana i konieczności zrobienia zabiegu operacyjnego. Głównym jego zmartwieniem była konieczność wstrzymania aktywności ruchowej. Ja dla równowagi podzieliłem się swoimi przemyśleniami na temat pogarszającej się kondycji fizycznej i „braku czasu” aby się tym zająć. To co usłyszałem zapamiętałem do dzisiaj. 
 
-*„ Arek brak czasu to banalna wymówka dałbym wszystko, aby być w Twojej sytuacji i jutro pójść pobiegać!”* (w tym miejscu serdeczne pozdrowienia dla Włodka)
+_„ Arek brak czasu to banalna wymówka dałbym wszystko, aby być w Twojej sytuacji i jutro pójść pobiegać!”_ (w tym miejscu serdeczne pozdrowienia dla Włodka)
 
 Jutro niestety nie poszedłem ..., ale ta myśl nie dawała mi spokoju. Jak tylko przyszła wiosna zrozumiałem, że muszę coś zmienić. Postanowiłem, że na swoje 40 urodziny przebiegnę .... Maraton. Założyłem buty i jak Forest Gump ruszyłem na trasę. Nie była to długa droga. Pierwsze bieganie skończyło się po 1700 metrach zadyszką i brakiem wiary, że 42 km i 195 m są w moim zasięgu. Na szczęście się nie poddałem i rozpocząłem swoją biegową przygodę, ktora trwa do dzisiaj.
 
@@ -52,20 +54,17 @@ Po latach wiem, że było to możliwe dzięki trzem kluczowym rzeczom. Po pierws
 Bieganie odmieniło moje życie. W październik 2014 roku na 40 urodziny przebiegłem swój pierwszy z czterech jak do tej pory maratonów, a Włodek, o którym wspomniałem wcześniej dopingował i wspierał mnie praktycznie na całej trasie. Jestem pewien, że to uzależnienie pozwala mi dłużej cieszyć się zdrowiem, a wizja 100 kg wagi się oddaliła. Jedna przestroga z przymrużeniem oka. To uzależnienie może się pogłębić. W moim wypadku skończyło się „na szczęście” na kilku triathlonach, dzięki którym do biegania dołożyłem pływanie i rower. Uzależnienie od endorfinowego zastrzyku pozytywnej energii pozostaje do dzisiaj. 
 
 ![This is text if image doesn't load](/images/wtis08maraton.jpg "nazwa")
-*Zdjęcie: prywatna kolekcja autora*
 
+_Zdjęcie: prywatna kolekcja autora_
 
 W tym miejscu muszę jednak dodać, że systematyczna aktywność fizyczna to jednak tylko część recepty na zdrowie. Bez dobrej profilaktyki zdrowotnej i regularnych badań szybko będziemy potrzebowali innych recept. Przezorny zawsze ubezpieczony. Niech twoim ubezpieczeniem będzie profilaktyka zdrowia. O tym jednak już w innym poście.
 
-
-
 ## **WSKAZÓWKI:**
 
-1.Dobre **"wychowanie fizyczne"** tak samo ważne jak *"dobre wychowanie"*
+1.Dobre **"wychowanie fizyczne"** tak samo ważne jak _"dobre wychowanie"_
 
 2.Złote zasady utrzymania kondycji fizycznej **3x30x130 oraz 100000 kroków dziennie** - traktuj je jako swoiste minimum.
 
 3.Uzależnij się od zdrowych nawyków - **regularny ruch** takim na pewno jest!
-
 
 ![This is text if image doesn't load](/images/WTiS_piktogram.png "nazwa")
