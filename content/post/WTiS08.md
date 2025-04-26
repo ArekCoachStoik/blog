@@ -1,6 +1,6 @@
 ---
 title: WTiS_08 - Kondycja fizyczna
-date: 2025-03-29T01:41:00
+date: 2025-03-29T06:42:00
 description: WODA TLEN I SEN
 draft: false
 featured_image: /images/wtis08WF.jpg
