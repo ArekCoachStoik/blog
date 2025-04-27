@@ -43,4 +43,4 @@ Jak wspomniałem wcześniej najlepszym zegarkiem jest ten biologiczny. Odgrywa o
 
 3.Najlepszym zegarkiem do regulacji snu jest nasz **zegar biologiczny**
 
-![This is text if image doesn't load](/images/WTiS_piktogram.png "nazwa")
+![](/images/WTiS_piktogram.png)
