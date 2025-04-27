@@ -11,6 +11,10 @@ Skupmy się na kolejnym filarze  _"filozofii"_  **WODA, TLEN i i SEN** czyli **R
 
 Jak często słyszymy powtarzane stereotypu typu: „odpocznę na emeryturze”, „szkoda czasu na sen” czy „sen jest dla słabych”. Jak słusznie zauważył Tadeusz Kotarbiński to stygmatyzowane skracanie sobie życia realnie wpływa na jego długość ale przede wszystkim jakość.  Dobrze zaplanowany - a co ważniejsze zrealizowany odpoczynek - staje się  kluczowy do zdrowego i harmonijnego życia. A dotyczy to każdego jego wymiaru: fizycznego, intelektualnego a także duchowego. Nasze ciało **(SOMA)** potrzebuje regeneracji **(SNU)**. Zostało już naukowo udowodnione, że odpowiedniej jakości i długości sen to nie tylko sprawdzony sposób na odbudowę energii fizycznej, ale przede wszystkim przepis na zdrowie i długowieczność. Jak dla mnie są to argumenty, które warto wziąć po uwagę i poddać osobistej refleksji. 
 
+![](/images/wtis09sleep.jpg)
+
+Zdjęcie Nedim z Unsplash
+
 **Skoro na pytanie „kto chciałby żyć długo i …. zdrowo” odpowiedz jest oczywista, dlaczego zatem SEN jest tak mocno nie doceniony?&#32;&#32;**
 
 Aby docenić rolę istotnej sprawy w naszym życiu musimy dostrzec korzyści oraz wymierne efekty naszego działania. Sen po za poczuciem "zmarnowanego" czasu w prosty sposób widoczności tych efektów nam nie daje. Można by tą sytuacje porównać do próby przekonania 18 latka, że zamiast wydatków na drobne przyjemności dzisiaj warto już odkładać pieniądze na przyszłą emeryturę. Nie jest to proste zadanie. W takiej sytuacji jedynym sposobem aby zrozumieć istotę i rolę snu trzeba do tego podejść naukowo. 
