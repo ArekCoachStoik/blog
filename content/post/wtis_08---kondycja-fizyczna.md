@@ -11,11 +11,7 @@ Skupmy się na kolejnym filarze  _"filozofii"_  **WODA, TLEN i i SEN** czyli **R
 
 Jak często słyszymy powtarzane stereotypu typu: „odpocznę na emeryturze”, „szkoda czasu na sen” czy „sen jest dla słabych”. Jak słusznie zauważył Tadeusz Kotarbiński to stygmatyzowane skracanie sobie życia realnie wpływa na jego długość ale przede wszystkim jakość.  Dobrze zaplanowany - a co ważniejsze zrealizowany odpoczynek - staje się  kluczowy do zdrowego i harmonijnego życia. A dotyczy to każdego jego wymiaru: fizycznego, intelektualnego a także duchowego. Nasze ciało **(SOMA)** potrzebuje regeneracji **(SNU)**. Zostało już naukowo udowodnione, że odpowiedniej jakości i długości sen to nie tylko sprawdzony sposób na odbudowę energii fizycznej, ale przede wszystkim przepis na zdrowie i długowieczność. Jak dla mnie są to argumenty, które warto wziąć po uwagę i poddać osobistej refleksji. 
 
-![](/images/wtis09sleep.jpg)
-
-Zdjęcie Nedim z Unsplash
-
-**Skoro na pytanie „kto chciałby żyć długo i …. zdrowo” odpowiedz jest oczywista, dlaczego zatem SEN jest tak mocno nie doceniony?&#32;&#32;**
+[](https://unsplash.com/@bretkavanaugh)**Skoro na pytanie „kto chciałby żyć długo i …. zdrowo” odpowiedz jest oczywista, dlaczego zatem SEN jest tak mocno nie doceniony?&#32;&#32;**
 
 Aby docenić rolę istotnej sprawy w naszym życiu musimy dostrzec korzyści oraz wymierne efekty naszego działania. Sen po za poczuciem "zmarnowanego" czasu w prosty sposób widoczności tych efektów nam nie daje. Można by tą sytuacje porównać do próby przekonania 18 latka, że zamiast wydatków na drobne przyjemności dzisiaj warto już odkładać pieniądze na przyszłą emeryturę. Nie jest to proste zadanie. W takiej sytuacji jedynym sposobem aby zrozumieć istotę i rolę snu trzeba do tego podejść naukowo. 
 
@@ -25,11 +21,19 @@ Dziś mamy już bardzo dobre zrozumienie roli snu w naszym życiu.  Udało się 
 
 Odpowiedź co się dzieje, jak śpimy może być bardzo zaskakująca. Dzieje się bardzo wiele - dzieje się magia! Nauka podzieliła sen na dwie kluczowe fazy. NREM nazywaną fazą powolnego ruchu gałek ocznych oraz REM nazywaną fazą szybkiego ruchu gałek ocznych. Te dwie fazy tworzą jeden cykl, który trwa ok 90 minut. Im więcej takich pełnych cykli podczas jednej nocy uda nam się  zrealizować tym więcej wymiernych korzyści na nas czeka . Minimalna ilość jaka jest rekomendowana każdej nocy to 4 cykle -  czyli minimum  6 godzin. Optymalnie - jeśli będzie ich 5 a nawet 6 - gdyż w każdym kolejnym cyklu wydłuża się magiczna faza REM. Zanim jednak dojdziemy do fazy REM każdy rozpoczyna faza NREM. Składa się ona z 4 różnych etapów. Etap 1, kiedy następuje obniżenie aktywności mózgu i tracimy kontakt z rzeczywistością. W drugim etapie zapadamy w sen i następuje wyłączenie świadomości. To na tym etapie snu wybudzenie jest największym szokiem dla organizmu i może przyprawić o ból głowy. Etap 3 to odpoczynek dla mózgu, kiedy zwalnia swoją pracę do minimum. Etap 4 to sen głęboki w którym cały organizm odpoczywa, spada ciśnienie, temperatura naszego ciała oraz napięcie mięśni. Zrobiło się tak sielsko i przyjemnie, ale wybudzenie na tym etapie snu ma podobne konsekwencje jak w przypadku drugiego etapu. Z tej przysłowiowej nirwany i relaksu mózg przechodzi do kluczowej fazy snu nazwanej przeze mnie magicznej, czyli REM. REM (ang. rapid eye movements) to wzrost aktywności mózgu, zaczyna się jego regeneracja i przygotowanie do trudów kolejnego dnia. Co ważne w tej fazie następuje również konsolidacja i usystematyzowanie przyswojonej wiedzy. Zamiast książki pod poduszką faza REM minimum 5 razy w ciągu nocy przyniesie zdecydowanie lepsze skutki. Na koniec wisienka na torcie. REM to czas marzeń sennych. Mam nadzieje, że dzięki harmonijnemu życiu w duchu _"filozofii"_ **WODA TLEN iSEN** twoje sny będą piękne i długie. 
 
+![](/images/wtis09brain.jpg)
+
+Zdjęcie Brat Kavenough z Unspleash
+
 **Co jednak, kiedy pojawiają się problemy ze snem i z magii REM niewiele zostaje. Jak to wpływa na nasze życie?**
 
 Niestety nie wpływa dobrze. Jest to konsekwencją postępujących zmian cywilizacyjnych, które  nie  wspierają dobrego wysypiania. Z każdym rokiem problem ten nadbiera coraz większej wagi. Mamy doczynienie  ze zjawiskiem, które ma różne podłoża. Z jednej strony mamy osoby, które "świadomie" podejmują decyzję o skracaniu snu  i celowo śpią za krótko, z drugiej strony jest wiele osób, które pomimo chęci przespania dobrej jakościowo nocy nie są w stanie tego zwyczajnie zrobić. Przyczyn jest wiele, ale to zaburzenia w wydzielaniu hormonu melatoniny są kluczowym podłożem problemów ze snem. Problemy z wydzielaniem melatoniny wynikają ze stresu, nierównomiernego trybu życia i braku higieny. Dodatkowo z wiekiem (niestety już po czterdziestym roku życia) szyszynka odpowiedzialna z produkcję tego hormonu w sposób naturalny zmniejsza jego produkcję. To może być początkiem problemów regulacji zegara biologicznego, który pomaga w stabilnym śnie. 
 
 Są bardzo proste zasady, aby wesprzeć zdrowy sen. Wywietrz sypialnie, a nawet jeśli to możliwe śpij z otwartym oknem, gdyż TLEN to dobry SEN. Nie jedz obfitych ciężkostrawnych posiłków po 18, głównie pij (jak widać WODA i TLEN wspierają SEN :-) Pamiętaj o mądrości ludowej, o które często przypomina mi moja żona Anetka - „jak sobie pościelisz tak się wyśpisz”. Dobry materac, poduszka oraz naturalna świeża pościel wraz dobraną do pory roku piżamą bardzo wspomagają dobry sen. Zadbaj o swój stan emocjonalny. Nie zasypiaj w konflikcie z domownikami, aby tak jak śpiewa Kwiat Jabłoni zacząć kolejny dzień „Od nowa”. Na koniec wrócę jednak do melatoniny naturalnego środka usypiającego i higieny cyfrowej. Transformacja do cywilizacji cyfrowej przynosi ze sobą efekt zwiększonej ekspozycji na niebieskie światło, które jest emitowane z wszelkiej maści ekranów. Niebieskie światło wpływa bardzo negatywnie na produkcję melatoniny. Jeśli nad tym nie zapanujesz, a zapanowanie nad uzależnieniem elektronicznym jest coraz trudniejsze, dzień po dniu twój sen będzie się pogarszał. Stosuj detoks elektroniczny na minimum 2h przed snem. To idealny czas na stoicki przegląd siebie, o którym już wspominałem oraz co polecam z całego serca czas na dobrą książkę do poduszki a nie pod.
+
+![](/images/wtis09book.jpg)
+
+Zdjęcie Buse Doga Ay na Unspleash
 
 **Dobra książka do poduszki, czyli jaka?**
 
