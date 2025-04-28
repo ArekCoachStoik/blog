@@ -16,7 +16,8 @@ collections:
     folder: 'content/post'
     create: true
     fields:
-      - { label: 'Title', name: 'title', widget: 'string' }
-      - { label: 'Publish Date', name: 'date', widget: 'datetime' }
-      - { label: 'Description', name: 'description', widget: 'string' }
-      - { label: 'Body', name: 'body', widget: 'markdown' }
+      - {label: 'Title', name: 'title', widget: 'string'}
+      - {label: 'Publish Date', name: 'date', widget: 'datetime'}
+      - {label: 'Description', name: 'description', widget: 'string'}
+      - {label: 'Featured image', name: 'featured_image', widget: 'image'}
+      - {label: 'Body', name: 'body', widget: 'markdown'}
