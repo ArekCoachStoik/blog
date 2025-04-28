@@ -2,7 +2,7 @@
 title: WTiS_09 -Regeneracja fizyczna
 date: 2025-04-26T07:34:00
 description: WODA TLEN I SEN
-featured_image: /images/arek.jpg
+featured_image: /images/wtis09sleep.jpg
 draft: false
 ---
 _„Sen jest to skracanie sobie życia w tym celu, aby go wydłużyć”- Tadeusz Kotarbiński_
