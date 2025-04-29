@@ -1,9 +1,9 @@
 ---
 title: WTiS_07 - Piramida żywienia
-date: 2025-02-12T01:41:00
+date: 2025-02-28T01:41:00
 description: WODA TLEN iSEN
-draft: false
 featured_image: /images/wtis07pyramid.jpg
+draft: false
 ---
 _"Człowiek nie żyje, aby jadł, ale je, aby żył" - Sokrates_
 
