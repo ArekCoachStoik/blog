@@ -23,9 +23,9 @@ Sprawa wydaje się dość prosta - aby docenić rolę  jakiejkolwiek istotnej sp
 
 Dziś mamy już bardzo dobre zrozumienie roli snu w naszym życiu.  Udało się wyodrębnić w czasie snu określone fazy i zdefiniowała rolę każdej z nich. Dodatkowo badania  określiły -  ile takich faz snu potrzebujemy do "dobrej" regeneracji fizycznej. Naukowcy odkryli  również, że sen odpowiada nie tylko za regenerację fizyczną ale w jego czasie odbywa się równolegle porządkowanie i przyswojenie wiedzy. Być może słyszeliście o wkładaniu książki pod poduszkę przed egzaminem - co miało pomóc w jeszcze lepszym przyswojeniu wiedzy. Ta książka pod poduszką poza ryzykiem, że będzie nam się niewygodnie spało nic nie dawała, ale sen i trwające podczas niego procesy już zdecydowanie tak. Jak zatem nie skorzystać ze wszystkich dobrodziejstw jakie wiążą się ze snem. SNEM, czyli teoretycznie najbardziej pasywną funkcją naszego organizmu, bez której najbardziej aktywna funkcja, czyli DZIAŁANIE nie ma szansy na swoją pełną realizację? 
 
-![](/images/wtis03sen2.jpg)
+![](/images/wtis09book.jpg)
 
-Zdjęcie Nubelson Fernandes na Unspleash
+Zdjęcie Buse Doga Ay na Unspleash
 
 **Czy aby na pewno SEN jest taki pasywny jak się nam wydaje. Czy na pewno zbyt wiele się wtedy nie dzieje?**
 
@@ -43,9 +43,9 @@ Niestety nie wpływa to dobrze. Zaczynamy zbierać  konsekwencje postępujących
 
 Są bardzo proste zasady, aby wesprzeć zdrowy sen. Wywietrz sypialnie, a nawet jeśli to możliwe śpij z otwartym oknem, gdyż TLEN to dobry SEN. Nie jedzenie obfitych ciężkostrawnych posiłków po 18, głównie pij (jak widać WODA i TLEN wspierają SEN :-) Pamiętaj o mądrości ludowej, o które często przypomina mi moja żona Anetka - „jak sobie pościelisz tak się wyśpisz”. Warto  zadbać o wygodną  poduszkę i kołdrę ubraną w naturalną świeżą pościel,  dobrać w zależności od pory roku wygodną piżamę i  to o czym mam nadzieję nie trzeba wspominać zadbać o higienę. To wszystko wpływa i wspomaga dobry jakościowo SEN. Dodatkowo zadbaj o swój stan emocjonalny. Nie zasypiaj w konflikcie z domownikami, aby tak jak śpiewa Kwiat Jabłoni zacząć kolejny dzień „Od nowa”. Na koniec wrócę jednak do melatoniny naturalnego środka usypiającego i higieny cyfrowej. Transformacja do cywilizacji cyfrowej przynosi ze sobą efekt zwiększonej ekspozycji na niebieskie światło, które jest emitowane z wszelkiej maści ekranów. Niebieskie światło wpływa bardzo negatywnie na produkcję melatoniny. Jeśli nad tym nie zapanujesz, a zapanowanie nad uzależnieniem elektronicznym jest coraz trudniejsze, dzień po dniu twój sen będzie się pogarszał. Stosuj detoks elektroniczny - higienę tym razem cyfrową - na minimum 2h przed snem. To idealny czas na stoicki przegląd siebie, o którym już wspominałem oraz co polecam z całego serca czas na dobrą książkę do poduszki a nie pod.
 
-![](/images/wtis03sen2.jpg)
+![](/images/wtis09book2.jpg)
 
-Zdjęcie Buse Doga Ay na Unspleash
+Zdjęcie Nguyen Dang Hoang Nhu na Unspleash
 
 **Dobra książka do poduszki, czyli jaka?**
 
