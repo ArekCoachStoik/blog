@@ -1,6 +1,6 @@
 ---
 title: WTiS_09 - Regeneracyjny sen
-date: 2025-04-29T07:17:00
+date: 2025-04-29T04:17:00
 description: WODA TLEN I SEN
 featured_image: /images/wtis09sleep.jpg
 draft: false
