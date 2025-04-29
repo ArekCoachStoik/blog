@@ -29,9 +29,14 @@ Zdjęcie Buse Doga Ay na Unspleash
 
 **Czy aby na pewno SEN jest taki pasywny jak się nam wydaje. Czy na pewno zbyt wiele się wtedy nie dzieje?**
 
-Odpowiedź co się dzieje, jak śpimy może być bardzo zaskakująca. Dzieje się bardzo wiele - dzieje się magia! Nauka podzieliła sen na dwie kluczowe fazy. NREM nazywaną fazą powolnego ruchu gałek ocznych oraz REM nazywaną fazą szybkiego ruchu gałek ocznych. Te dwie fazy tworzą jeden cykl, który trwa ok 90 minut. Im więcej takich pełnych cykli podczas jednej nocy uda się  zrealizować tym więcej wymiernych korzyści czeka na nas . Minimalna ilość jaka jest rekomendowana każdej nocy to 4 cykle -  czyli minimum  6 godzin. Optymalnie - jeśli będzie ich 5 a nawet 6 - gdyż w każdym kolejnym cyklu wydłuża się magiczna faza REM. Zanim jednak dojdziemy do fazy REM każdy rozpoczyna faza NREM. Składa się ona z 4 różnych etapów. 
+Odpowiedź co się dzieje, jak śpimy może być bardzo zaskakująca. Dzieje się bardzo wiele - dzieje się magia! Nauka podzieliła sen na dwie kluczowe fazy. NREM nazywaną fazą powolnego ruchu gałek ocznych oraz REM nazywaną fazą szybkiego ruchu gałek ocznych. Te dwie fazy tworzą jeden cykl, który trwa ok 90 minut. Im więcej takich pełnych cykli podczas jednej nocy uda się  zrealizować tym więcej wymiernych korzyści czeka na nas . Minimalna ilość jaka jest rekomendowana każdej nocy to 4 cykle -  czyli minimum  6 godzin. Optymalnie - jeśli będzie ich 5 a nawet 6 - gdyż w każdym kolejnym cyklu wydłuża się magiczna faza REM. Zanim jednak dojdziemy do fazy REM każdy cykl rozpoczyna faza NREM składająca się z 4 różnych etapów: 
 
-Etap 1, kiedy następuje obniżenie aktywności mózgu i tracimy kontakt z rzeczywistością. W 2 etapie zapadamy w sen i następuje wyłączenie świadomości. To na tym etapie snu wybudzenie jest największym szokiem dla organizmu i może przyprawić o ból głowy. Etap 3 to odpoczynek dla mózgu, kiedy zwalnia swoją pracę do minimum. Etap 4 to sen głęboki w którym cały organizm odpoczywa, spada ciśnienie, temperatura naszego ciała oraz napięcie mięśni. Zrobiło się tak sielsko i przyjemnie, ale wybudzenie na tym etapie snu jest również bardzo nie pożądane. Z tej przysłowiowej nirwany i relaksu mózg przechodzi do kluczowej fazy snu nazwanej przeze mnie magicznej, czyli REM. REM (ang. rapid eye movements) to wzrost aktywności mózgu, zaczyna się jego regeneracja i przygotowanie do trudów kolejnego dnia. Co ważne w tej fazie następuje również konsolidacja i usystematyzowanie przyswojonej wiedzy. Zamiast książki pod poduszką faza REM minimum 5 razy w ciągu nocy przyniesie zdecydowanie lepsze skutki. Na koniec wisienka na torcie. REM to czas marzeń sennych. Mam nadzieje, że dzięki harmonijnemu życiu w duchu _"filozofii"_ **WODA TLEN iSEN** twoje sny będą piękne i długie. 
+- Etap 1, kiedy następuje obniżenie aktywności mózgu i tracimy kontakt z rzeczywistością. 
+- Etap 2, kiedy zapadamy w sen i następuje wyłączenie świadomości. To na tym etapie snu wybudzenie jest największym szokiem dla organizmu i może przyprawić o ból głowy. 
+- Etap 3 to odpoczynek dla mózgu, kiedy zwalnia swoją pracę do minimum. 
+- Etap 4 to sen głęboki w którym cały organizm odpoczywa, spada ciśnienie, temperatura naszego ciała oraz napięcie mięśni. 
+
+Zrobiło się tak sielsko i przyjemnie, ale wybudzenie na tym etapie snu jest również bardzo nie pożądane. Z tej przysłowiowej nirwany i relaksu mózg przechodzi do kluczowej fazy snu nazwanej przeze mnie magicznej, czyli REM. REM (ang. rapid eye movements) to wzrost aktywności mózgu, zaczyna się jego regeneracja i przygotowanie do trudów kolejnego dnia. Co ważne w tej fazie następuje również konsolidacja i usystematyzowanie przyswojonej wiedzy. Zamiast książki pod poduszką faza REM minimum 5 razy w ciągu nocy przyniesie zdecydowanie lepsze skutki. Na koniec wisienka na torcie. REM to czas marzeń sennych. Mam nadzieje, że dzięki harmonijnemu życiu w duchu _"filozofii"_ **WODA TLEN iSEN** twoje sny będą piękne i długie. 
 
 ![](/images/wtis09brain.jpg)
 
@@ -63,7 +68,7 @@ Zdjęcie Nguyen Huy na Unspleash
 
 1.Sen odgrywa kluczową rolę w procesie **regeneracji oraz przyswajania wiedzy** - nie daj sobie wmówić, że to zmarnowany czas !
 
-2.**Higiena cyfrowa** (brak niebieskich ekranów) tak samo ważna jak higiena jamy ustnej przed snem.
+2.**Higiena cyfrowa** (brak niebieskich ekranów) przed snem tak samo ważna jak higiena jamy ustnej przed snem.
 
 3.Najlepszym zegarkiem do regulacji snu jest nasz **zegar biologiczny**
 
