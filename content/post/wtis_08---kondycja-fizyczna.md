@@ -7,11 +7,11 @@ draft: false
 ---
 _„Żyj tak, jakbyś miał umrzeć jutro. Ucz się tak, jakbyś miał żyć wiecznie” - Mahatma Gandhi_
 
-Budowanie **ENERGII INTELEKTUALNEJ (SOPHIA)** stanowi integralną część “filozofii” Woda, Tlen iSen. Cechą charakterystyczną naszej cywilizacji jest ciągłe zdobywanie nowej wiedzy i wykorzystywanie jej do rozwoju rasy ludzkiej zazwyczaj poparte słuszną intencją realizowania wspólnego dobra. Jeśli spojrzymy na karty historii z tym dobrem to bardzo różnie bywało, stąd przyjęło się niestety znane powiedzenie, że “dobrymi intencjami piekło jest wybrukowane”23. Niezależnie od osiąganych efektów ciągły rozwój jest faktem. Zakładam, że każdy się zgodzi z myślą,że kto się nie rozwija stoi w miejscu, czyli realnie tak naprawdę się cofa.
+Budowanie **ENERGII INTELEKTUALNEJ (SOPHIA)** stanowi integralną część “filozofii” Woda, Tlen iSen. 
 
-Rozwój jest wpisany w naszą naturę i bez niego mamy poczucie, że czegoś nam brakuje. Oznacza to, że dla każdego istotnym elementem do szczęśliwego i harmonijnego życia jest codzienne **BUDOWANIE** naszej wiedzy, która jest źródłem energii intelektualnej. W związku z tym starajmy się uczyć każdego dnia. Tylko takie podejście pozwala nadążać za zmieniającą się rzeczywistością, unikać poczucia odosobnienia czy wykluczenia. Można śmiało powiedzieć, że deficyty w obszarze ciągłego zdobywania wiedzy mają istotny wpływ na ubytki energii intelektualnej. Co za tym idzie nacałkowitą energię witalną (QI) jak również co za niesamowity zbieg okoliczności na nasze IQ24.
+Rozwój jest wpisany w naszą naturę i bez niego mamy poczucie, że czegoś nam brakuje. Oznacza to, że dla każdego istotnym elementem do szczęśliwego i harmonijnego życia jest codzienne **BUDOWANIE** naszej wiedzy, która jest źródłem energii intelektualnej. W związku z powyższym starajmy się uczyć każdego dnia. Tylko takie podejście pozwala nadążać za zmieniającą się rzeczywistością, unikać poczucia odosobnienia czy wykluczenia. Można śmiało powiedzieć, że deficyty w obszarze ciągłego zdobywania wiedzy mają istotny wpływ na ubytki energii intelektualnej. Co za tym idzie na całkowitą energię witalną (QI) jak również co za niesamowity zbieg okoliczności naszego wskaźnika inteligencji IQ.
 
-Lekceważenie potrzeby ciągłego uczenia jest bardzo niebezpieczne. Może ono przerodzić się w demencję, która może dotykać osoby, które nie są otwarte na poznawanie świata a swój proces uczenia zatrzymały na etapie edukacji szkolnej. Dlatego uczenie się oraz ciągłe poszerzanie wiedzy nie może być tylko domeną okresu edukacji. Realnie powinniśmy się uczymy się przez całe życie, a z wiekiem przykładać do tego coraz więcej uwagi. Z wiekiem rok po roku będzie erodować nasza aktywność umysłowa oraz nadążanie za coraz szybciej zmieniającą się rzeczywistością.
+Lekceważenie potrzeby ciągłego uczenia jest bardzo niebezpieczne. Może ono przyśpieszyć procesy starzenia oraz demencję. To ryzyka na które narażają się osoby, które nie są otwarte na poznawanie świata a swój proces uczenia zatrzymały na etapie edukacji szkolnej. Dlatego uczenie się oraz ciągłe poszerzanie wiedzy nie może być tylko domeną okresu edukacji. Realnie powinniśmy się uczymy się przez całe życie, a z wiekiem przykładać do tego coraz więcej uwagi. Z wiekiem rok po roku będzie erodować nasza aktywność umysłowa oraz nadążanie za coraz szybciej zmieniającą się rzeczywistością.
 
 ![page36image61824736](/images/ARCOS_logo.jpg)
 
@@ -19,23 +19,25 @@ Zdjęcie Nedim z Unsplash
 
 **_Edukacja to obowiązek, przywilej czy wyróżnienie_**
 
-Obowiązek szkolny kończy się wraz z ukończeniem szkoły podstawowej, czyli już w wieku \~16 lat. Dlaczego zatem uczymy się dłużej? Bardzo często nie mamy innego wyboru. Szkoła średnia a nawet studia są konsekwencją wymogów społecznych oraz bardzo często oczekiwań i ambicji rodziców. Z czasem jednak zaczynamy rozumieć, że coś co dla nas wydaje się obowiązkiem dla wielu może być przywilejem. Pomimo tego, że kaganek oświaty przez ostatnie dziesięciolecia zaczął niezależnie od pochodzenia czy majątku rozświetlać życie coraz większej ilości ludzi,**&#32;**wciąż wskaźnik analfabetyzmu na świecie wynosi \~ 14%26 co oznacza 1,6 mld ludzi nie umiejących czytać i pisać. Myśląc zatem o nauce mającej na celu zdobycie wyższego często prestiżowego wykształcenia wydaje się to być swoistym wyróżnieniem. Prawdziwe odkrycie pojawia się jednak dopiero z czasem. Dzisiaj już wiemy, że jeśli chcemy sprostać wyzwaniom i zrozumieć mechanizmy jakie już funkcjonują i będą funkcjonować w XXI wieku edukacja i zdobywanie wiedzy jest obowiązkiem a nie przywilejem czy wyróżnieniem. Obowiązkiem, który nie kończy się wraz z ukończeniem edukacji szkolnej, powinien trwać przez całe życie i przerodzić się w potrzebę ciągłego osobistego rozwoju.
+Obowiązek szkolny kończy się wraz z ukończeniem szkoły podstawowej, czyli już w wieku \~16 lat. Dlaczego zatem uczymy się dłużej? Bardzo często nie mamy innego wyboru. Szkoła średnia a nawet studia są konsekwencją wymogów społecznych oraz bardzo często oczekiwań i ambicji rodziców. Z czasem jednak zaczynamy rozumieć, że coś co dla nas wydaje się obowiązkiem dla wielu może być przywilejem. Pomimo tego, że kaganek oświaty przez ostatnie dziesięciolecia zaczął niezależnie od pochodzenia czy majątku rozświetlać życie coraz większej ilości ludzi, wciąż wskaźnik analfabetyzmu na świecie wynosi \~ 14% co oznacza 1,6 mld ludzi nie umiejących czytać i pisać. 
+
+Myśląc zatem o nauce mającej na celu zdobycie wyższego często prestiżowego wykształcenia wydaje się to być swoistym wyróżnieniem. Prawdziwe odkrycie pojawia się jednak dopiero z czasem. Dzisiaj już wiemy, że jeśli chcemy sprostać wyzwaniom i zrozumieć mechanizmy jakie już funkcjonują i będą funkcjonować w XXI wieku edukacja i zdobywanie wiedzy jest obowiązkiem a nie przywilejem czy wyróżnieniem. Obowiązkiem, który nie kończy się wraz z ukończeniem edukacji szkolnej, powinien trwać przez całe życie i przerodzić się w potrzebę ciągłego osobistego rozwoju.
 
 **_Rozwój osobisty nie taki oczywisty_**
 
 Z perspektywy “filozofii” WTiS **rozwój osobisty** odgrywa bardzo istotną rolę jako jeden z kluczowych „puzzli” szczęśliwego i harmonijnego życia. W obecnych czasach „rozwój osobisty” został zaszufladkowany jako przestrzeń dla motywacyjnych książek i mówców. Jak w każdej dziedzinie kluczem jest odpowiedni dobór autorów i treści co jest już nie lada wyzwaniem i wymaga dobrej orientacji.
 
-Aktualnie możliwości poszerzania swojej wiedzy są praktycznie nieograniczone. Do tego „rozwój osobisty” w dowolnej dziedzinie może być bezpłatny. Webinary, darmowe kursy online, podcasty czy przeróżne darmowe
+Aktualnie możliwości poszerzania swojej wiedzy są praktycznie nieograniczone. Do tego „rozwój osobisty” w dowolnej dziedzinie może być bezpłatny. Webinary, darmowe kursy online, podcasty czy przeróżne darmowe aplikacje pozwalają w oczywisty sposób zdobyć dowolną wiedzę. Czy jest to jednak takie oczywiste? 
 
-26 Wg danych UNESCO z 2018r
+Niestety nie! 
 
-![page38image61706512](blob:https://wodatlenisen.site/163be338-84cb-42bc-a00a-870b7cc55a72)
+Są trzy istotne zagrożenia. 
 
-38
+Pierwsze dotyczy dostępności do praktycznie niekończących się ilości informacji. To duże zagrożenie, gdyż bez dobrej selekcji i skupieniu na naprawdę potrzebnych informacjach będziemy się uczyć, uczyć i jeszcze raz uczyć -  bez końca. Wydawałoby się że to o to chodzi ale czy masz wrodzoną zdolności, aby zostać omnibusem? 
 
-aplikacje pozwalają w oczywisty sposób zdobyć dowolną wiedzę. Czy jest to jednak takie oczywiste?
+Drugie zagrożenie, na które chciałem wskazać to dostęp do tej wiedzy bardzo często jest "darmowy" O ile da się znaleźć bardzo dużo wartościowych treści praktycznie na każdy temat to zazwyczaj ich autorzy najbardziej istotną część przekazują już w komercyjny sposób. Trudno się dziwić taki biznes model.  Dlatego pamiętajmy, że to co w całości jest za darmo jest z reguły bardzo generyczne,  mocno ogólne czasami niestety jako. 
 
-Niestety nie. Są trzy istotne zagrożenia. Pierwsze dotyczy praktycznie niekończącej się wiedzy. To duże zagrożenie, gdyż bez dobrej selekcji i skupieniu na naprawdę potrzebnej informacji będziemy się uczyć, uczyć i jeszcze raz uczyć. Czy masz wrodzoną zdolności, aby zostać omnibusem27? Drugie zagrożenie, które wskazuje na to, że rozwój osobisty nie jest taki oczywisty to darmowa wiedza. O ile da się znaleźć bardzo dużo wartościowej treści to zazwyczaj ich autorzy najbardziej istotną część przekazują już w komercyjny sposób. To co w całości jest za darmo jest bardzo generyczne albo bardzo słabe. Trzecie wg mnie najważniejsze ryzyko to zachowanie odpowiedniego bilansu pomiędzy teorią i praktyką.
+Trzecie wg mnie najważniejsze ryzyko to zachowanie odpowiedniego bilansu pomiędzy teorią i praktyką.
 
 Jeśli skupimy się tylko na zdobywaniu wiedzy staniemy się mistrzami teorii, których w niedługim czasie w prosty sposób zastąpi sztuczna inteligencja. Jeśli wyeliminujemy powyższe zagrożenia pozostaje nam tylko znaleźć swój sposób na bycie systematycznym w swoim rozwoju osobistym i to zarówno w obszarze zawodowym jak i prywatnym. Z pomocą przychodzi metoda małych kroków. Chodzi o to aby każdego dnia zdobywać przysłowiowy 1% mądrości co doprowadza w dłuższym horyzoncie czasowym do stania się ekspertem w danej dziedzinie. Bycie ekspertem daje dużo satysfakcji oraz pozwala, aby Twój rozwój osobisty został wzmocniony DZIAŁANIEM (praktyką) a następnie ugruntowany REGENERACJĄ (relaksem). Ale czy nasz umysł jest wystarczająco wydajny i na to gotowy?
 
@@ -113,7 +115,6 @@ Poznanie siebie nie tylko dotyczy silnych stron, ważniejsze, być może naj
 **Co warto z tego rozdziału zapamiętać**
 
 1. Budowanie energii intelektualnej odbywa się poprzez nigdy **niekończącą** się edukację, która jest zarówno**przywilejem i** **obowiązkiem** oraz powinna dotyczyć przestrzeni zawodowej jak i prywatnej.
-
 2. W rozwoju osobistym jest wiele zagrożeń najważniejsza jednak umiejętność **dobrej selekcji** **źródeł wiedzy**, gdyż
 
 48
@@ -121,9 +122,8 @@ Poznanie siebie nie tylko dotyczy silnych stron, ważniejsze, być może naj
 tylko w ten sposób możemy być postrzegani jako **eksperci** w danej dziedzinie.
 3 Obok kompetencji twardych postaw na miękkie kompetencje przyszłości: **krytyczne myślenie, komunikację, kooperację i kreatywność (4K).**
 
-4. **Finanse osobiste** to zaniedbana a jednocześnie kluczowa kompetencja dzisiejszych czasów.
+4. **Finanse osobiste** to zaniedbana a jednocześnie kluczowa kompetencja dzisiejszych czasów.
 5. Nasz **mózg** to piękny umysł, który potrzebuje być zajęty i uczyć się nowych rzeczy. Dzięki temu będzie rozwijał siecineuronowe oraz działał na swojej **optymalnej wydajności**. 6. **Nie musisz** nadążyć za tempem zmian, gdyż jest ono przeogromne. Znajdź coś co Ciebie zainteresuje, **poznaj swoje silne strony** i spraw, ‘że zdobywanie wiedzy wprowadzi Cię w stan „**flow**”.
-
-7. Do tego musisz **poznać siebie** dzięki wygospodarowaniu czasu z samym sobą.
+6. Do tego musisz **poznać siebie** dzięki wygospodarowaniu czasu z samym sobą.
 
 ![](/images/WTiS_piktogram.png)
