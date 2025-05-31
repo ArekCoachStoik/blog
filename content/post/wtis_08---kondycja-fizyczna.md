@@ -1,11 +1,11 @@
 ---
-title: WTiS_09 -Regeneracja fizyczna
-date: 2025-04-26T07:34:00
+title: WTiS_10 - Rozwój osobisty
+date: 2025-05-31T06:04:00
 description: WODA TLEN I SEN
-featured_image: /images/wtis09sleep.jpg
+featured_image: /images/WTiS_10.jpg
 draft: false
 ---
-_„Sen jest to skracanie sobie życia w tym celu, aby go wydłużyć”- Tadeusz Kotarbiński_
+_„Żyj tak, jakbyś miał umrzeć jutro. Ucz się tak, jakbyś miał żyć wiecznie” - Mahatma Gandhi_
 
 Skupmy się na kolejnym filarze  _"filozofii"_  **WODA, TLEN i i SEN** czyli **REGENERACJI** a dokładniej zbawczemu wpływowi snu na naszą regenerację.
 
