@@ -79,7 +79,6 @@ Są trzy krytyczne pytania, na które trzeba odpowiedzieć, aby odpowiedn
 
 **1/SILNE STRONY** - w czy już jestem dobry, co mnie interesuje jakie działania wprowadzają mnie w stan „flow”
 
-
 **2/MEGA TRENDY** - czy rozumiem jakie są aktualnie najważniejsze trendy w jakich rozwija się ludzkość (AI, bioinżynierią, ekologii wrazodnawialnymi źródłami energii, starzenie się społeczeństw) i który z nich jest najbliższy moim silnym stronom/zainteresowaniom
 
 **3/SPRAWCZOŚĆ** - czy wiem, jak zarządzać priorytetami, realizacją celów i asertywnym mówieniem **„nie”** na wszystkie rozpraszacze
@@ -91,8 +90,6 @@ Gdybyś jednak szukał uniwersalnych umiejętności jutra, nad którymi wart
 W obecnym materialistycznym i konsumpcyjnym świecie obok wskazanych przez Harariego kompetencji miękkich jest pewien obszar „twardej” wiedzy, który jest krytyczny i jednocześnie bardzo mocno zaniedbywany przez obecną edukację szkolną. Są to finanse osobiste. Czy tego chcesz czy nie wiedza z zakresu zarządzania finansami stoi u podstaw harmonii w twoim życiu. Braki w tym obszarze są zazwyczaj przyczyną poważnych kłopotów niezależne od tego jak wysokie są nasze zarobki. Przykład legendy boksu Mika Tysona jest doskonały. Ten znany bokser w 2003 roku ogłosił bankructwo przyznając, że ma 34 miliony dolarów długu przy jednoczesnych przychodach z reklam i gaż bokserskich, które przyniosły mu wcześniej 400 milionów dolarów przychodu. Zdecydowanie jego finanse osobiste nie były tak silne jak prawy i lewy sierpowy. Zrozumienie podstawowego mechanizmu, że różnica pomiędzy naszymi przychodami, a kosztami jest źródłem do mądrego inwestowania stanowi fundament finansów osobistych. Ta podstawowa wiedza w długim horyzoncie czasu może doprowadzić nas do „wolności finansowej” opisanej w iście amerykańskim stylu w książce „Bogaty ojciec, biedny ojciec” przez Roberta Kiyosakiego38. Opinie w przypadku tego typu książek są różne nie mniej wiedza z zakresu finansów osobistych jest bezcenna. Niestety jak wspomniałem wcześniej daleko jej szukać w szkole. Ja osobiście każdej osobie, która poszukuje wiedzy w obszarze finansów osobistych polecam polski podcasting i self-publishing, który w ostatnim czas bardzo ciekawie rozwinął się na naszym rynku. Tacy propagatorzy finansów osobistych jak Marcin Iwuć (Podcast – „Finanse Bardzo Osobiste” + książka „Finansowa Forteca”) czy Michał Szafrański (Blog „Jak oszczędzać pieniądze” + książka „Finansowy Ninja”) to sprawdzone i bardzo wartościowe adresy, aby zmierzyć się z wyzwaniem zapanowania nad swoimi finansami.
 
 Gotowy na wyzwania, budowanie nowych kompetencji oraz poznawanie uroków nowego świata? Pamiętaj tylko aby poznawanie świata rozpocząć od poznania samego siebie!
-
-
 
 Zdjęcie Nedim z Unsplash
 
