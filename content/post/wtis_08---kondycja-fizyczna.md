@@ -29,17 +29,21 @@ Z perspektywy “filozofii” WTiS **rozwój osobisty** odgrywa bardzo istotn
 
 Aktualnie możliwości poszerzania swojej wiedzy są praktycznie nieograniczone. Do tego „rozwój osobisty” w dowolnej dziedzinie może być bezpłatny. Webinary, darmowe kursy online, podcasty czy przeróżne darmowe aplikacje pozwalają w oczywisty sposób zdobyć dowolną wiedzę. Czy jest to jednak takie oczywiste? 
 
-Niestety nie! 
+**Niestety nie !**
 
-Są trzy istotne zagrożenia. 
+Są trzy istotne zagrożenia: 
 
-Pierwsze dotyczy dostępności do praktycznie niekończących się ilości informacji. To duże zagrożenie, gdyż bez dobrej selekcji i skupieniu na naprawdę potrzebnych informacjach będziemy się uczyć, uczyć i jeszcze raz uczyć -  bez końca. Wydawałoby się że to o to chodzi ale czy masz wrodzoną zdolności, aby zostać omnibusem? 
+Pierwsze dotyczy **dostępności do praktycznie niekończących się ilości informacji.** To duże zagrożenie, gdyż bez dobrej selekcji i skupieniu na naprawdę potrzebnych informacjach będziemy się uczyć, uczyć i jeszcze raz uczyć -  bez końca. Wydawałoby się że to o to chodzi ale czy masz wrodzoną zdolności, aby zostać omnibusem? 
 
-Drugie zagrożenie, na które chciałem wskazać to dostęp do tej wiedzy bardzo często jest "darmowy" O ile da się znaleźć bardzo dużo wartościowych treści praktycznie na każdy temat to zazwyczaj ich autorzy najbardziej istotną część przekazują już w komercyjny sposób. Trudno się dziwić taki biznes model.  Dlatego pamiętajmy, że to co w całości jest za darmo jest z reguły bardzo generyczne,  mocno ogólne czasami niestety jako. 
+Drugie zagrożenie, na które chciałem wskazać to **dostęp do tej wiedzy bardzo często jest "darmowy"** O ile da się znaleźć bardzo dużo wartościowych treści praktycznie na każdy temat to zazwyczaj ich autorzy najbardziej istotną część przekazują już w komercyjny sposób. Trudno się dziwić taki biznes model - nic nie ma za darmo. Dlatego pamiętajmy, że to co w całości jest za darmo jest z reguły bardzo generyczne,  mocno ogólne czasami niestety jakościowo bardzo słabe. Dodatkowo w przypadku **"darmowych treści"** bardzo często płacimy inną walutą niż pieniądze czyli **"naszą uwagą"**.
 
-Trzecie wg mnie najważniejsze ryzyko to zachowanie odpowiedniego bilansu pomiędzy teorią i praktyką.
+Trzecie zagrożenie - według mnie najważniejsze - to ryzyko **brak zachowanie odpowiedniego bilansu pomiędzy teorią i praktyką.** Jeśli skupimy się tylko na zdobywaniu wiedzy staniemy się mistrzami teorii, których w niedługim czasie w prosty sposób zastąpi sztuczna inteligencja. Praktyka zdobytej wiedzy powinna stanowić 80% czasu jaki poświęcamy na zdobycie nowej umiejętności - nie lekceważmy tego.
 
-Jeśli skupimy się tylko na zdobywaniu wiedzy staniemy się mistrzami teorii, których w niedługim czasie w prosty sposób zastąpi sztuczna inteligencja. Jeśli wyeliminujemy powyższe zagrożenia pozostaje nam tylko znaleźć swój sposób na bycie systematycznym w swoim rozwoju osobistym i to zarówno w obszarze zawodowym jak i prywatnym. Z pomocą przychodzi metoda małych kroków. Chodzi o to aby każdego dnia zdobywać przysłowiowy 1% mądrości co doprowadza w dłuższym horyzoncie czasowym do stania się ekspertem w danej dziedzinie. Bycie ekspertem daje dużo satysfakcji oraz pozwala, aby Twój rozwój osobisty został wzmocniony DZIAŁANIEM (praktyką) a następnie ugruntowany REGENERACJĄ (relaksem). Ale czy nasz umysł jest wystarczająco wydajny i na to gotowy?
+Jeśli wyeliminujemy powyższe zagrożenia pozostaje nam tylko znaleźć swój sposób na bycie systematycznym w swoim rozwoju osobistym - zarówno w obszarze zawodowym jak i prywatnym. Aby sprostać temu zadaniu  z pomocą przychodzi metoda małych kroków. Jej esencją jest zdobywanie każdego dnia tylko 1% potrzebnej wiedzy. To niewiele ale dzięki systematyce i podziałowi na drobne fragmenty  doprowadza w dłuższym horyzoncie czasowym do skonsolidowania i zdobycia całej niezbędnej wiedzy. Bycie lub nawet tylko poczucie bycia "ekspertem" daje dużo satysfakcji . 
+
+Pozwól, aby Twój rozwój osobisty został wzmocniony DZIAŁANIEM (praktyką) a następnie ugruntowany REGENERACJĄ (relaksem) a Twoja Energia Intelektualna nabierze innego wymiaru. 
+
+ Ale czy nasz umysł jest wystarczająco wydajny i na to gotowy?
 
 **_Piękny umysł,_** **_ale czyli wydajny_**
 
