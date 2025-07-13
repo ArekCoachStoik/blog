@@ -80,6 +80,10 @@ Stoicyzm aktualnie na świecie, ale również w Polsce przeżywa swój rene
 
 Każdy powinien znaleźć swój sposób na rozwijanie tego obszaru, gdyż rozwój energii duchowej to sfera bardzo intymna i indywidualna. W świecie, w którym następuje gwałtowana erozja wartości oraz autorytetów społecznych i religijnych posiadane kompasu, co jest dobre, a co złe wydaj się być niezbędne. Dodatkowo w świecie ciągłego przeboćcowania „priorytetami” wzrasta zjawisko prokrastynacji, czyli odkładania na później. Bardzo często odkładania rzeczy ważnych, trudnych, ale fundamentalnych dla zachowania równowagi i poczucia szczęścia. W tym właśnie pomaga kręgosłup moralny, który jest w stanie obronić nas przed ciężarem codzienności i pomóc w podjęciu decyzji o tym co **_ważne i pilne._** 
 
+![](/images/brett-jordan-7u2HFQnNcx4-unsplash.jpg)
+
+Zdjęcia Brett Jordan z Unsplash
+
 Zanim przejdziemy dalej zachęcam do autorefleksji na tym co przydatne i nieprzydatne w Twoim życiu. Zadaj sobie pytanie „Jak często masz poczucie ze „zmarnowałeś” czas skupiając się na rzeczach, które Ci się do niczego nie przydały, były nieważne a już na pewno nie pilne? Brzmi znajomo? Mi również często się to zdarzało i miałem poczucie bezpowrotnego utracenia najcenniejszej rzeczy jaką mam i której nikt nie jest w stanie mi oddać - czyli „**mojego”** czasu. Nie jest to droga do harmonii, dobrostanu i poczucia szczęścia.
 
 Umiejętność określenia co znajduje się u Ciebie w kwadracie **_ważne/pilne_** nie jest takie proste i wymaga ciągłej pracy nad swoimi wartościami oraz umiejętnego podzielenia spraw na rzeczy od nas **_zależne_** (na które mamy wpływ) i **_niezależne_** (gdzie tego wpływu „nie mamy”). Stoicyzm bardzo pomaga w tym obszarze, gdyż właśnie to rozróżnienie stanowi fundament tej filozofii i pomaga w skupieniu się na rzeczach pilny, ważnych przydatnych, ale przede wszystkim na takich, na które mamy wpływ.
