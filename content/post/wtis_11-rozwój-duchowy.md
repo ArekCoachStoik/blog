@@ -2,7 +2,7 @@
 title: WTiS_11 - Rozwój duchowy
 date: 2025-06-28T07:22:00
 description: WODA TLEN I SEN
-featured_image: /images/WTiS_10.jpg
+featured_image: /images/bao-menglong-RsL2ncSkYB0-unsplash.jpg
 draft: false
 ---
 **_„_**_Lekarze trzymają skalpele i inne narzędzia pod ręką na wypadek nagłej potrzeby. Trzymaj też ty w pogotowiu swoją filozofię”_
@@ -16,9 +16,9 @@ Nad istotą i pochodzeniem zła od lat prowadzane są rozważania i badani
 
 Pozostawmy jednak na boku psychologiczne i filozoficzne rozważania. Intuicja podpowiada, że zło na pierwszy rzut oka zazwyczaj wygląda atrakcyjnie, wciągająco i nie oczekuje od człowiek zbyt dużego wysiłku. W odróżnieniu od zła natura dobra jest taka, że potrzebuje wewnętrznej dyscypliny, która często wymaga istotnego wysiłku. I tu pojawia się główny kłopot, gdyż jak już wiemy nasz mózg bardzo wysiłku nie lubi. Jaka jest więc natura człowieka - być dobrym czy złym (pracowitym czy leniwym)??
 
-![page36image61824736](/images/wtis10school.jpg)
+![page36image61824736](/images/diogo-cardoso-0QiPcRLCpe0-unsplash.jpg)
 
-Zdjęcie Joseph Agboola z Unsplash
+Zdjęcia Diogo Cardoso z Unsplash
 
 **Natura człowieka, wychowanie i dorastanie**
 
@@ -29,6 +29,10 @@ Czy jednak samo wychowanie wystarczy. Niestety nie. Z czasem stajemy się auto
 Zjawisko to zdiagnozował już Sokrates, który twierdził ze człowiek postępuje zawsze w przekonaniu ze robi coś dobrego i nigdy celowo nie czyni zła. Jeśli dopuszcza się zła wynika z jego niewiedzy bądź wyuczenia. W dzisiejszych czasach tę ideę nazywamy intelektualizmem etycznym Sokratesa. Ten wielki filozof następnie wskazywał, że dopiero praca nad przekonaniami i realne pokazanie, że jest się w błędzie, może spowodować zmianę w postępowaniu czy rozumowaniu. Według jego myśli jest to swoistego rodzaju poczęcie nowej myśli, która prowadzi do dobra. Stąd również pochodzi sokratejska szkoła rozmowy nazywana majeutyczną(położniczą), której zadaniem było takie poprowadzenie rozmowy, aby się ta myśl w głowie rozmówcy urodziła jednocześnie wyjaśniając, gdzie znajdował się błąd w rozumowaniu.Sokrates nie tylko dał podwaliny do istoty coachingu, ale przede wszystkim wierzył, że jest to droga do osiągnięcia najwyższego dobra. Dobra, które utożsamiał z najdoskonalszym stanem.
 
 **Summum Bonum,** **czyli najwyższe dobro**
+
+![](/images/andreas-gabler-XEW_Wd4240c-unsplash.jpg)
+
+Zdjecie Andreas Gabler z Unsplash
 
 Pojęciu najwyższego dobra (łac: summum bonum) warto poświęcić kolejne fragmenty tego rozdziału. Jeśli przez sam podtytuł czujesz się zagubiony zupełnie się nie martw. Najbardziej znana maksyma Sokratesa to “wiem, że nic nie wiem”. Ważne jest to, czy jest w tobie chęć poznania i zrozumienia. Summum bonum opiera się o zestaw najważniejszych wytycznych moralnych nazywanych cnotami, które jako myśli sokratejskie zostały opisane przez Platona i określone jako cnoty naczelne w V w p.n.e. Zostały następnie rozwinięte przez Stoików w III w p.n.e. zyskując nazwę cnót stoickich, a ostatecznie już bliżej naszym czasom zostały zaadoptowane przez chrześcijaństwo pod nazwą cnót kardynalnych.
 
@@ -81,15 +85,13 @@ W ostatnim fragmencie bardzo się skupiłem and tym, aby uwypuklić fakt, że
 **Co warto z tego rozdziału zapamiętać**
 
 1. Budowanie energii duchowej poprzez bycie **„dobrym”** oraz poszukiwanie **„najlepszej mentalnej wersji siebie”** jest kolejnym niezbędnym filarem budowania energii witalnej.
-
 2. Dla energii duchowej nie ma znaczenia jest, czy jesteś osobą religijną, praktykującym fanem filozofii, agnostykiem
 
 66
 
 czy ateistą. Ważne jest czy stosujesz w swoim życiu wartości, które pomagają Ci odróżnić **dobro od zła**.
-3. Wartości to **swoisty kręgosłup moralny,** który pozwala odpowiedzieć na kluczowe pytanie: “co w Twoim życiu **pilne i ważne?”**.
 
+3. Wartości to **swoisty kręgosłup moralny,** który pozwala odpowiedzieć na kluczowe pytanie: “co w Twoim życiu **pilne i ważne?”**.
 4. Wybór co jest ważne i pilne w Twoim życiu **zależy** tylko od Ciebie, a udaje się go dokonać dzięki dokładnemu**poznaniu siebie**.
 5.**Materializm i konsumpcjonizm** odwracają uwagę od sfery duchowej, nie daj się zmanipulować.
-
 5. Nie da się zbudować energii duchowej bez **poświęcania na nią codziennie czasu**, nie zaniedbuj tego.
