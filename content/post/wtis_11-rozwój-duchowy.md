@@ -44,23 +44,23 @@ Czy jednak samo wychowanie wystarczy. Niestety nie. Z czasem stajemy się auto
 
 Zjawisko to zdiagnozował już Sokrates, który twierdził ze człowiek postępuje zawsze w przekonaniu ze robi coś dobrego i nigdy celowo nie czyni zła. Jeśli dopuszcza się zła wynika z jego niewiedzy bądź wyuczenia. W dzisiejszych czasach tę ideę nazywamy intelektualizmem etycznym Sokratesa. Ten wielki filozof następnie wskazywał, że dopiero praca nad przekonaniami i realne pokazanie, że jest się w błędzie, może spowodować zmianę w postępowaniu czy rozumowaniu. Według jego myśli jest to swoistego rodzaju poczęcie nowej myśli, która prowadzi do dobra. Stąd również pochodzi sokratejska szkoła rozmowy nazywana majeutyczną(położniczą), której zadaniem było takie poprowadzenie rozmowy, aby się ta myśl w głowie rozmówcy urodziła jednocześnie wyjaśniając, gdzie znajdował się błąd w rozumowaniu.Sokrates nie tylko dał podwaliny do istoty coachingu, ale przede wszystkim wierzył, że jest to droga do osiągnięcia najwyższego dobra. Dobra, które utożsamiał z najdoskonalszym stanem.
 
-**Summum Bonum,** **czyli najwyższe dobro**
-
 ![](/images/andreas-gabler-XEW_Wd4240c-unsplash.jpg)
 
 Zdjecie Andreas Gabler z Unsplash
+
+**Summum Bonum,** **czyli najwyższe dobro**
 
 Pojęciu **najwyższego dobra** (łac: summum bonum) warto poświęcić kolejne fragmenty tego wpisu. Jeśli przez sam podtytuł czujesz się zagubiony zupełnie się nie martw. Najbardziej znana maksyma Sokratesa to “wiem, że nic nie wiem”. Ważne jest to, czy jest w tobie chęć poznania i zrozumienia. **Summum bonum** opiera się o zestaw najważniejszych wytycznych moralnych nazywanych cnotami, które jako myśli sokratejskie zostały opisane przez Platona i określone jako cnoty naczelne w V w p.n.e. Zostały następnie rozwinięte przez Stoików w III w p.n.e. zyskując nazwę cnót stoickich, a ostatecznie już bliżej naszym czasom zostały zaadoptowane przez chrześcijaństwo pod nazwą cnót kardynalnych.
 
 Wróćmy jednak do korzeni. Sokratejska cnota była utożsamiana z wiedzą. Życie w cnocie oznaczało życie w „najlepszej wersji siebie”. Słowo cnota w obecnych czasach zostało wypaczone i wiele osób patrzy na nie z przymrużeniem oka. Czy na życie „w najlepszej wersji siebie” warto patrzyć szyderczo i nie poważnie? Zapewne nie, dlatego ze stoicką cnotą odwagi poszukajmy jakie z nich mogłyby stanowić solidny fundament naszego kręgosłupa moralnego. Chodzi o taki fundament, aby żadne **nagłe przeciwności** losu nie zachwiały/skrzywiły naszej postawy duchowej i abyśmy mogli dalej stać prosto. W tym momencie zacytuje słowa Marka Aureliusza, które doskonale oddają istotę rzeczy „stoisz prosty albo cię prostują”, Słowa te należy rozumieć, że albo my sami, świadomie, będziemy postępować zgodnie z pewnymi zasadami opartymi o dobrze zbudowany kręgosłup moralny, albo życie, w ten czy inny sposób skoryguje naszą postawę i nas wyprostuje. Chyba jednak lepiej stać prosto niż być prostowanym, ale jak zbudować swój kręgosłup moralny?
 
-**Na czym zbudować kręgosłup moralny**
-
-Mam nadzieje ze już nie masz wątpliwości jak istotne jest zbudowanie kręgosłupa moralnego. Podążając za Sokratesem można go zbudować dzięki wiedzy. Upraszczając “wiedza to cnota i vice versa”. W poszukiwaniu tej wiedzy przestudiowałem zarówno różne nurty filozoficzne jak i zasady oraz wytyczne najważniejszych religii. Niesamowite bądź nie jest to, że w wielu przeplatają się te same wartości, czasami uzupełniane o dodatkowe elementy.
-
 ![](/images/tsunami-green-l7UpMd5Jqsk-unsplash.jpg)
 
 Zdjęcia Tsunami Green z Unsplash
+
+**Na czym zbudować kręgosłup moralny**
+
+Mam nadzieje ze już nie masz wątpliwości jak istotne jest zbudowanie kręgosłupa moralnego. Podążając za Sokratesem można go zbudować dzięki wiedzy. Upraszczając “wiedza to cnota i vice versa”. W poszukiwaniu tej wiedzy przestudiowałem zarówno różne nurty filozoficzne jak i zasady oraz wytyczne najważniejszych religii. Niesamowite bądź nie jest to, że w wielu przeplatają się te same wartości, czasami uzupełniane o dodatkowe elementy.
 
 Ostatecznie najbardziej znanymi i powtarzającymi się niezależnie od okresu, religii czy nurtów filozoficznych cnotami moralnymi są:
 
