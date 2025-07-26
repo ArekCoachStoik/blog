@@ -1,5 +1,5 @@
 ---
-title: WTiS_11 - Rozwój duchowy
+title: WTiS_12 - Praca czy(li) pasja
 date: 2025-06-28T07:22:00
 description: WODA TLEN I SEN
 featured_image: /images/bao-menglong-RsL2ncSkYB0-unsplash.jpg
