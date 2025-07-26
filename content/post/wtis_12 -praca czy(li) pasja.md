@@ -1,16 +1,14 @@
 ---
 title: WTiS_12 - Praca czy(li) pasja
-date: 2025-06-28T07:22:00
+date: 2025-07-26T08:20:00
 description: WODA TLEN I SEN
-featured_image: /images/bao-menglong-RsL2ncSkYB0-unsplash.jpg
+featured_image: /images/audrey-shattuck-N56xTRzHYhQ-unsplash.jpg
 draft: false
 ---
 _„Wybierz pracę, którą kochasz_
 _i nie przepracujesz ani jednego dnia więcej w swoim życiu”_ _Konfucjusz_
 
 Przechodzimy teraz do obszaru “filozofii” Woda Tlen iSen, który odpowiada za proces tworzenia. Do tego potrzebne jest aktywne **DZIAŁANIE (TLEN)** i mądrość, czyli sprawny **INTELEKT (SOPHIA),** nazywany dalej przeze mnie **ENERGIĄ INTELEKTUALNĄ**. Postanowiłem, że zacznę ten rozdział cytatem, który brzmi mocno kontrowersyjnie,gdyż dla wielu osób praca kojarzy się ze smutnym
-
-![page85image62065712](blob:https://wodatlenisen.site/47864a6f-5c2c-4607-aa82-16a3742f91a5)
 
 65 Konfucjusz, zw. także Kongfuzi [‘mistrz Kong’], (ur. 28 IX 551, Zou, zm. 479 p.n.e.) chiński filozof i myśliciel społeczno-polityczny; twórca systemu filozoficznego i moralno-społecznego, zwanego konfucjanizmem. (Encyklopedia PWN)
 
@@ -185,11 +183,9 @@ amerykański przedsiębiorca, autor poradników inwestor, anioł biznesu i do
 
 1. Działanie energii intelektualnej objawia się **w pracy z** **pasją**.
 2. Dzięki pracy z pasją dużo łatwiej jest nam zostawić po sobie **twórczy ślad**.
-
 3. Mur pomiędzy pasja a rutynową pracą jest w naszej głowie i tylko my możemy go **przebić działając z odwagą**.4.Życie bez pracy to **mit**, który zazwyczaj źle się się kończy. 5. Prawdziwa pasja zaczyna się tam, gdzie **stan „flow”**, nie przegap go.
-
-6. Jak wiele może być twórczego śladu **w tworzenie treści** dla siebie i innych może zaskoczyć samego piszącego.
-7. Nic nie wydarzy się bez **wysiłku** jest on niezbędny i w pełni zintegrowany z twórczym działaniem.
+4. Jak wiele może być twórczego śladu **w tworzenie treści** dla siebie i innych może zaskoczyć samego piszącego.
+5. Nic nie wydarzy się bez **wysiłku** jest on niezbędny i w pełni zintegrowany z twórczym działaniem.
 
 ..........................................
 
