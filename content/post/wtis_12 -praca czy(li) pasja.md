@@ -45,6 +45,10 @@ Ponieważ to zależy tylko od nas. Mamy na to pełny 100% wpływ, tylko od n
 
 W tym kontekście polecam bardzo inspirujący  film Dzień świstaka” Harolda Ramisa, który dotyka tematu zmiany postawy w kontekście monotonnie powtarzającej się codzienności. Główny bohater tego filmu Phil wpada w pętle czasu i przeżywa ten sam dzień wiele razy. Staje przed jedyną w swoim rodzaju możliwością (pułapką), aby każdy kolejny, w rzeczywistości filmowej ten sam dzień przeżyć w inny, może trochę lepszy sposób. Na początku jest to traumatyczne doświadczenie jednak ostatecznie następuje głęboka metamorfoza głównego bohater, który staje się człowiek empatycznym i szczęśliwym.
 
+![](/images/brett-achurch-qlJp1IaOEvs-unsplash.jpg)
+
+Zdjecie Brett Achurch z Unspleash
+
 Jestem pewien, że każdy z nas może przejść taka zmianę, która rozbije mur do świata, w którym to co robimy jest wartościowe, pracujemy z pasją pozostawiając twórczy ślad i żyjemy w harmonii, poczuciu sensu i szczęścia. Tutaj pojawia się kluczowa kwestia. Zmiany nie tylko trzeba chcieć, ale mieć odwagę ją wprowadzić w życie. Wszystko jest w naszej głowie i niezależnie od tego co robimy możemy nadać temu głęboki sens. Kluczową role sensu w walce z pojawiającymi się przeciwności losu opracował austriacki psycholog Victor Frankl, twórca logo terapii. Bardzo dokładnie opisał on rolę **„sensu”** w obliczu tragedii holokaustu w swojej bestsellerowej książce „Człowiek w poszukiwaniu sensu”. Wynika z niej, że poczucie sensu odgrywa krytyczną rolę w życiu każdego z nas, a w jego konkretnym wypadku pozwoliło uratować życie w rzeczywistości obozu śmierci. Według Frankla poczucie sensu uzyskujemy tylko biorąc pełną odpowiedzialności za nasze decyzje.
 
 Sprowadzając to do obszaru pracy czy pasji warto poszukać rzeczy, które nas pasjonują i dają poczucie sensu, czyli takie w których to my decydujemy i bierzemy za ich realizację pełną odpowiedzialność. Jeśli chcemy to osiągnąć potrzebne są odważne działania, które napędzane są chęcią zmiany. Czy jednak podejmowanie odważnych decyzji nawet jeśli są napędzane chęcią zmiany przychodzi nam z łatwością?
@@ -56,6 +60,10 @@ Zacznę od jednego z moich ulubionych acz przewrotnych cytatów Henrego Forda
 Nie muszę chyba już nikogo przekonywać, że warto być odważnym i podjąć działanie mające na celu zainicjowanie procesu zmiany. Chciałbym w tym miejscu, jednakże uspokoić, że odważne działanie wcale nie musi oznacza gwałtownych zmian. Za gwałtownością stoi właśnie brawura. 
 
 Czyli czym tak na prawdę jest odwaga? 
+
+![](/images/micah-sammie-chaffin-Zdf3zn5XXtU-unsplash.jpg)
+
+Zdjecie Micah Sammie z Unspleash
 
 Tutaj z pomocą ponownie wrócę do moich ulubionych Stoików. Jak wspominałem w trzecim rozdziale mojej książki ODWAGA to jedna 4 najważniejszych cnót stoickich. Z definicji oznacza ona **zaangażowanie, twórczy wysiłek oraz wewnętrzna pracę nad sobą**. Zwróć uwagę ze już w samej definicji odwagi jest _twórczy wysiłek_. Powiedzenie sobie „jestem odważny” jest początkiem na drodze do pozytywnej zmiany i prostej drogi, aby pozostawić po sobie **twórczy ślad**. Jeśli do tego dołożymy systematyczną "_pracę nad sobą"_ proces twórczej odważnej zmiany rozpocznie się krok po kroku. Tempo powinniśmy dostosować do naszej tolerancji na ryzyko, nie ma potrzeby nadmiernego pośpiechu. Niezależnie od tempa pracy nad sobą zawsze warto mieć pod ręką swój własny sposób na utrzymywanie silnej motywacji do zmiany, aby nasza tolerancja na ryzyko nie usadziła nas ponownie w wygodnym fotelu codzienności. Zasiąść tam jest bardzo prosto stąd skuteczna forma ciągłej motywacji jest kluczem do sukcesu.
 
@@ -69,11 +77,15 @@ Skoro już wiemy, że warto pracować i to najlepiej z pasją to pojawia sie
 
 Jeśli szukasz inspiracji czy w twojej profesji da się pracować z pasją łatwo możesz ją znaleźć. Wystarczy sprawdzić, jak inne osoby pracujące w twoim zawodzie bądź w obszarze twoich zainteresowań przemieniają swoją pracę w pasję. Te osoby bardzo często dzielą się swoją pasją w interesujący sposób z innymi. Cokolwiek robisz znajdziesz kogoś takiego w Internecie, a co może być zaskakujące również w swojej okolicy. Dodatkowo odkryjesz, że te osoby często znajdują sposób, aby nie tylko dzielić się swoją pasją, ale i na tym zarabiać.
 
-Właśnie czy pasja zawsze musi oznaczać zarabianie? 
+**Właśnie czy pasja zawsze musi oznaczać zarabianie?&#32;**
 
 Jeśli szukasz sposobu, aby pozostawić po sobie twórczy ślad skupianie się na tym jak to skomercjalizować może być początkiem końca świetnego pomysłu. Bez szybkich efektów łatwo się zniechęcić i poddać. Zacznij od tego, że ma to być pasjonujące wprowadzające Ciebie w stan „flow” doświadczenie. Stan „flow” to doznanie pomiędzy euforią a głęboką satysfakcją, któremu towarzyszy utrata poczucia czasu i całkowita wolność. Nie przegap tego momentu uznając go za wypadek przy pracy. Niech stan „flow” stanie się normą. Takiego stanu i działania z pasją życzę każdemu, a droga do zarabiania sama się otworzy. Oczywiście, jeśli jest to koniecznie potrzebne, gdyż nie wszystko zawsze trzeba przeliczać na pieniądze. Nie każdy może sobie na to pozwolić, ale każdy może spróbować. Zostaw twórczy ślad niezależnie od wieku i wykształcenia a Twoje życie nabierze jeszcze więcej sensu i harmonii.
 
 **Tworzenie treści zostawia twórczy ślad**
+
+![](/images/priscilla-du-preez-GsYNe4grJDY-unsplash.jpg)
+
+Zdjecie Priscilla du Preez z Unspleash
 
 Dla mnie odkryciem pracy z pasja stało się pisanie. Wymagało to dużo odwagi, aby mój babiloński mur obawy przed przysłowiowym przelewaniu myśli na papier został zburzony. Pisanie stało się dla mnie swoistą odskocznią od codziennej pracy zawodowej i niespodziewanym pasjonującym zajęciem. Dodatkowo okazało się, że tworzenie treści jest bardzo ciekawym i prostym sposobem pozostawienia po sobie twórczego śladu. Wymaga ono od osoby piszącej (co nie jest takie proste i oczywiste na samym początku) umiejętności systematycznego zarezerwowania czasu tylko z samym sobą. Poza tym niewiele potrzeba. Do samego dzieła tworzenia wystarczy notes papierowy (bardzo polecam nie odrzucać tej opcji nawet jako element uzupełniający) i dowolne urządzenie elektroniczne (przyznam się, że osobiście łączę jedno i drugie).
 
