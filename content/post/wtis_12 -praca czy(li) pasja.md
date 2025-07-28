@@ -31,6 +31,10 @@ Pierwsza definicja może być zaskakująca, ponieważ pasja to _(łac._ _pa
 
 Oczywiście nie i tutaj z pomocą przychodzi język grecki. **Pasja** (_gr._ _πάθος páthos_ _to „doświadczenie; uczucie; namiętność”_). Czy nie o takich skojarzeniach chcielibyście myśleć w kontekście pracy z pasją. Ja na pewno tak i w tym wypadku szukając odpowiedzi na zagadkę **praca czy(li) pasja** wybieram zdecydowanie “**praca,** **czyli pasja”**, niezależnie, że od tego że starożytni stoicy patrzyli na „pathe” również jako na formę zaburzenia emocjonalnego.
 
+![](/images/franco-alva-MC2j1BEAayE-unsplash.jpg)
+
+Zdjecie Franco Alva z Unspleash
+
 Podsumowując powyższe przemyślenie musimy szukać namiętnego doświadczenie wspieranego naszą wewnętrzną siłą, która poprowadzi nas **twórczą** drogą to celu. Ale jak to zrobić? Gdzie leży sekret? Jak rozbić mur, za którym praca staje się pasją? Wszystko zaczyna się w głowie.
 
 **Głową muru nie przebijesz czy na** **pewno?**
