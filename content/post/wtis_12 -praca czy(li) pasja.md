@@ -111,7 +111,7 @@ Podsumowując nawet najciekawsza pasja bez odpowiednio zaplanowanego wysiłku�
 
 Tymczasem wysilaj się  ile się tylko da i angażuj  w pracę z pasją. Pozwoli Ci to w pełni skorzystać z dobrodziejstw **DZIAŁANIA [TLEN’u]** twojej **ENERGII INTELEKTUALNEJ**.
 
-**Co warto z tego wpisu zapamiętać**
+## **WSKAZÓWKI:**
 
 1. Działanie energii intelektualnej objawia się **w pracy z** **pasją**.
 2. Dzięki pracy z pasją dużo łatwiej jest nam zostawić po sobie **twórczy ślad**.
