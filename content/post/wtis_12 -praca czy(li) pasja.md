@@ -116,7 +116,7 @@ Tymczasem wysilaj się  ile się tylko da i angażuj  w pracę z pasją. 
 1. Działanie energii intelektualnej objawia się **w pracy z** **pasją**.
 2. Dzięki pracy z pasją dużo łatwiej jest nam zostawić po sobie **twórczy ślad**.
 3. Mur pomiędzy pasja a rutynową pracą jest w naszej głowie i tylko my możemy go **przebić działając z odwagą**.
-4. Życie bez pracy to **mit**, który zazwyczaj źle się się kończy. 
-5. 5. Prawdziwa pasja zaczyna się tam, gdzie **stan „flow”**, nie przegap go.
+4. Życie bez pracy to **mit**, który zazwyczaj źle się się kończy.
+5. Prawdziwa pasja zaczyna się tam, gdzie **stan „flow”**, nie przegap go.
 6. Jak wiele może być twórczego śladu **w tworzenie treści** dla siebie i innych może zaskoczyć samego piszącego.
 7. Nic nie wydarzy się bez **wysiłku** jest on niezbędny i w pełni zintegrowany z twórczym działaniem.
