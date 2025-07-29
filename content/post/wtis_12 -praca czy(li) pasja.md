@@ -11,11 +11,7 @@ Dziś skupie się na  obszarze “filozofii” Woda Tlen iSen, który odpowiad
 
 Do tego potrzebne jest aktywne **DZIAŁANIE (TLEN)** i mądrość, czyli sprawny **INTELEKT (SOPHIA),** który bezpośrednio jest powiązany z **ENERGIĄ INTELEKTUALNĄ**. Postanowiłem, że zacznę ten rozdział cytatem, który brzmi mocno kontrowersyjnie, gdyż dla wielu osób praca kojarzy się ze smutnym obowiązkiem, a słowa Konfucjusza wydają się być mocno abstrakcyjne. Tytuł rozdziału zacząłem od słów **PRACUJ Z PASJĄ**. Proponuje delikatnie go przekształcić w swoistą słowną zagadkę. Oto i ona: 
 
-.........................................................................................................................................................................................
-
 **_„PRACA CZY(LI) PASJA,_** **_dzięki której pozostawimy twórczy ślad”_**
-
-.........................................................................................................................................................................................
 
 Zacznijmy od końca tego zdania, czyli od celu **“twórczy ślad”**. Jak wiadomo cel jest ważny, motywuje, ale to **droga** jest najważniejsza. Każdy chciałby coś po sobie pozostawić. Tak się zapewne na końcu stanie -  pozostawimy jakieś dobra materialne, pamiątki, zdjęcia czy to co szczególnie istotne choć bardzo ulotne - rodzinne wspomnienia. Jednak najważniejsze jest to, aby całe nasze życie od początku do końca (czyli nasza droga) dostarczało nam regularnie poczucie, że coś tworzymy i po sobie zostawiamy. Nie koniecznie na koniec jako podsumowanie naszego życia, ale najlepiej każdego dnia. Czy tego chcemy czy nie w pozostawiania codziennie twórczego śladu pomaga nam **praca** – idealnie, aby miała znamiona takiej, o której pisze na początku Konfucjusz.
 
