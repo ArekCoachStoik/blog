@@ -17,7 +17,11 @@ Zacznijmy jednak od teorii i przeanalizujmy co to jest praca. **Praca** kojarzy
 
 Moi ulubieni stoicy w tym wypadku Marek Aureliusz w swoich “Rozmyślaniach” wskazuje na to, że praca jest naturalnym porządkiem świata i podobnie jak natura, rośliny, zwierzęta tak samo człowiek budzi się rano do codziennej pracy, która stanowi naturalny element drogi życiowej.
 
-Zostawmy na chwile filozofię i przenieśmy się do bardziej współczesnych czasów. Co mówi nauka na temat pracy. Według fizyki praca to energia przekazana ciału. Jest to siła działająca na ciało powodująca jego przemieszczenie wg wzoru P=FxS (gdzie P=praca, F=siła a S=droga). Czy to niesamowite, że nauka i filozofia mówią to samo: **PRACA** to **SIŁA i DROGA** czy to może być przypadek? Zostawmy na chwilę samą pracę i przejdźmy do dalszej części zagadki **_praca czy(li) pasja_**. Zanim dojdziemy do zagadki słownej **„czy(li)”** przyjrzyjmy się definicji, a dokładnie definicjom słowa **pasja**.
+Zostawmy na chwile filozofię i przenieśmy się do bardziej współczesnych czasów. Co mówi nauka na temat pracy. Według fizyki praca to energia przekazana ciału. Jest to siła działająca na ciało powodująca jego przemieszczenie wg wzoru:
+
+P = F x S  ( gdzie P=praca,  F=siła  a  S=droga). 
+
+Czy to niesamowite, że nauka i filozofia mówią to samo: **PRACA** to **SIŁA i DROGA** czy to może być przypadek? Zostawmy na chwilę samą pracę i przejdźmy do dalszej części zagadki **_praca czy(li) pasja_**. Zanim dojdziemy do zagadki słownej **„czy(li)”** przyjrzyjmy się definicji, a dokładnie definicjom słowa **pasja**.
 
 Pierwsza definicja może być zaskakująca, ponieważ pasja to _(łac._ _passio_ – cierpienie, męka). Zapewne cześć z Was kojarzy film Mela Gibsona „Pasja” i zastanawialiście skąd ten tytuł. Dokładnie wynika to z łacińskiego tłumaczenia tego słowa, które obrazuje mękę Jezusa. Wróćmy jednak do naszej zagadki. **Praca cz(li) pasja**. 
 
