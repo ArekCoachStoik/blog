@@ -108,9 +108,7 @@ Jedocześnie zastanów się, kiedy ostatni raz miałeś umówione spotkanie
 
 Poznanie siebie nie tylko dotyczy silnych stron, ważniejsze, być może najważniejsze jest jednak poznanie swoich wartości. Bez dobrego zrozumienia tego obszaru mamy duże ryzyko niepowodzenia, gdyż złamany kręgosłup moralny leczy się bardzo długo. Dlatego uważam, że ostatni obszar życiowej energii **Energia Duchowa,** czyli poczucie bycia spójnym ze swoimi wartościami odgrywa istotną role w osiągnięciu harmonii i szczęścia. O tym jak BUDOWAĆ(WODA) Energię Duchową i zdefiniować swoje wartości dowiesz się więcej w kolejnych wpisach.
 
-**WSKAZÓWKI:**
-
-**Co warto z tego wpisu zapamiętać**
+## **WSKAZÓWKI:**
 
 1. Budowanie energii intelektualnej odbywa się poprzez nigdy **niekończącą** się edukację, która jest zarówno**przywilejem i** **obowiązkiem** oraz powinna dotyczyć przestrzeni zawodowej jak i prywatnej.
 2. W rozwoju osobistym jest wiele zagrożeń najważniejsza jednak umiejętność **dobrej selekcji** **źródeł wiedzy**, gdyż tylko w ten sposób możemy być postrzegani jako **eksperci** w danej dziedzinie.
