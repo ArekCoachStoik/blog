@@ -110,7 +110,7 @@ Poznanie siebie nie tylko dotyczy silnych stron, ważniejsze, być może naj
 
 **WSKAZÓWKI:**
 
-**Co warto z tego rozdziału zapamiętać**
+**Co warto z tego wpisu zapamiętać**
 
 1. Budowanie energii intelektualnej odbywa się poprzez nigdy **niekończącą** się edukację, która jest zarówno**przywilejem i** **obowiązkiem** oraz powinna dotyczyć przestrzeni zawodowej jak i prywatnej.
 2. W rozwoju osobistym jest wiele zagrożeń najważniejsza jednak umiejętność **dobrej selekcji** **źródeł wiedzy**, gdyż tylko w ten sposób możemy być postrzegani jako **eksperci** w danej dziedzinie.
