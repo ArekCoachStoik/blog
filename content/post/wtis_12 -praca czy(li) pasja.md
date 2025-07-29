@@ -29,7 +29,7 @@ Pierwsza definicja może być zaskakująca, ponieważ pasja to _(łac._ _pa
 
 „Męka i cierpienie” niestety często kojarzy się z pracą, ale żeby praca z pasją miała dokładnie i tylko to oznaczać?  
 
-Oczywiście nie i tutaj z pomocą przychodzi język grecki. **Pasja** (_gr._ _πάθος páthos_ _to „doświadczenie; uczucie; namiętność”_). Czy nie o takich skojarzeniach chcielibyście myśleć w kontekście pracy z pasją. Ja na pewno tak i w tym wypadku szukając odpowiedzi na zagadkę **praca czy(li) pasja** wybieram zdecydowanie “**praca,** **czyli pasja”**, niezależnie, że od tego że starożytni stoicy patrzyli na „pathe” również jako na formę zaburzenia emocjonalnego.
+Oczywiście nie i tutaj z pomocą przychodzi język grecki. **Pasja** (_gr._ _πάθος páthos_ _to „doświadczenie; uczucie; namiętność”_).  Czy nie o takich skojarzeniach chcielibyście myśleć w kontekście pracy z pasją. Ja na pewno tak i w tym wypadku szukając odpowiedzi na zagadkę **praca czy(li) pasja** wybieram zdecydowanie “**praca,** **czyli pasja”**, niezależnie, że od tego że starożytni stoicy patrzyli na „pathe” również jako na formę zaburzenia emocjonalnego.
 
 ![](/images/franco-alva-MC2j1BEAayE-unsplash.jpg)
 
