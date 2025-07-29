@@ -124,7 +124,7 @@ Jeśli chciałbyś bardziej naukowo zgłębić jak bardzo jesteśmy nie
 
 W ostatnim fragmencie bardzo się skupiłem and tym, aby uwypuklić fakt, że w naszym życiu bardzo często ze względu na wszechotaczający nas materializm i konsumpcjonizm zapominamy o tym, jak istotną rolę odgrywa przestrzeń niematerialna. Filozofia jest dziedziną, która w znacznym stopniu zajmuje się właśnie tą przestrzenią. Stanowi doskonały przewodnik jak skupić się na tym, aby „być” zamiast „mieć”. Jeśli wciąż masz wątpliwości w jaki sposób energia duchowa może mieć pozytywne przełożenie na Twoje życie zupełnie się nie martw. W kolejnym wpisach dotyczących energii duchowej poświęcę więcej uwagi praktyce (TLEN-Działanie), która w poszukiwaniu najlepszej mentalnej wersji siebie odgrywa istotną rolę. Jestem przekonany, że po zapoznaniu się z kolejnymi elementami „filozofii” Woda Tlen i Sen siła energii duchowej przemówi do Ciebie z całą mocą.
 
-**Co warto z tego wpisu zapamiętać**
+## **WSKAZÓWKI:**
 
 1. Budowanie energii duchowej poprzez bycie **„dobrym”** oraz poszukiwanie **„najlepszej mentalnej wersji siebie”** jest kolejnym niezbędnym filarem budowania energii witalnej.
 2. Dla energii duchowej nie ma znaczenia jest, czy jesteś osobą religijną, praktykującym fanem filozofii, agnostykiem czy ateistą. Ważne jest czy stosujesz w swoim życiu wartości, które pomagają Ci odróżnić **dobro od zła**.
