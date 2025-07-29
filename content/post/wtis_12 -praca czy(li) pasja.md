@@ -7,9 +7,7 @@ draft: false
 ---
 _„Wybierz pracę, którą kochasz i nie przepracujesz ani jednego dnia więcej w swoim życiu”_  - _Konfucjusz_
 
-Dziś skupie się na  obszarze “filozofii” Woda Tlen iSen, który odpowiada za proces tworzenia. 
-
-Do tego potrzebne jest aktywne **DZIAŁANIE (TLEN)** i mądrość, czyli sprawny **INTELEKT (SOPHIA),** który bezpośrednio jest powiązany z **ENERGIĄ INTELEKTUALNĄ**. Postanowiłem, że zacznę ten rozdział cytatem, który brzmi mocno kontrowersyjnie, gdyż dla wielu osób praca kojarzy się ze smutnym obowiązkiem, a słowa Konfucjusza wydają się być mocno abstrakcyjne. Tytuł rozdziału zacząłem od słów **PRACUJ Z PASJĄ**. Proponuje delikatnie go przekształcić w swoistą słowną zagadkę. Oto i ona: 
+Dziś skupie się na  obszarze “filozofii” Woda Tlen iSen, który odpowiada za proces tworzenia. Do tego potrzebne jest aktywne **DZIAŁANIE (TLEN)** i mądrość, czyli sprawny **INTELEKT (SOPHIA),** który bezpośrednio jest powiązany z **ENERGIĄ INTELEKTUALNĄ**. Postanowiłem, że zacznę ten rozdział cytatem, który brzmi mocno kontrowersyjnie, gdyż dla wielu osób praca kojarzy się ze smutnym obowiązkiem, a słowa Konfucjusza wydają się być mocno abstrakcyjne. Wpis zatytułowałem  **PRACUJ Z PASJĄ** - proponuje jednak delikatnie go przekształcić w swoistą słowną zagadkę. Oto i ona: 
 
 **_„PRACA CZY(LI) PASJA,_** **_dzięki której pozostawimy twórczy ślad”_**
 
