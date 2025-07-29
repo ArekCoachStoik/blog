@@ -99,6 +99,10 @@ Kolejną z nich jest tworzenie podcastów. Jest to bardzo dynamicznie rozwij
 
 **Wysiłek umysłowy nie mniejszy niż fizyczny**
 
+![](/images/toan-nguyen-l5usAHFUzDE-unsplash.jpg)
+
+Zdjecie Toan Nguyen z Unspleash
+
 Ktoś kto nigdy dobrze nie zaprzągł swojej głowy do myślenia nie uwierzy, że wysiłek umysłowy może być tak meczący jak fizyczny. Zapewne nie raz mieliście wrażenie, że głowa paruje jak by się w niej gotowała woda. Silne emocje, kumulacja zbyt wielu tematów w jednym czasie oraz stres bardzo często generują to silne zmęczenie. Pomimo, że powinniśmy unikać takiego zmęczenia w żadnym wypadku nie powinniśmy rezygnować z wysiłku umysłowego. Poza budowaniem nowych połączeń neuronowych istnieje fundamentalna wartość w wysiłku umysłowym.
 
 Zacznijmy od przypomnienia sobie definicji słowa wysiłek, aby tą wartość lepiej zrozumieć. Słowo WYSIŁEK Składa się z trzonu SIŁA oraz przedrostku WY. Połączenie tego razem wskazuje, że wysiłek to nic innego jak wykreowanie w sobie siły do działania. Także niezależnie od tego czy dotyczy to fizyczności, duchowości czy intelektu potrzebujemy wysiłku. „Dobry” wysiłek, który powstaje w celu realizacji naszych celów i wartości jest kluczowy i niezbędny, gdyż daje siłę do działania. W tym miejscu warto zadać sobie pytanie jak zoptymalizować wszystkie nasze działania, aby być jak najbardziej efektywnym i czas przeznaczony na ten wysiłek wykorzystać w optymalny sposób. Z pomocą przychodzą rozwój technologii, globalnie skalowane narzędzi pracy oraz co bardzo istotne zmiana paradygmatu myślenia o pracy.
