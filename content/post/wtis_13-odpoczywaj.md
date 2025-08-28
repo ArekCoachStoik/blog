@@ -15,6 +15,10 @@ Czytają biografie większości twórców, autorów książek czy wynala
 
 **Jedna rzecz a tak wiele daje**
 
+![](/images/possessed-photography-znCLdh5-Srk-unsplash.jpg)
+
+Zdjęcie Possessed Photography z Unspleash
+
 Koncepcja jednej rzeczy została dokładnie opisana w książce „One thing” Garego Kellera i Jaya Papasana87. W dużym uproszczeniu przekreśla ono jednoznacznie ideę wielozadaniowości (multitaskingu), czyli efektywnego robienia wielu rzeczy na raz. Skupienie się na jednej najważniejszej rzeczy powoduje nieporównywalnie lepsze efekty. Zasadę tą stosują właśnie wspomniani przeze mnie wcześniej autorzy i twórcy, którzy skupiają całą swoją energię na tej jednej najistotniejszej rzeczy. Dlaczego nie można by jednak wykorzystać idei jednej rzeczy do świadomego skupienia się na wypoczynku. Jedna rzecz, czyli intencjonalne zaplanowane przerwy, które spowodują szybką regenerację. Ma to zadziałać jak ultraszybkie ładowanie samochodu elektrycznego, które jak wiadomo jest tylko wspomagające do trwającego znacznie dłużej ładowania w domu. Ta jedna rzecz stosowana systematycznie otwiera przed nami przestrzeń do dalszego kreatywnego myślenia. Jedna rzecz, ale co dokładnie i jak długo robić, aby uzyskać opisany efekt?
 
 **Jak** **wypoczywać, aby zresetować głowę**
@@ -45,7 +49,7 @@ Dzięki pracy zdalnej nie musisz od razu przenosić się na drugi koniec św
 
 **Nic nierobienie to super moc**
 
-Oscar Wild88 powiedział „Nierobienie niczego to najtrudniejsza rzecz na świecie, najtrudniejsza i najbardziej wymagająca intelektualnie”. No właśnie, dlaczego tak jest i tą umiejętność można by określić jako super moc. Wynika to z otaczającej każdego z nas, ciągle przyśpieszającej rzeczywistości. Przez całe życie gdzieś pędzimy. Do pracy, do dzieci, do pasji czy do aktywnego wypoczynku. Bycie osobą zajętą w dzisiejszych czasach jest oczywiste. Obiegowa opinia jest taka, że jeśli ktoś nie jest ciągle zajęty traci okazje na coś ważnego. Osoba zajęta jest skazana na sukces, taka co nie wykorzystuje każdej okazji raczej nie.
+Oscar Wild powiedział „Nierobienie niczego to najtrudniejsza rzecz na świecie, najtrudniejsza i najbardziej wymagająca intelektualnie”. No właśnie, dlaczego tak jest i tą umiejętność można by określić jako super moc. Wynika to z otaczającej każdego z nas, ciągle przyśpieszającej rzeczywistości. Przez całe życie gdzieś pędzimy. Do pracy, do dzieci, do pasji czy do aktywnego wypoczynku. Bycie osobą zajętą w dzisiejszych czasach jest oczywiste. Obiegowa opinia jest taka, że jeśli ktoś nie jest ciągle zajęty traci okazje na coś ważnego. Osoba zajęta jest skazana na sukces, taka co nie wykorzystuje każdej okazji raczej nie.
 
 Sam się łapię na tym, że jak chce być sam ze swoimi myślami idę pobiegać, bo przecież szkoda nie wykorzystać takiej świetnej okazji do rozwoju. Dorośli przekładają tą presję ciągłego rozwoju na dzieci. Na pewno znacie ludzi, którzy są ciągle zajęci logistyką swoich dzieci na różne zajęcia dodatkowe. Sam nie wiem kogo mi bardziej żal tych zabieganych rodziców czy dzieci, którym zabrano beztroskie chwile. To właśnie te beztroskie chwile dzieciństwa powinny nam przypomnieć, jak to jest nie robić nic. Nigdzie się nie spieszyć, być tylko ze sobą a w stanie idealnym nawet bez swoich myśli. Być tu i teraz i tylko, bez presji na cokolwiek i chłonąć otaczającą nas naturę. Kto spróbuje zobaczy jakie to trudne. Nawet 5 minut na początku będzie powodować niepokój i dziwne samopoczucie. Z czasem jednak stanie się to Twoja ulubiona super moc. Moc powrotu do beztroskiego dziecięcego stanu, w którym nikt i nic nie mówi Ci co masz robić. Czyż to nie cudowne uczucie?
 
