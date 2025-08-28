@@ -2,7 +2,7 @@
 title: WTiS_13 - Odpoczywaj
 date: 2025-08-27T06:48:00
 description: WODA TLEN I SEN
-featured_image: /images/audrey-shattuck-N56xTRzHYhQ-unsplash.jpg
+featured_image: /images/andreas-bentele-86Z8FQN5QMY-unsplash.jpg
 draft: false
 ---
 „Wypoczynek to nie jest bezczynność. Wypoczynek to praca nad regeneracją sił” - Dale Carnegie
