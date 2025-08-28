@@ -1,5 +1,5 @@
 ---
-title: WTiS_13 - Odpoczywaj
+title: WTiS_13 - Odpoczywaj czyli regeneruj i resetuj głowę
 date: 2025-07-28T06:33:00
 description: WODA TLEN I SEN
 featured_image: /images/audrey-shattuck-N56xTRzHYhQ-unsplash.jpg
@@ -100,9 +100,7 @@ Jak to Ci się już uda i przekonasz siebie samego jak ważne do regeneracji 
 
 1. Regeneracja energii intelektualnej odbywa się przez dobrze zaplanowany **wypoczynek**.
 2. Upewnij się ze jest to **ta jedna rzecz,** na której jesteś skupiony i potrafisz rozdzielić pracę od wypoczynku.
-
 3. Regeneruj się zarówno **na bieżąco** w ciągu dnia jak również w trakcie krótszych i dłuższych **urlopów**.
 4. Ilość **mikro-wakacji** może być dużo większa niż Ci się wydaje, trzeba je tylko dobrze zaplanować.
-
 5. Łączenie pracy z wypoczynkiem jest trudne, ale **dzięki** **pracy zdalnej** coraz bardziej możliwe.
 6. Niech **nic nierobienie** będzie Twoją super mocą. Bądź tu i teraz sam ze sobą.
