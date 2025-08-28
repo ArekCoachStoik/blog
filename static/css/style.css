@@ -15,5 +15,15 @@ nav {
 }
 
 .post {
-    max-width: 70%;
+    max-width: 65rem;
+
+    h1 {
+        font-size: 2rem;
+    }
+}
+
+@media (max-width: 600px) {
+  html {
+    font-size: 12px; /* everything scales down on mobile */
+  }
 }
