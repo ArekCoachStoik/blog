@@ -5,102 +5,63 @@ description: WODA TLEN I SEN
 featured_image: /images/audrey-shattuck-N56xTRzHYhQ-unsplash.jpg
 draft: false
 ---
-„Wypoczynek to nie jest bezczynność. Wypoczynek to praca nad regeneracją sił” - Dale Carnegie86
+„Wypoczynek to nie jest bezczynność. Wypoczynek to praca nad regeneracją sił” - Dale Carnegie
 
 **REGENERACJA ENERGII INTELEKTUALNEJ**
 
-Poznaliśmy już magiczną rolę snu. Pozwala on nie tylko zregenerować siły naszego organizmu do działania, ale również konsoliduje zdobytą wiedzę. Czy jednak to wystarczy, aby nasza głowa była w stanie funkcjonować przez cały dzień. Jest to bardzo trudne, praktycznie niemożliwe. Ilość informacji i bodźców z jakim się zmagamy powoduje, że bardzo szybko ulegamy przemęczeniu i nasza
-
-86 Dale Breckenridge Carnegie, (ur. 24 listopada 1888 w Maryville w stanie Missouri, zm. 1 listopada 1955 w Nowym Jorku) – amerykański pisarz z zakresu psychologii i historii. Specjalizujący się w książkach z zakresu samorozwoju oraz umiejętności interpersonalnych
-
-127
-
-głowa zwalnia. Dlatego regeneracja **(SEN)** naszej energii **INTELEKTUALNEJ (SOFIA)** odgrywa bardzo istotną rolę.
+Poznaliśmy już magiczną rolę snu. Pozwala on nie tylko zregenerować siły naszego organizmu do działania, ale również konsoliduje zdobytą wiedzę. Czy jednak to wystarczy, aby nasza głowa była w stanie funkcjonować przez cały dzień. Jest to bardzo trudne, praktycznie niemożliwe. Ilość informacji i bodźców z jakim się zmagamy powoduje, że bardzo szybko ulegamy przemęczeniu i nasza głowa zwalnia. Dlatego regeneracja **(SEN)** naszej energii **INTELEKTUALNEJ (SOFIA)** odgrywa bardzo istotną rolę.
 
 Czytają biografie większości twórców, autorów książek czy wynalazców łatwo odnaleźć podobna metodę, dzięki której uzyskują oni najwyższą efektywność. Na czas twórczy przeznaczają oni zazwyczaj pierwsze 3-4h swojego dnia ze względu na postępującej zmęczenie i zmniejszenie kreatywności. Czy stać nas na to, aby przez większa cześć dnia nasza głowa pracowała jak przeciążony procesor chłodzony warczącym wentylatorem. Raczej nie, dlatego warto znaleźć sposób na to, aby kilkukrotnie w ciągu dnia wykonać przysłowiowy reset naszej głowy. Tylko jak to zrobić? Jak skupić się tylko na tym? Tutaj pojawia się idea jednej rzeczy, która może w tym pomóc.
 
 **Jedna rzecz a tak wiele daje**
 
-Koncepcja jednej rzeczy została dokładnie opisana w książce „One thing” Garego Kellera i Jaya Papasana87. W dużym uproszczeniu przekreśla ono jednoznacznie ideę wielozadaniowości (multitaskingu), czyli efektywnego robienia wielu rzeczy na raz. Skupienie się na jednej najważniejszej rzeczy powoduje nieporównywalnie lepsze efekty. Zasadę tą stosują właśnie wspomniani przeze mnie wcześniej autorzy i twórcy, którzy skupiają całą swoją energię na tej jednej najistotniejszej rzeczy.
-
-87 Gary Keller – Amerykańsk przedsiębiorca, Jay Papasan – Amerykański pisarz i przedsiębiorca
-
-128
-
-Dlaczego nie można by jednak wykorzystać idei jednej rzeczy do świadomego skupienia się na wypoczynku. Jedna rzecz, czyli intencjonalne zaplanowane przerwy, które spowodują szybką regenerację. Ma to zadziałać jak ultraszybkie ładowanie samochodu elektrycznego, które jak wiadomo jest tylko wspomagające do trwającego znacznie dłużej ładowania w domu. Ta jedna rzecz stosowana systematycznie otwiera przed nami przestrzeń do dalszego kreatywnego myślenia. Jedna rzecz, ale co dokładnie i jak długo robić, aby uzyskać opisany efekt?
+Koncepcja jednej rzeczy została dokładnie opisana w książce „One thing” Garego Kellera i Jaya Papasana87. W dużym uproszczeniu przekreśla ono jednoznacznie ideę wielozadaniowości (multitaskingu), czyli efektywnego robienia wielu rzeczy na raz. Skupienie się na jednej najważniejszej rzeczy powoduje nieporównywalnie lepsze efekty. Zasadę tą stosują właśnie wspomniani przeze mnie wcześniej autorzy i twórcy, którzy skupiają całą swoją energię na tej jednej najistotniejszej rzeczy. Dlaczego nie można by jednak wykorzystać idei jednej rzeczy do świadomego skupienia się na wypoczynku. Jedna rzecz, czyli intencjonalne zaplanowane przerwy, które spowodują szybką regenerację. Ma to zadziałać jak ultraszybkie ładowanie samochodu elektrycznego, które jak wiadomo jest tylko wspomagające do trwającego znacznie dłużej ładowania w domu. Ta jedna rzecz stosowana systematycznie otwiera przed nami przestrzeń do dalszego kreatywnego myślenia. Jedna rzecz, ale co dokładnie i jak długo robić, aby uzyskać opisany efekt?
 
 **Jak** **wypoczywać, aby zresetować głowę**
 
-Jest to temat rzeka i do tego bardzo indywidualny. Zależy on od charakteru naszej pracy, miejsca czy naszych preferencji.Ważne jest to abyśmy zaczęli to planować, wprowadzili jako rutynę i dopasowywali do naszej sytuacji. Wypoczynek można podzielić na dwa podstawowe rodzaje: pasywny i aktywny. Krótkie przerwy od pracy oraz codziennychobowiązków mogą mieć charakter pasywny. Dla jednych będzie to chwila relaksu na ulubionym fotelu, zamknięcie oczu i robienie przysłowiowego „nic”. Osoby, które potrzebują zająć głowę czymś innym co nie wymaga aktywacji w mózgu systemu 2 (czyli aktywnego myślenia i procesów podejmowania decyzji) mogą ze słuchawkami na uszach złapać relaks z dobrą muzyką. Dla innych rozdział lekkiej książki, będzie idealny na pasywny odpoczynek. Będą też tacy, którzy mają umiejętność, ale i możliwość
-
-129
-
-„power-naps”, czyli krótkich regeneracyjnych drzemek. To już jednak wyższa szkoła jazdy i wymaga treningu.
+Jest to temat rzeka i do tego bardzo indywidualny. Zależy on od charakteru naszej pracy, miejsca czy naszych preferencji.Ważne jest to abyśmy zaczęli to planować, wprowadzili jako rutynę i dopasowywali do naszej sytuacji. Wypoczynek można podzielić na dwa podstawowe rodzaje: pasywny i aktywny. Krótkie przerwy od pracy oraz codziennychobowiązków mogą mieć charakter pasywny. Dla jednych będzie to chwila relaksu na ulubionym fotelu, zamknięcie oczu i robienie przysłowiowego „nic”. Osoby, które potrzebują zająć głowę czymś innym co nie wymaga aktywacji w mózgu systemu 2 (czyli aktywnego myślenia i procesów podejmowania decyzji) mogą ze słuchawkami na uszach złapać relaks z dobrą muzyką. Dla innych rozdział lekkiej książki, będzie idealny na pasywny odpoczynek. Będą też tacy, którzy mają umiejętność, ale i możliwość „power-naps”, czyli krótkich regeneracyjnych drzemek. To już jednak wyższa szkoła jazdy i wymaga treningu.
 
 Jak już uda nam się wypracować nasz sposób na regenerację w ciągu dnia chciałbym w tym miejscu wskazać też na duże zagrożenie. Tam, gdzie najczęściej dzisiaj uciekamy w chwili przerwy to przestrzeń mediów społecznościowych. Tego stanowczo odradzam. Nie idźmy na tą łatwiznę i bądźmy wierni wypracowanym wcześniej metodom relaksu, gdyż inaczej pogłębiamy uzależnienie od strefy cyfrowej. Zagrożenia i uzależnienia z tym związane opisałem we wcześniejszy rozdział. O ile nasze ciało chętnie odpoczywa pasywnie to głowa lubi aktywność. Stad wszelkie formy resetu powiązane z ruchem są bardzo korzystne. Krótki spacer z ulubioną muzyką, drobna gimnastyka i oderwanie się z aktualnego miejsca pracy szczególnie jeśli mamy siedzący jej tryb, będą świetnym resetem dla głowy, a jednocześnie wspomogą naszą kondycję fizyczną i zdrowotną. Jeśli chcemy uzyskać maksymalny efekt przerwy powinniśmy robić w każdej godzinie i powinny trwać minimum 5 min. W odpoczynku nie chodzi jednak tylko o zadbanie o regenerację w ciągu dnia. Świetnym momentem na taki wypoczynek jest również koniec dnia. Wieczorna kąpiel z książką potrafi fantastycznie zregenerować nie tylko głowę, ale i ciało przed snem. WODA, TLEN iSEN w pełnej synergii.
 
-Oczywiście temat wypoczynku nie sprowadza się tylko do usystematyzowanych przerw w ciągu dnia. Równie istotnym a może istotniejszym jest odpowiednio zaplanowany długi wypoczynek. Parafrazując przykład z
-
-130
-
-samochodem elektrycznym potrzebujemy porządnie naładować baterie. Chodzi jednak o wolne ładowanie, które starcza na dłużej a przede wszystkim wpływa na „żywotność” baterii. Jaką zatem role odgrywa długi wypoczynek w długim, ale przede wszystkim harmonijnym życiu?
+Oczywiście temat wypoczynku nie sprowadza się tylko do usystematyzowanych przerw w ciągu dnia. Równie istotnym a może istotniejszym jest odpowiednio zaplanowany długi wypoczynek. Parafrazując przykład z samochodem elektrycznym potrzebujemy porządnie naładować baterie. Chodzi jednak o wolne ładowanie, które starcza na dłużej a przede wszystkim wpływa na „żywotność” baterii. Jaką zatem role odgrywa długi wypoczynek w długim, ale przede wszystkim harmonijnym życiu?
 
 **Rola długiego wypoczynku**
 
-Krótkie przerwy w ciągu dnia odgrywają ważną rolę w procesie chwilowej regeneracji. Są one jednak tylko warunkiem koniecznym, ale nie wystarczającym w dobrze zbilansowanym wypoczynku. Dobrze zaplanowane i zróżnicowane pod względem długości trwania „długie wypoczynki” tworzą cały model regeneracji. W dużej mierze wpływają one na reset głowy, nie mniej przy dobrze zaplanowanym wypoczynku również inne części ciało możemy poddać procesom regeneracji. Zapewne pierwsze myśli prowadzą Was do corocznego urlopu. Tutaj chciałbym na chwile się zatrzymać. Jeśli „długi wypoczynek” sprowadzimy do jednego w dobrych wypadkach dwóch długich urlopów nie osiągniemy zamierzonych efektów. Będzie to bardziej przypominać próbę odchudzania poprzez intensywną dietę, którą kończymy po 2 tygodniach i liczymy na cud. Organizm szybko przypomni sobie stare nawyki i efektów nie widać. Podobny mechanizm dotyczy urlopu. Jeśli długi odpoczynek sprowadzimy do jednorazowego wydarzenia w ciągu roku głowa szybko przypomni sobie jak to jest być zmęczonym. Praktycznie każdy spotkał się z
-
-131
-
-sytuacją, w której zadając pytanie znajomemu, który dopiero co wrócił z wakacji „jak było na urlopie” jedyne co możemy usłyszeć to: „na urlopie? już dawno zapomniałem!”.
+Krótkie przerwy w ciągu dnia odgrywają ważną rolę w procesie chwilowej regeneracji. Są one jednak tylko warunkiem koniecznym, ale nie wystarczającym w dobrze zbilansowanym wypoczynku. Dobrze zaplanowane i zróżnicowane pod względem długości trwania „długie wypoczynki” tworzą cały model regeneracji. W dużej mierze wpływają one na reset głowy, nie mniej przy dobrze zaplanowanym wypoczynku również inne części ciało możemy poddać procesom regeneracji. Zapewne pierwsze myśli prowadzą Was do corocznego urlopu. Tutaj chciałbym na chwile się zatrzymać. Jeśli „długi wypoczynek” sprowadzimy do jednego w dobrych wypadkach dwóch długich urlopów nie osiągniemy zamierzonych efektów. Będzie to bardziej przypominać próbę odchudzania poprzez intensywną dietę, którą kończymy po 2 tygodniach i liczymy na cud. Organizm szybko przypomni sobie stare nawyki i efektów nie widać. Podobny mechanizm dotyczy urlopu. Jeśli długi odpoczynek sprowadzimy do jednorazowego wydarzenia w ciągu roku głowa szybko przypomni sobie jak to jest być zmęczonym. Praktycznie każdy spotkał się z sytuacją, w której zadając pytanie znajomemu, który dopiero co wrócił z wakacji „jak było na urlopie” jedyne co możemy usłyszeć to: „na urlopie? już dawno zapomniałem!”.
 
 Nie chce w tym miejscu deprecjonować długiego urlopu. Sam będąc jeszcze do niedawana w modelu jeden długi urlop w roku najlepiej wspominam te 3 tygodniowe. Odkryłem jednak ze obok dłuższego urlopu trzeba znaleźć sposób na dużo krótsze, ale częstsze przerwy w pracy, które na potrzeby tego rozdziału nazwę mikro-wakacjami. Tutaj pojawia się jednak istotne ograniczenie dla wszystkich pracowników etatowych, czyli ilość dni urlopu. Ograniczenie, z którym sobie ciężko poradzić. Spójrzmy na kalendarz. W każdym roku jest 365 dni. Statystyczny Polak ma do dyspozycji 26 dni w roku co stanowi 7% całego roku. Samo to porównanie może spowodować gęsią skórkę. Jeśli jednak spojrzymy na wszystkie soboty, niedziele i dni ustawowo wolne od pracy dochodzi kolejne .... 115 dni! Razem zatem do naszej dyspozycji mamy 141 dni wolnych. Do tego, jeśli przeliczyć dni, w których pracujemy na godziny okaże się nawet po odjęciu 8h na sen mamy w naszych rękach wolne aż 70% pozostałego czasu. Jak ich nie zmarnować na telewizje, media społecznościowe czy narzekanie, że mamy mało dni urlopu?
 
-Możliwości mikro- wakacji jest co nie miara potrzebna jest tylko mentalna zmiana w podejściu do odpoczynku oraz dobre planowanie. Dodatkowo to oczywiście zależy już od pracodawcy oraz sytuacji finansowej, ale istnieje jeszcze coś takiego jak urlop bezpłatny, który pracodawca może nam udzielić. Z reguły
-
-132
-
-zostawiamy kilka dni urlopu na okres świąteczno- noworoczny. Planując z wyprzedzeniem i ustalając z pracodawcą wcześniej tego typu urlop śmiało można wykorzystać w ciągu roku te „zaoszczędzone” kilka dni na kolejne mikro-wakacje.
+Możliwości mikro- wakacji jest co nie miara potrzebna jest tylko mentalna zmiana w podejściu do odpoczynku oraz dobre planowanie. Dodatkowo to oczywiście zależy już od pracodawcy oraz sytuacji finansowej, ale istnieje jeszcze coś takiego jak urlop bezpłatny, który pracodawca może nam udzielić. Z reguły zostawiamy kilka dni urlopu na okres świąteczno- noworoczny. Planując z wyprzedzeniem i ustalając z pracodawcą wcześniej tego typu urlop śmiało można wykorzystać w ciągu roku te „zaoszczędzone” kilka dni na kolejne mikro-wakacje.
 
 Regularny dłuższy wypoczynek wpływa w istotny sposób nie tylko na regenerację, ale również na motywacje. Wynika to z dwóch rzeczy. Po pierwsze regularne oderwanie się od pracy minimalizują efekt wypalenia zawodowego, po drugie mając zaplanowanych kilka/kilkanaście mikro-wakacji w roku nie musisz na niezbyt długo czekać. Wydaje się to na pierwszy rzut oka trudne, ale jest możliwe. Zależy przede wszystko od dobrego planowania i twojej odwagi by zmienić sposób patrzenia na dostępny czas.
 
 **Czy możliwe jest połączenie pracy i wypoczynku**
 
-Jak zmienić paradygmat myślenia z życia od urlopu do urlopu na harmonijne połączenie pracy i odpoczynku. Czy da się to połączyć? Według mnie da się, ale niesie to za sobą więcej zagrożeń niż korzyści. Praktyka pokazuje, że ten model możliwy jest dla osób prowadzących „jednoosobową” działalność gospodarczą, zawodów „wolnych” (freelancerów) czyli takiej pracy, która daj dużą swobodę w regulowaniu godzin i czasu pracy. Każdy przedsiębiorca wie, że ta swoboda niesie za sobą olbrzymie zagrożenia. Z jednej strony praca na swoim tak może wciągnąć i zaangażować, że zrezygnujemy z czasu na
+Jak zmienić paradygmat myślenia z życia od urlopu do urlopu na harmonijne połączenie pracy i odpoczynku. Czy da się to połączyć? Według mnie da się, ale niesie to za sobą więcej zagrożeń niż korzyści. Praktyka pokazuje, że ten model możliwy jest dla osób prowadzących „jednoosobową” działalność gospodarczą, zawodów „wolnych” (freelancerów) czyli takiej pracy, która daj dużą swobodę w regulowaniu godzin i czasu pracy. Każdy przedsiębiorca wie, że ta swoboda niesie za sobą olbrzymie zagrożenia. Z jednej strony praca na swoim tak może wciągnąć i zaangażować, że zrezygnujemy z czasu na wypoczynek. Droga do pracoholizmu stoi otworem. Z drugiej strony nawet chwilowy spadek motywacji do tego co robimy oraz możliwość zarządzania czasem po swojemu może spowodować, że zamiast w pracy jesteśmy na „wiecznym” urlopie. To rozwija prokrastynację, poczucie rozleniwienia i w konsekwencji problemy finansowe. Ryzyko jest więc bardzo duże. Wygląda na to, że najlepszym sposobem jest jednoznaczne oddzielenie czasu na wypoczynek i pracę, aby zgodnie z ideą jednej rzeczy skupić się na tym co w danej chwili najważniejsze. Nie musimy zabijać idei regularnego (wręcz codziennego) przeplatania pracy i odpoczynku.
 
-133
-
-wypoczynek. Droga do pracoholizmu stoi otworem. Z drugiej strony nawet chwilowy spadek motywacji do tego co robimy oraz możliwość zarządzania czasem po swojemu może spowodować, że zamiast w pracy jesteśmy na „wiecznym” urlopie. To rozwija prokrastynację, poczucie rozleniwienia i w konsekwencji problemy finansowe. Ryzyko jest więc bardzo duże. Wygląda na to, że najlepszym sposobem jest jednoznaczne oddzielenie czasu na wypoczynek i pracę, aby zgodnie z ideą jednej rzeczy skupić się na tym co w danej chwili najważniejsze. Nie musimy zabijać idei regularnego (wręcz codziennego) przeplatania pracy i odpoczynku.
-
-Z pomocą przychodzi coraz bardziej popularny model pracy zdalnej. Daje on nieograniczone możliwości. Zapewne część z Was ma teraz przed oczami digital nomada pracującego z plaży na Bali. Nie jest to niemożliwe, ale też nie dla każdego. Po pandemii COVID-19 praca zdalna na dobre zagościła w wielu domach. Dobrze poukładana jest mocno uwalniające szczególnie jeśli chodzi o trzy elementy. Po pierwsze faktycznie Twoje miejsce pracy może być gdziekolwiek sobie wyobrazisz, gdyż daje możliwość swobodnego przemieszczania się. Po drugie umiejętność pracy zdalnej otwiera rynek pracy na cały świat. Czy myślałeś o tym w ten sposób? Z trzeciej strony praca zdalna oszczędza bardzo dużo czasu i pieniędzy. Zróbmy prostą kalkulację tej oszczędności. Załóżmy, że codzienna droga do pracy zajmuje 60 minut oraz kosztuje 10-30 złotych. Pracując z domu rocznie oszczędzasz ok 200 godzin (to jest
-
-134
-
-ponad 8 pełnych dni = 24 dniom pracy przez 8h dziennie) oraz 2000/6000 złotych. To koszt całkiem niezłego urlop.
+Z pomocą przychodzi coraz bardziej popularny model pracy zdalnej. Daje on nieograniczone możliwości. Zapewne część z Was ma teraz przed oczami digital nomada pracującego z plaży na Bali. Nie jest to niemożliwe, ale też nie dla każdego. Po pandemii COVID-19 praca zdalna na dobre zagościła w wielu domach. Dobrze poukładana jest mocno uwalniające szczególnie jeśli chodzi o trzy elementy. Po pierwsze faktycznie Twoje miejsce pracy może być gdziekolwiek sobie wyobrazisz, gdyż daje możliwość swobodnego przemieszczania się. Po drugie umiejętność pracy zdalnej otwiera rynek pracy na cały świat. Czy myślałeś o tym w ten sposób? Z trzeciej strony praca zdalna oszczędza bardzo dużo czasu i pieniędzy. Zróbmy prostą kalkulację tej oszczędności. Załóżmy, że codzienna droga do pracy zajmuje 60 minut oraz kosztuje 10-30 złotych. Pracując z domu rocznie oszczędzasz ok 200 godzin (to jest ponad 8 pełnych dni = 24 dniom pracy przez 8h dziennie) oraz 2000/6000 złotych. To koszt całkiem niezłego urlop.
 
 Dzięki pracy zdalnej nie musisz od razu przenosić się na drugi koniec świata, ale daje ona możliwość jeszcze bardziej harmonijnego połączenia pracy i wakacji. Nadano temu zjawisko nawet anglojęzyczną nazwę. Chodzi o „workation” czyli idee połączenia pracy i odpoczynku, w dowolnym miejscu które kojarzy Ci się z wakacjami. Nie zapominajmy jednak, że praca zdalna ma też swoje zagrożenia. Szczególnie dla ekstrawertyków brak codziennego kontaktu z fizycznym człowiekiem może być na dłuższą metę nie do zniesienia. Stąd jak we wszystkim do pełnej harmonii potrzebny jest odpowiednio zbilansowany model.
 
 **Nic nierobienie to super moc**
 
-Oscar Wild88 powiedział „Nierobienie niczego to najtrudniejsza rzecz na świecie, najtrudniejsza i najbardziej wymagająca intelektualnie”. No właśnie, dlaczego tak jest i tą umiejętność można by określić jako super moc. Wynika to z otaczającej każdego z nas, ciągle przyśpieszającej rzeczywistości. Przez całe życie gdzieś pędzimy. Do pracy, do dzieci, do pasji czy do aktywnego wypoczynku. Bycie osobą zajętą w dzisiejszych czasach jest oczywiste. Obiegowa opinia jest taka, że jeśli ktoś nie jest ciągle zajęty
-
-88 Oscar Wilde (ur. 16 października 1854 w Dublinie, zm. 30
-listopada 1900 w Paryżu)irlandzki poeta, prozaik, dramatopisarz i filolog klasyczny. Przedstawiciel modernistycznego estetyzmu
-
-135
-
-traci okazje na coś ważnego. Osoba zajęta jest skazana na sukces, taka co nie wykorzystuje każdej okazji raczej nie.
+Oscar Wild88 powiedział „Nierobienie niczego to najtrudniejsza rzecz na świecie, najtrudniejsza i najbardziej wymagająca intelektualnie”. No właśnie, dlaczego tak jest i tą umiejętność można by określić jako super moc. Wynika to z otaczającej każdego z nas, ciągle przyśpieszającej rzeczywistości. Przez całe życie gdzieś pędzimy. Do pracy, do dzieci, do pasji czy do aktywnego wypoczynku. Bycie osobą zajętą w dzisiejszych czasach jest oczywiste. Obiegowa opinia jest taka, że jeśli ktoś nie jest ciągle zajęty traci okazje na coś ważnego. Osoba zajęta jest skazana na sukces, taka co nie wykorzystuje każdej okazji raczej nie.
 
 Sam się łapię na tym, że jak chce być sam ze swoimi myślami idę pobiegać, bo przecież szkoda nie wykorzystać takiej świetnej okazji do rozwoju. Dorośli przekładają tą presję ciągłego rozwoju na dzieci. Na pewno znacie ludzi, którzy są ciągle zajęci logistyką swoich dzieci na różne zajęcia dodatkowe. Sam nie wiem kogo mi bardziej żal tych zabieganych rodziców czy dzieci, którym zabrano beztroskie chwile. To właśnie te beztroskie chwile dzieciństwa powinny nam przypomnieć, jak to jest nie robić nic. Nigdzie się nie spieszyć, być tylko ze sobą a w stanie idealnym nawet bez swoich myśli. Być tu i teraz i tylko, bez presji na cokolwiek i chłonąć otaczającą nas naturę. Kto spróbuje zobaczy jakie to trudne. Nawet 5 minut na początku będzie powodować niepokój i dziwne samopoczucie. Z czasem jednak stanie się to Twoja ulubiona super moc. Moc powrotu do beztroskiego dziecięcego stanu, w którym nikt i nic nie mówi Ci co masz robić. Czyż to nie cudowne uczucie?
 
 Jak to Ci się już uda i przekonasz siebie samego jak ważne do regeneracji intelektualnej jest bycie samym ze sobą z podwójną energią wrócisz do wyzwań intelektualnych twojego dnia. Co więcej regeneracja duchowa, która jest tematem ostatniego rozdziału stanie się bajecznie prosta i dopełni klamrą cały proces odpoczynku w ramach filozofii WTiS.
 
-136
-
-**Co warto z tego rozdziału zapamiętać**
+**WSKAZOWKI**
 
 1. Regeneracja energii intelektualnej odbywa się przez dobrze zaplanowany **wypoczynek**.
 2. Upewnij się ze jest to **ta jedna rzecz,** na której jesteś skupiony i potrafisz rozdzielić pracę od wypoczynku.
+
 3. Regeneruj się zarówno **na bieżąco** w ciągu dnia jak również w trakcie krótszych i dłuższych **urlopów**.
+
+
 4. Ilość **mikro-wakacji** może być dużo większa niż Ci się wydaje, trzeba je tylko dobrze zaplanować.
+
 5. Łączenie pracy z wypoczynkiem jest trudne, ale **dzięki** **pracy zdalnej** coraz bardziej możliwe.
+
+
 6. Niech **nic nierobienie** będzie Twoją super mocą. Bądź tu i teraz sam ze sobą.
