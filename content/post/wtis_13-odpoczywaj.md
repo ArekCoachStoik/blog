@@ -1,6 +1,6 @@
 ---
 title: WTiS_13 - Odpoczywaj
-date: 2025-08-28T06:48:00
+date: 2025-08-27T06:48:00
 description: WODA TLEN I SEN
 featured_image: /images/audrey-shattuck-N56xTRzHYhQ-unsplash.jpg
 draft: false
