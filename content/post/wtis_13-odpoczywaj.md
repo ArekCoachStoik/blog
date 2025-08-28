@@ -1,6 +1,6 @@
 ---
 title: WTiS_13 - Odpoczywaj czyli regeneruj i resetuj głowę
-date: 2025-07-28T06:33:00
+date: 2025-08-28T06:48:00
 description: WODA TLEN I SEN
 featured_image: /images/audrey-shattuck-N56xTRzHYhQ-unsplash.jpg
 draft: false
