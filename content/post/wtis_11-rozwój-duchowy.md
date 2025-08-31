@@ -1,6 +1,6 @@
 ---
-title: WTiS_14 - Rozwój duchowy
-date: 2025-08-31T21:39:00
+title: WTiS_13 - Rozwój duchowy
+date: 2025-08-29T21:39:00
 description: WODA TLEN I SEN
 featured_image: /images/bao-menglong-RsL2ncSkYB0-unsplash.jpg
 draft: false
