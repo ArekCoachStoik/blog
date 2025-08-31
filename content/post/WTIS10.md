@@ -1,6 +1,6 @@
 ---
 title: WTiS_10 - Rozwój osobisty
-date: 2025-05-31T06:04:00
+date: 2025-05-29T06:04:00
 description: WODA TLEN I SEN
 featured_image: /images/WTiS_10.jpg
 draft: false
