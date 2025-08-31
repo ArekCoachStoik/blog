@@ -1,5 +1,5 @@
 ---
-title: WTiS_12 - Pracuj z  pasją
+title: WTiS_11 - Pracuj z  pasją
 date: 2025-07-28T06:33:00
 description: WODA TLEN I SEN
 featured_image: /images/audrey-shattuck-N56xTRzHYhQ-unsplash.jpg
