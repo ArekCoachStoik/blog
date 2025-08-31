@@ -1,5 +1,5 @@
 ---
-title: WTiS_12 - Odpoczywaj czyli resetuj głowę
+title: WTiS_12 - Odpoczywaj
 date: 2025-07-29T00:00:00
 description: WODA TLEN I SEN
 featured_image: /images/andreas-bentele-86Z8FQN5QMY-unsplash.jpg
