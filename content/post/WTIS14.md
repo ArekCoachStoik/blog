@@ -25,7 +25,7 @@ Wolontariat to bardzo szeroki temat, który otwiera wiele możliwości pomagania
 
 ![](/images/breno-jesus-Akp8qcrCk0s-unsplash.jpg)Zdjecie: Breno Jesus z Unsplash
 
-O ile pomaganie wydaje się czymś naturalnym w obecnych czasach ściera się z wszechobecnym kultem jednostki i myśleniu w pierwszej kolejności o sobie. Mimo, że każdy z nas intuicyjnie chce pomagać zaniechania w tym obszarze tłumaczymy zaganianiem, mnogością ważnych obowiązków i przysłowiowym brakiem czasu. Czasu, czyli realnie najwartościowszej „rzeczy” jaką mamy, a którą zazwyczaj tracimy na bezwartościowe sprawy. Czas to jedyna rzecz, której nikt nie jest w stanie nam oddać, dlatego jest tak ważne j, aby wykorzystać go jak się da najlepiej. I tutaj przechodzimy do sedna. **Bezinteresowne pomaganie innym - na pewno nie jest zmarnowanym czasem.**
+O ile pomaganie wydaje się czymś naturalnym w obecnych czasach ściera się z wszechobecnym kultem jednostki i myśleniu w pierwszej kolejności o sobie. Mimo, że każdy z nas intuicyjnie chce pomagać, zaniechania w tym obszarze tłumaczymy zaganianiem, mnogością ważnych obowiązków i przysłowiowym brakiem czasu. Czasu, czyli realnie najwartościowszej „rzeczy” jaką mamy, a którą zazwyczaj tracimy na bezwartościowe sprawy. Czas to jedyna rzecz, której nikt nie jest w stanie nam oddać, dlatego jest tak ważne j, aby wykorzystać go jak się da najlepiej. I tutaj przechodzimy do sedna. **Bezinteresowne pomaganie innym - na pewno nie jest zmarnowanym czasem.**
 
 Otwarcie się na pomaganie innym wymaga od Ciebie tylko dwóch kluczowych rzeczy:
 
