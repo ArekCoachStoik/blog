@@ -1,6 +1,6 @@
 ---
 title: WTiS_14 - Pomagaj innym
-date: 2025-10-09T06:36:00
+date: 2025-09-29T06:36:00
 description: WODA TLEN I SEN
 featured_image: /images/ruthson-zimmerman-gdsV6uOPB1U-unsplash.jpg
 draft: false
