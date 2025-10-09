@@ -81,6 +81,10 @@ Do harmonii w naszym życiu musimy wkomponować pomaganie jako integralną ci
 
 **Wiara, nadzieja, miłość**
 
+![](/images/mayur-gala-2PODhmrvLik-unsplash.jpg)
+
+Zdjęcie: Mayur Gala z Unsplash
+
 Na koniec będąc chrześcijaninem podeprę się Nowym Testamentem a dokładniej ostatnim fragmentem Hymnu do miłości z I listu Św. Pawła do Koryntian _„Teraz więc pozostaje wiara, nadzieja, miłość, te trzy; lecz z nich największa jest miłość.”_ Jak widać wiara i nadzieja są bardzo ważne, ale to miłość ma największą moc. W pomaganiu dokładnie jest tak samo. Miłość rozumiana jaki miłością do drugiego człowieka, niezależnie od tego skąd pochodzi, jak wygląda oraz jaką religię wyznaje. Jeśli brakuje wiary, kończy się nadzieja, ale jeśli wciąż jest bezinteresowna miłość, nic nie jest stracone. Miłość zawsze odbudowuje nadzieje i wiarę w drugiego człowieka. Jeśli zatem szukaliście prostej recepty, aby wasza energia duchowa nabrała mocy działajcie z miłością. Z miłością to znaczy bez szukania poklasku, cierpliwie i bez wstydu cytując ze wspomnianego listu Św. Pawła. Takie podejście do pomagania jest wspólne dla znakomitej większości znanych czy nieznanych wolontariuszy. Warto spróbować i z miłością ruszyć do dzieła pomagania, a jestem pewien ze pomożesz nie tylko innym, ale i sobie.
 
 Gdybyś jednak szukał alternatywnej nauki na temat miłości ponownie przychodzi z pomocą filozofia. „Uczta” Platona to nic innego jak kwintesencja starożytnego rozłożenia na czynniki pierwsze pojęcia miłości. Dialog pomiędzy znanymi osobistościami życia publicznego czasów Sokratesa daje wiele do myślenia i dotyka bardzo wiele płaszczyzn zjawiska nazywanego miłością. Najbardziej istotnym fragmentem jest mowa Sokratesa, która pogłębia ideę miłości jako drogi prowadzącej do mądrości. Stwierdza, że miłość nie ogranicza się jedynie do miłosnego afektu, ale daje również możliwość głębszego poznania siebie i otaczającego nas świata. Platon słowami Sokrates odkrywa kluczową rolę miłości w pomaganiu i dążeniu do doskonałości.
