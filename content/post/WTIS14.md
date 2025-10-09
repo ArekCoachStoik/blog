@@ -13,11 +13,17 @@ Zbudowanie w sobie umiejętności rozróżnienia **dobra od zła,** któr
 
 DZIAŁANIE polegające na “dawaniu siebie” czyli pomaganiu innym  stanowi istotny fundament większości nurtów filozoficznych czy religii. Dlatego tak, ważną role odgrywa rozwijanie w sobie duchowości filozoficznej czy religijnej. Sama idea pomagania wydaje się prosta - ale czy jednak dla każdego. Można założyć , że  nie jest to takie proste  i zależy w dużej mierze od  typu naszej osobowości w tym szczególnie otwartości na innych.  Nic bardziej mylnego. Niezależnie od tego czy jesteś ekstrawertykiem, który czerpie energię z kontaktu z innym czy introwertykiem, który czerpie energię z bycia z samym sobą wspieranie innych jest tak samo możliwe. Trzeba tylko znaleźć sposób, który będzie rezonować z naszym typem osobowości gdyż form i możliwości pomagania jest bardzo wiele. Do tego czysto "egoistycznie" (co za paradoks słowny) warto podkreślić, że ważnym „skutkiem ubocznym” pomagania innym jest to, że pomagamy również sobie. Co potwierdza ważną myśl , że "dobro powraca". Zatem czysto egoistycznie  włącz się w "dobrowolną pomoc"
 
-Wolontariat czyli dobrowolna pomoc
+**Wolontariat czyli dobrowolna pomoc**
+
+![](/images/alejandra-ezquerro-WQWJd6mZS7Q-unsplash%20%281%29.jpg)
+
+Zdjęcie: Alejandra Ezquerro z Unsplash
 
 Wolontariat to bardzo szeroki temat, który otwiera wiele możliwości pomagania.  Czasami można być zaskoczony jak  ma wiele nieoczywistych twarzy i odsłon. Dzielenie się wiedzą pro-bono, wspieranie fundacji, zwykła pomoc sąsiadce z zakupami czy rozmowa z własnym dzieckiem to przeróżne formy pomagania innym. Nie ma lepszej czy gorszej formy najważniejsze jest to czy intencjonalnie bezinteresownie chcesz pomagać i czynić dobro. Bycie dobrym to bycie również tolerancyjnym, dlatego w przestrzeni pomagania nie powinno mieć miejsca ocenianie o charakterze ideologicznym, religijnym czy światopoglądowym. Dobro jest dobrem i tyle. Dla tych którzy je otrzymują nie ma znaczenia czy robi to biały mężczyzna katolik,muzułmańska kobieta w burce, mnich buddyjski czy ateistka walcząca o prawa kobiet. Pomaganie nie ma koloru skóry, wyznania, płci czy wieku. Jest najwyższą wartością i symbolem człowieczeństwa. Bądźmy tolerancyjni i otwórzmy się na pomaganie, dzięki czemu - jak już wspomniałem wcześniej - pomożemy nie tylko innym, ale również sobie. Czy takie bycie otwartym jest jednak proste?
 
 **Otwórz się na pomaganie**
+
+![](/images/breno-jesus-Akp8qcrCk0s-unsplash.jpg)Zdjecie: Breno Jesus z Unsplash
 
 O ile pomaganie wydaje się czymś naturalnym w obecnych czasach ściera się z wszechobecnym kultem jednostki i myśleniu w pierwszej kolejności o sobie. Mimo, że każdy z nas intuicyjnie chce pomagać zaniechania w tym obszarze tłumaczymy zaganianiem, mnogością ważnych obowiązków i przysłowiowym brakiem czasu. Czasu, czyli realnie najwartościowszej „rzeczy” jaką mamy, a którą zazwyczaj tracimy na bezwartościowe sprawy. Czas to jedyna rzecz, której nikt nie jest w stanie nam oddać, dlatego jest tak ważne j, aby wykorzystać go jak się da najlepiej. I tutaj przechodzimy do sedna. **Bezinteresowne pomaganie innym - na pewno nie jest zmarnowanym czasem.**
 
@@ -30,6 +36,10 @@ Otwarcie się na pomaganie innym wymaga od Ciebie tylko dwóch kluczowych rzeczy
 Jak tylko zaczniesz świadomie pomagać magia wolontariatu ujawni Ci swoją siłę. Szybko okaże się że to bezinteresowne działanie, z którego nie planowałem mieć żadnych korzyści dla Ciebie przynosi nie tylko wiele pożytku dla innych ale również dla Ciebie. Zwykła wdzięczność, uśmiech czy miłe słowa kierowane w Twoją stronę sprawią, że twój dobrostan nabierze nowego wymiaru. Paradoksalnie „pomagając innym pomagasz sobie” poprzez życzliwość jaką otrzymasz od innych. Nie zawsze jednak tak się dzieje. Nawet jeśli podczas pomagania innym nie spotkają Cię dowody uznania, ale ich brak, może nawet hejt bądź wyśmianie zawsze z tylu głowy miej myśl, że postępujesz moralnie dobrze. Cytując za Św. Pawłem „zło dobrem zwyciężaj” i nie pozwól, aby takie sytuacje zniechęciły cię do dalszego działania. Działaj - pomagaj - gdyż stoi za tym ważna idea. W tym miejscu u osób aktywnych i zaangażowanych w pomaganie pojawia się pytanie - jak przekuć nasz bezcenny czas, który poświęcamy na  pomaganie innym , aby przyniósł on jak największą wartość drugiej osobie?
 
 **Wędka czy ryba**
+
+![](/images/john-cameron-iIzlA8N9Y8E-unsplash.jpg)
+
+Zdjęcie: John Cameron z Unsplash
 
 Być może kojarzysz słowa chińskiego filozofa Laozi
 
