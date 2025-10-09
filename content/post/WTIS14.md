@@ -51,6 +51,10 @@ Lau Tzu wspomniany wcześniej powiedział również, że _„jeśli uczen�
 
 **Jak zatem uczyć** **innych,** **aby sami nauczyli się „łowić”**
 
+![](/images/alex-tokuda-W2f-4hZIpV8-unsplash.jpg)
+
+Zdjęcie: Alex Tokuda z Unsplash
+
 Tutaj jest dość prosta zasada, aby się czegoś nauczyć trzeba nie tylko zapamiętać, ale przede wszystkim zrozumieć. Na zasady skutecznego uczenia wskazywał już Konfucjusz mówiąc 
 
 „Powiedz mi, a zapomnę, pokaż mi, a zapamiętam, **_pozwól mi zrobić, a zrozumiem_**_”_. 
@@ -62,6 +66,10 @@ Przypominam jednak, że sednem wolontariatu /pomagania jest bezinteresownośc
 Gdybyśmy. w tym miejscu zapytali stoika jaką najważniejszą wędkę (umiejętność) którą chciałby komuś ofiarować to z jego ust padło by następujące zdanie - "Naucz się w sposób rozważy, przemyślany czyli refleksyjny korzystać ze swoich wyobrażeń" (czyli wyobrażenia otaczającej Cię rzeczywistości).  Jest to bardzo trudne, ale oznacza to umiejętność zapanowanie nad naszym umysłem czyli nad finalnie nad naszymi wyborami i działaniem. Jest to fundamentalna umiejętność od której warto rozpocząć budowanie swojego życia. Cytując za Publiliuszem Syrusem antycznym aktorem i twórcą wielu wspaniałych “Sentencji” - “Pragniesz władać wielkim imperium? Najpierw władaj samym sobą.” Zapanowanie nad naszymi wyobrażeniami jest kluczowe, aby postrzeganie rzeczywistości, która nas otacza wspierało a nie hamowało pomagających jak i tych którym się pomaga. Tylko dzięki takiemu podejściu mamy szanse rozwinąć skrzydła wolontariatu i swoje.
 
 **Czy rzeczywistość, która nas otacza pomaga pomagać?**
+
+![](/images/oscar-omondi-9wie9MNnIg8-unsplash.jpg)
+
+Zdjęcie: Oscar Omondi  z Unsplash
 
 Zdecydowanie tak, stąd DZIAŁANIE w tym filarze “filozofii” Woda Tlen iSen jest w zasięgu i dostępne dla każdego z nas. Zacznijmy od tego, że po pierwsze nie jest trudno znaleźć osoby czy organizacje, które potrzebują pomocy. Po drugie my Polacy słyniemy z pomagania i nie jest trudno na kimś się wzorować lub do kogoś dołączyć. Wielka Orkiestra Świątecznej Pomocy, Szlachetna Paczka, Polski Czerwony Krzyż czy Caritas to tylko najbardziej znane „marki” w dziedzinie pomagania. Ilość fundacji i organizacji pożytku publicznego jest przeogromna i każdy jest w stanie znaleźć coś dla siebie zarówno na ogólnopolskim czy lokalnym gruncie. Do tego organizacje takie jak UNICEF dają szanse włączyć się w pomoc realizowaną na całym świecie.
 
