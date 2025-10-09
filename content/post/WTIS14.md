@@ -1,6 +1,6 @@
 ---
 title: WTiS_14 - Pomagaj innym
-date: 2025-08-29T21:39:00
+date: 2025-10-09T06:36:00
 description: WODA TLEN I SEN
 featured_image: /images/ruthson-zimmerman-gdsV6uOPB1U-unsplash.jpg
 draft: false
@@ -55,9 +55,7 @@ Przytoczone powyżej przykłady wskazują, że rola miłości zarówno w st
 **Co warto z tego rozdziału zapamiętać**
 
 1. DZIAŁANIE naszej energii duchowej objawia się **w bezinteresownym** pomaganiu innym, a także w zachęcaniu innych do włączania się w dzieło pomocy potrzebującym.
-2. **Otwórz** się na drugiego człowieka i **bądź** **tolerancyjn**y, gdyż prawdziwe pomaganie nie ma koloru skory, religii czy narodowości.
-
-3. **Uczenie** innych jest najlepszą formą pomocy nie bądź jednak zaskoczony, gdy ktoś nie jest na to gotowy.
-4. **Form pomocy jest bez liku** na pewno znajdziesz coś dla siebie.
-
+2. **Otwórz** się na drugiego człowieka i **bądź** **tolerancyjn**y, gdyż prawdziwe pomaganie nie ma koloru skory, religii czy narodowości.
+3. **Uczenie** innych jest najlepszą formą pomocy nie bądź jednak zaskoczony, gdy ktoś nie jest na to gotowy.
+4. **Form pomocy jest bez liku** na pewno znajdziesz coś dla siebie.
 5. Jeśli zniknęła wiara i nadzieja **miłość** jest kluczem do dalszego pomagania innym i sobie.
