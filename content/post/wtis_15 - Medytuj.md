@@ -66,7 +66,7 @@ Taka postawa eliminuje poczucie osamotnienia czy wyłączenia. Potrzebna do te
 
 Zdjęcie Brett Jordan na Unsplash
 
-Chciałbym zakończyć ten rozdział wyjaśnieniem jakie dwa istotne znaczenia ma dla mnie fraza **„tu i teraz”**. Z jednej strony tu i teraz odnosi się do poszukiwania stanu uważności co starałem się wyjaśnić powyżej. Z drugiej strony chciałbym wskazać na to, że nigdy nie ma lepszego czasu na zmianę, ten moment jest właśnie **„tu i teraz”** dokładnie w tej chwili. Zakładanie, że znajdziemy ten moment nie „tu i teraz” ale „tam i kiedyś” jest kuriozalnie i nie przyniesie oczekiwanych skutków. Działanie „**tu i teraz”** jest fundamentem „filozofii” Woda, Tlen iSen i chciałbym, aby właśnie to zapadło mocno w Twojej pamięci.
+Chciałbym zakończyć ten wpis wyjaśnieniem jakie dwa istotne znaczenia ma dla mnie fraza **„tu i teraz”**. Z jednej strony tu i teraz odnosi się do poszukiwania stanu uważności co starałem się wyjaśnić powyżej. Z drugiej strony chciałbym wskazać na to, że nigdy nie ma lepszego czasu na zmianę, ten moment jest właśnie **„tu i teraz”** dokładnie w tej chwili. Zakładanie, że znajdziemy ten moment nie „tu i teraz” ale „tam i kiedyś” jest kuriozalnie i nie przyniesie oczekiwanych skutków. Działanie „**tu i teraz”** jest fundamentem „filozofii” Woda, Tlen iSen i chciałbym, aby właśnie to zapadło mocno w Twojej pamięci.
 
 **Co warto zapamiętać**
 
