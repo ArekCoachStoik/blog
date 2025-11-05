@@ -32,7 +32,7 @@ Jak widać **TLEN** i **SEN** wspierają wspólnie proces regeneracji. 
 
 ![](/images/mitchell-griest-fbXHHCiheVM-unsplash.jpg)
 
-Zdjecie Mitchell Grie
+Zdjecie Mitchell Griest na Unsplash
 
 Efektów medytacji nie zobaczymy od razu. Potrzebujemy zapoznać się z podstawowymi technikami a następnie wprowadzić codzienną minimalnie kilkunastominutową rutynę. Dopiero po pewnym czasie zaczniemy widzieć jej efekty. Najważniejszym efektem skutecznie prowadzonych medytacji jest oczyszczenie naszego umysłu z negatywnych przekonań i emocji. Ponad to medytacja pozwala na uzyskanie równowagi emocjonalnej, gdyż pobudza układ przywspółczulny misędzy innymi odpowiedzialny za odpoczynek i wyciszenie. Taka rozumiana regeneracja mocno wspierają rozwijanie energii duchowej, gdyż stanowi fantastyczne przygotowanie pod jej BUDOWANIE i DZIAŁANIE. Jest jednak bardzo wiele dodatkowych pozytywnych „skutków ubocznych” regularnej medytacji. Oddziaływają one nie tylko na sferę duchową, ale również fizyczną i intelektualną.
 
@@ -52,11 +52,19 @@ W takich sytuacjach z poradą przychodzą stoicy, którzy uważali tak jak
 
 **Techniki uważności**
 
+![](/images/daria-rom-fT4BRGAK5aQ-unsplash.jpg)
+
+Zdjęie Daria Rom na Unsplash
+
 Na co zwrócić uwagę podczas bycia samemu ze sobą. Technik i metod jest olbrzymia ilość. Ja skupiam się na kilku z nich, ale każdy znajdzie tam coś dla siebie. Osobiście każdy dzień zaczynam od praktykowania wdzięczności. Zacznij doceniać i zwracać uwagę na dobre małe i duże rzeczy, które przytrafiły Ci się minionego dnia – ma to super moc. Niespodziewanie nabierzesz przekonania, że dobrych zdarzeń oraz ludzi dookoła jest dużo więcej niż się wydaje. Natura człowieka jest taka, że łatwiej nam się pamięta to co złe niż to co dobre. Na takie podejście do życia trzeba koniecznie uważać i próbować to zmienić. Właśnie praktyka wdzięczności w tym bardzo pomaga. Dodatkowo jesteśmy w stanie spostrzec, że dookoła nas są osoby, które wspierają podobne wartości do nas. Buduje to poczucie wspólnoty oraz bycia częścią większej pozytywnej całości.
 
 Taka postawa eliminuje poczucie osamotnienia czy wyłączenia. Potrzebna do tego jest tylko codzienna chwila zatrzymania i refleksji. Idźmy krok dalej. Pogłębiony stan uważności udaje się osiągnąć poprzez techniki oddechowe jak metoda Wima Hofa. Pomagają one w skupieniu oraz umiejętnym eliminowaniu bodźców i myśli zewnętrznych. Pozwalają nam wykreować dogodną przestrzeń na bycie tu i teraz tylko ze sobą. Z doświadczenia wiem odcięcie się od bodźców zewnętrznych jest relatywnie proste od myśli już nie. Nie mniej systematyka jak w większości spraw przynosi efekty. Warto też poznać proste sposoby na „parkowanie” pojawiających się samoistnie myśli takie jak „etykietowaniem” i koncentrowanie na oddechu. Ta klasyczna forma medytacji bardzo dobrze uzupełnia się z jogą czy pilatesem czego na pewno nie muszę przypominać wszystkim fanom tych formy budowania uważności i kontaktu ciała z umysłem. Mam nadzieję, że znajdzie swój sposób i czas na bycie tu i teraz. A czas można znaleźć również przed zaśnięciem korzystając z techniki medytacyjnej nazywanej „Body scan” (skanowanie ciała). Medytacja, w której wraz z oddechem przemierzamy przez wszystkie elementy naszego ciała od czubka głowy aż do samych paluszków na nogach. Przyjemne doświadczenie i pomaga zasypiać bardziej niż liczenie „baranów”. Polecam każdemu kto ma kłopoty z zasypianiem.
 
 **Tu i teraz**
+
+![](/images/brett-jordan-B-Ngmvz6HOA-unsplash.jpg)
+
+Zdjęcie Brett Jordan na Unsplash
 
 Chciałbym zakończyć ten rozdział wyjaśnieniem jakie dwa istotne znaczenia ma dla mnie fraza **„tu i teraz”**. Z jednej strony tu i teraz odnosi się do poszukiwania stanu uważności co starałem się wyjaśnić powyżej. Z drugiej strony chciałbym wskazać na to, że nigdy nie ma lepszego czasu na zmianę, ten moment jest właśnie **„tu i teraz”** dokładnie w tej chwili. Zakładanie, że znajdziemy ten moment nie „tu i teraz” ale „tam i kiedyś” jest kuriozalnie i nie przyniesie oczekiwanych skutków. Działanie „**tu i teraz”** jest fundamentem „filozofii” Woda, Tlen iSen i chciałbym, aby właśnie to zapadło mocno w Twojej pamięci.
 
