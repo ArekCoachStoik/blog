@@ -1,6 +1,6 @@
 ---
 title: WTiS_15 - Medytuj
-date: 2025-09-29T06:36:00
+date: 2025-10-29T06:36:00
 description: WODA TLEN I SEN
 featured_image: /images/dust-pixels-niS4Tw40Ylc-unsplash.jpg
 draft: false
@@ -42,7 +42,7 @@ Nasz umysł i **ENERGIA INTELEKTUALNA** również czerpią korzyści z byc
 
 **Sztuka uważności**
 
-![t ](/images/lesly-juarez-DFtjXYd5Pto-unsplash.jpg)
+![t](/images/lesly-juarez-DFtjXYd5Pto-unsplash.jpg)
 
 Zdjcie Lesly Juarez na Unspalsh
 
@@ -64,10 +64,7 @@ Chciałbym zakończyć ten rozdział wyjaśnieniem jakie dwa istotne znaczen
 
 1. Regeneracja energii duchowej odbywa się głównie przez **uważność**.
 2. Najprostszym sposobem na uważność, czyli bycie tu teraz jest **medytacja**.
-
 3. Medytacje można świetnie wkomponować w ćwiczenia fizyczne takich jak joga czy pilates.
 4. Koniecznie wprowadź trening uważności do **codziennej rutyny** a wpłynie to pozytywnie zarówno na przestrzeń duchową, fizyczną i intelektualną.
-
 5. **Bądź wdzięczny,** bo jest za co i jest to najprostsza droga do pozytywnego postrzegania świata.
-
 6. Zacznij **tu i teraz** nie ma chwili do stracenia.
