@@ -1,5 +1,5 @@
 ---
-title: WTiS_14 - Pomagaj innym
+title: WTiS_15- Medytuj
 date: 2025-09-29T06:36:00
 description: WODA TLEN I SEN
 featured_image: /images/ruthson-zimmerman-gdsV6uOPB1U-unsplash.jpg
@@ -31,7 +31,7 @@ Otwarcie się na pomaganie innym wymaga od Ciebie tylko dwóch kluczowych decyzj
 
 1/podejmij decyzje co chcesz robić - w co się zaangażować
 
-2/podejmi decyzje, że chcesz zarezerwować  na pomaganie czas w swoim zapewne „napiętym” kalendarzu. 
+2/podejmi decyzje, że chcesz zarezerwować  na pomaganie czas w swoim zapewne „napiętym” kalendarzu.
 
 Jak tylko zaczniesz świadomie pomagać magia wolontariatu ujawni Ci swoją siłę. Szybko okaże się że to bezinteresowne działanie, z którego nie planowałem mieć żadnych korzyści dla Ciebie przynosi nie tylko wiele pożytku dla innych ale również dla Ciebie. Zwykła wdzięczność, uśmiech czy miłe słowa kierowane w Twoją stronę sprawią, że twój dobrostan nabierze nowego wymiaru. Paradoksalnie „pomagając innym pomagasz sobie” poprzez życzliwość jaką otrzymasz od innych. Nie zawsze jednak tak się dzieje. Nawet jeśli podczas pomagania innym nie spotkają Cię dowody uznania, ale ich brak, może nawet hejt bądź wyśmianie zawsze z tylu głowy miej myśl, że postępujesz moralnie dobrze. Cytując za Św. Pawłem „zło dobrem zwyciężaj” i nie pozwól, aby takie sytuacje zniechęciły cię do dalszego działania. Działaj - pomagaj - gdyż stoi za tym ważna idea. W tym miejscu u osób aktywnych i zaangażowanych w pomaganie pojawia się pytanie - jak przekuć nasz bezcenny czas, który poświęcamy na  pomaganie innym , aby przyniósł on jak największą wartość drugiej osobie?
 
@@ -43,9 +43,9 @@ Zdjęcie: John Cameron z Unsplash
 
 Być może kojarzysz słowa chińskiego filozofa Laozi
 
-_„Daj komuś rybę, a nakarmisz go na jeden dzień. Naucz go łowić ryby, a nakarmisz go na całe życie!”_ 
+_„Daj komuś rybę, a nakarmisz go na jeden dzień. Naucz go łowić ryby, a nakarmisz go na całe życie!”_
 
-Czy w takim razie istotą pomagania jest uczenie jak radzić sobie samemu? Z dużą pewnością tak - pomoc, która jest w stanie rozwiązać długoterminowo problemy danej osoby ma szczególną wartość i warto się nad nią skupić. Nie powinno nas to jednak zniechęcać do pomocy doraźnej. Jest wiele osób i sytuacji, w której osoba wymagająca pomocy nie będzie miała jeszcze gotowości albo siły na to, aby nauczyć się jak zmienić swoje życie. Jak we wszystkim również i w formie pomagania trzeba znaleźć odpowiedni bilans i reagować na potrzeby chwili danej osoby. Czasami naszą pomoc w 100% powinniśmy skupić na dawaniu ryby, czasami w 100% na uczeniu łowienia, najczęściej potrzebne jest jedno i drugie. Łatwo jest wpaść w pokusę  wskazywania błędów w postępowaniu innych i próby uczenia kogoś na siłę. Nawet jeśli mamy racje często pada to na niepodatny grunt, gdyż osoba nie wydobyła jeszcze wewnętrznej siły (czyli nie może podjąć _“wysiłku”_) w celu zmiany swojego postępowania. Często potrzebny jest na to **czas** i w pomaganiu musimy być cierpliwi i na to gotowi.  
+Czy w takim razie istotą pomagania jest uczenie jak radzić sobie samemu? Z dużą pewnością tak - pomoc, która jest w stanie rozwiązać długoterminowo problemy danej osoby ma szczególną wartość i warto się nad nią skupić. Nie powinno nas to jednak zniechęcać do pomocy doraźnej. Jest wiele osób i sytuacji, w której osoba wymagająca pomocy nie będzie miała jeszcze gotowości albo siły na to, aby nauczyć się jak zmienić swoje życie. Jak we wszystkim również i w formie pomagania trzeba znaleźć odpowiedni bilans i reagować na potrzeby chwili danej osoby. Czasami naszą pomoc w 100% powinniśmy skupić na dawaniu ryby, czasami w 100% na uczeniu łowienia, najczęściej potrzebne jest jedno i drugie. Łatwo jest wpaść w pokusę  wskazywania błędów w postępowaniu innych i próby uczenia kogoś na siłę. Nawet jeśli mamy racje często pada to na niepodatny grunt, gdyż osoba nie wydobyła jeszcze wewnętrznej siły (czyli nie może podjąć _“wysiłku”_) w celu zmiany swojego postępowania. Często potrzebny jest na to **czas** i w pomaganiu musimy być cierpliwi i na to gotowi.
 
 Lau Tzu wspomniany wcześniej powiedział również, że _„jeśli uczeń jest gotowy pojawi się nauczyciel”_ co wskazuje, że nie zawsze nasze działanie musi przynieść natychmiastowy skutek. Jak wspomniałem wcześniej “dawanie wędki” jest skuteczne, jeśli osoba, której pomagamy jest na to gotowa, ale przed wszystkim chętna do podjęcia wysiłku zmiany. Na początku w przygotowaniu tej gotowości trzeba poświecić dużo własnej energii, która “wydobędzie” w ludziach potrzebujących ich własną energię do zmiany. W ten sposób “uczeń staje się gotowy” i nauczyciela znajdzie. Tak rozumiany wolontariat może docelowo przynieść najlepsze skutki. Jeśli to tylko możliwe wplatajmy naukę w naszą pomoc w sposób przemyślany i odpowiedni do danej sytuacji.
 
@@ -55,15 +55,15 @@ Lau Tzu wspomniany wcześniej powiedział również, że _„jeśli uczen�
 
 Zdjęcie: Alex Tokuda z Unsplash
 
-Tutaj jest dość prosta zasada, aby się czegoś nauczyć trzeba nie tylko zapamiętać, ale przede wszystkim zrozumieć. Na zasady skutecznego uczenia wskazywał już Konfucjusz mówiąc 
+Tutaj jest dość prosta zasada, aby się czegoś nauczyć trzeba nie tylko zapamiętać, ale przede wszystkim zrozumieć. Na zasady skutecznego uczenia wskazywał już Konfucjusz mówiąc
 
-„Powiedz mi, a zapomnę, pokaż mi, a zapamiętam, **_pozwól mi zrobić, a zrozumiem_**_”_. 
+„Powiedz mi, a zapomnę, pokaż mi, a zapamiętam, **_pozwól mi zrobić, a zrozumiem_**_”_.
 
 Dał on podwaliny procesu, w którym dawanie ryby można skutecznie zamienić na jej łowienie. Proces ten nazywany zangielskiego EDIC (Explenation/ Demonstraion /Imitation/ Consolidation) a stosowany w całości przynosi znakomite skutki w rozwijaniu i uczeni innych. Kluczowymi jego elementami są **wyjaśnienie, pokazanie i zachęcenie do wykonania samemu** a następnie towarzyszenie w ocenie efektów działania -  wspartego formą coachingu (czyli zadawania trafnych pytań)  Jest to sprawdzona skuteczna metoda w szybkim uczeniu i każdy kto się do niej zastosuje robi bardzo szybkie postępy w procesie uczenia.
 
 Gdybyśmy. w tym miejscu zapytali mędrca (np. stoickiego) o radę od czego zacząć - jaką najważniejszą wędkę (umiejętność) chciałby komuś ofiarować - zapewne z jego ust padło by następujące zdanie.
 
-"Naucz się w sposób rozważy, przemyślany czyli refleksyjny korzystać ze swoich wyobrażeń" (czyli tego jak widzisz otaczającą Cię rzeczywistości).  
+"Naucz się w sposób rozważy, przemyślany czyli refleksyjny korzystać ze swoich wyobrażeń" (czyli tego jak widzisz otaczającą Cię rzeczywistości).
 
 Jest to bardzo trudne, ale oznacza to umiejętność zapanowanie nad naszym umysłem czyli naszymi wyborami i działaniem. Jest to fundamentalna umiejętność od której warto rozpocząć budowanie swojego życia. Cytując za Publiliuszem Syrusem antycznym aktorem i twórcą wielu wspaniałych “Sentencji” - “Pragniesz władać wielkim imperium? Najpierw władaj samym sobą.” Zapanowanie nad naszymi wyobrażeniami jest kluczowe, aby postrzeganie rzeczywistości, która nas otacza wspierało a nie hamowało pomagających jak i tych którym się pomaga. Tylko dzięki takiemu podejściu mamy szanse rozwinąć skrzydła wolontariatu i swoje.
 
