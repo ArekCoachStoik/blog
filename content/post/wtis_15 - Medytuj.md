@@ -36,7 +36,7 @@ Efektów medytacji nie zobaczymy od razu. Potrzebujemy zapoznać się z pods
 
 Dzięki medytacjom nasze ciało **(SOMA)** ulega ciekawym modyfikacjom. Wzmacnia się system odpornościowy organizmu dzięki redukcji stresu, spowalnia starzenie komórkowe dzięki dobremu natlenienie oraz zdecydowanie poprawia się jakość naszego snu. To wszystko daje więcej **ENERGII FIZYCZNEJ** co wpływa na jakość naszego życia. Nie bez znaczenia jest jej również pozytywny wpływ na funkcjonowanie organizmu, gdyż medytacja obniża tętno oraz ciśnienie krwi. To jednak nie wszystkie jej zalety.
 
-Nasz umysł i **ENERGIA INTELEKTUALNA** również czerpią korzyści z bycia „tu i teraz”. Poprawa koncentracji, zwiększenie produktywności, a co najważniejsze wpływ na budowanie relacji z innymi to tylko niektóre pozytywneelementy wpływu medytacji na rozwój energii intelektualnej. Jak widać medytacje mają bardzo przekrojowe działanie i warto je wprowadzić do naszej codziennej rutyny. Pełne odkrycie siebie oraz bycie w spójności ze swoim wartościami jest dwoistego rodzaju sztuką świadomego życia - sztuką uważności.
+Nasz umysł i **ENERGIA INTELEKTUALNA** również czerpią korzyści z bycia „tu i teraz”. Poprawa koncentracji, zwiększenie produktywności, a co najważniejsze wpływ na budowanie relacji z innymi to tylko niektóre pozytywne elementy wpływu medytacji na rozwój energii intelektualnej. Jak widać medytacje mają bardzo przekrojowe działanie i warto je wprowadzić do naszej codziennej rutyny. Pełne odkrycie siebie oraz bycie w spójności ze swoim wartościami jest dwoistego rodzaju sztuką świadomego życia - sztuką uważności.
 
 **Sztuka uważności**
 
