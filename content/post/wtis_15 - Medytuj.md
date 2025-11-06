@@ -10,7 +10,7 @@ _- Marek Aureliusz_
 
 **REGENERACJA ENERGII DUCHOWEJ**
 
-REGENERACJEA (SEN) ENERGII DUCHOWEJ (PSYCHE)**.** wydaje się być mocno nie intuicyjna. Sama przestrzeń duchowa jest przestrzenią abstrakcyjną, gdzie trudno o zmęczenie. Nic bardziej mylnego. To obszar, w którym poszukanie sposobu na regenerację może przynieść fantastyczne efekty a jednym z bardziej znanych sposobów regeneracji w tym obszarze jest medytacja.
+REGENERACJEA (SEN) ENERGII DUCHOWEJ (PSYCHE)**.** wydaje się być mocno nieintuicyjna. Sama przestrzeń duchowa jest przestrzenią abstrakcyjną, gdzie trudno o zmęczenie. Nic bardziej mylnego. To obszar, w którym poszukanie sposobu na regenerację może przynieść fantastyczne efekty a jednym z bardziej znanych sposobów regeneracji w tym obszarze jest medytacja.
 
 Medytacja (łac. meditation) oznacza zagłębienie się w swoich myślach. Jest praktykowana od czasów antycznych będąc jednocześnie bardzo często częścią tradycji religijnych. Jest kojarzona najbardziej z religiami dalekiego wschodu jednak co może być zaskakujące jest również obecna w chrześcijaństwie. Dla wielu kojarzona jest z jogą oraz coraz częściej wykorzystywana w psychologii. W obecnych czasach kojarzy się bardzo często z uważnością, czyli umiejętnością bycia tu i teraz. Dzięki byciu tu i teraz zwiększamy szanse na lepsze poznanie siebie oraz praktykujemy umiejętność skupienia się na jednej rzeczy. Nawiązując do słów Marka Aureliusza dzięki medytacji możemy uzyskać efekt pełnego odosobnienia. Nie potrzebujemy do tego niczego innego jak skupienia się na sobie oraz naszej wolnej woli.
 
