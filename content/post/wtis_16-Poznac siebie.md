@@ -1,5 +1,5 @@
 ---
-title: WTiS_15 - Medytuj
+title: WTiS_16 - Poznać siebie
 date: 2025-10-29T06:36:00
 description: WODA TLEN I SEN
 featured_image: /images/dust-pixels-niS4Tw40Ylc-unsplash.jpg
