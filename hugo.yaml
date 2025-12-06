@@ -19,7 +19,7 @@ menu:
     - name: BLOG
       url: /post
       weight: 2
-    - name: Pro-Fraszka
+    - name: POD-Fraszka
       url: /fraszka
       weight: 3
     - name: "TU ZACZNIJ"
