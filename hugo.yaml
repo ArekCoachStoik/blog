@@ -19,10 +19,13 @@ menu:
     - name: BLOG
       url: /post
       weight: 2
+    - name: Pro-Fraszka
+      url: /fraszka
+      weight: 3
     - name: "TU ZACZNIJ"
       url: /about
       weight: -1
     - name: "SKLEP"
       url: /SKLEP
-      weight: 3
+      weight: 4
 
