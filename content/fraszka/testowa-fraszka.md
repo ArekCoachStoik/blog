@@ -1,7 +1,17 @@
 ---
-title: testowa fraszka
-date: 2025-12-06T13:17:00
+title: GRZYBY
+date: 0002-10-10T13:17:00
 description: test
-featured_image: /images/alex-tokuda-W2f-4hZIpV8-unsplash.jpg
+featured_image: /images/IMG_2972.JPEG
 ---
-Oto test Pod-Fraszek
+Rano wcześniem wstali, na grzyby my pojechali
+
+Prawdziwków było mało więc do Zielonej ruszyliśmy śmiało
+
+Po drodze pizzeria, palmiarnia a win spróbowali my wielu
+
+Po to by na końcu wylądować na czyimś weselu
+
+Hotel butikowy, noc krótka za to śniadanie
+
+W naszej pamięci na długo zostanie.
