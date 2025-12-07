@@ -6,12 +6,12 @@ featured_image: /images/IMG_7257.JPEG
 ---
 **Rano wcześniem wstali, na grzyby my pojechali**
 
-**Prawdziwków było mało więc do Zielonej ruszyliśmy śmiało**
+**a że prawdziwków było mało do Zielonej ruszyli my śmiało**
 
-**Po drodze pizzeria, palmiarnia a win spróbowali my wielu**
+**Po drodze pizzeria, palmiarnia, win spróbowali my wielu**
 
-**Po to by na końcu wylądować na czyimś weselu**
+**Po to by aby na końcu wylądować na czyimś weselu**
 
-**Hotel butikowy, noc krótka za to śniadanie**
+**Hotel butikowy, noc krótka, przepyszne śniadanie**
 
-**W naszej pamięci na długo zostanie.**
+**To grzybobranie na długo w pamięci zostanie.**
