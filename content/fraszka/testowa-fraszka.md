@@ -14,4 +14,4 @@ featured_image: /images/IMG_7257.JPEG
 
 **Hotel butikowy, noc krótka, przepyszne śniadanie**
 
-**To grzybobranie na długo w pamięci zostanie.**
+**To **"**grzybobranie" na długo w pamięci zostanie.**
