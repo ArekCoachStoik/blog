@@ -1,8 +1,8 @@
 ---
 title: '#2 - OLBRZYM'
 date: 2024-10-18T10:10:00
-description: '#2'
-featured_image: /images/lukas-tennie-eaaSAXtmQBU-unsplash.jpg
+description: Międzywodzie
+featured_image: /images/simona-toma-L5jJjkNYe8A-unsplash.jpg
 ---
 **Olbrzym czy Księżyc o to pytanie**
 
