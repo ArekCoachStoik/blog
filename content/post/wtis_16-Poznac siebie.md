@@ -9,7 +9,7 @@ _„Mądrość nie bierze się z czytania, ale z przemyśleń nad_ _przec
 
 _Carl Hilty_
 
-**Poznanie siebie zależy od od Ciebie**
+**Poznanie siebie zależy od Ciebie**
 
 Zacznę od dobrych wiadomości. Czytelnicy mojego bloga już wiedzą, że jeśli coś od nas zależy mamy nad tym pełną kontrolę. Nad procesem poznawania siebie właśnie ją mamy i tyle od nas zależy  na ile zdobytą o sobie wiedzę uda się przekuć w **mądrość** (ang. Wisdom). Mądrość, czyli praktyczną wiedzę do działania, które pozwoli poukładać Twój świat od nowa oraz uzupełni brakujące w nim elementy.
 
