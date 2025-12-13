@@ -7,29 +7,13 @@ draft: false
 ---
 _„Mądrość nie bierze się z czytania, ale z przemyśleń nad_ _przeczytanym_
 
-_Carl Hilty91_
+_Carl Hilty_
 
-Zaczynając ostatni rozdział chciałbym rozpocząć od podziękowań. Podziękowań dla Ciebie drogi czytelniku za zaufanie i dotarcie prawie do końca mojej książki. Bardzo jestem za to wdzięczny, a szczególnie dziękuję za **Twój czas,** który poświęciłeś na zapoznanie się z jej treścią. Dlaczego tak bardzo jestem za to wdzięczny. Patrząc po stoicku **czas** to jedyna “rzecz” jaka jest w naszym posiadaniu na którą mamy realny wpływ. Możemy go innym ofiarować, ale nikt nie jest w stanie nam go zwrócić. Nasz czas jest bezcenny i nie można go nigdzie dostać z powrotem, kupić czy wygrać.
+**Poznanie siebie zależy od od Ciebie**
 
-91 Carl Andreas Hilty (28 Luty 1833 – 12 Październik 1909) szwajcarski prawnik, prawnik konstytucjonalista, polityk, filozof, pisarz.
+Zacznę od dobrych wiadomości. Czytelnicy mojego bloga już wiedzą, że jeśli coś od nas zależy mamy nad tym pełną kontrolę. Nad procesem poznawania siebie mamy pełną kontrolę i tyle od nas zależy  na ile zdobytą o sobie wiedzę uda się przekuć w **mądrość** (ang. Wisdom). Mądrość, czyli praktyczną wiedzę do działania, które pozwoli poukładać Twój świat od nowa oraz uzupełni brakujące w nim elementy.
 
-149
-
-Z każdą upływającą chwilą zostaje nam go coraz mniej, dlatego powinniśmy wkładać dużo wysiłku w to, aby wykorzystywać go jak najlepiej. O tym, że jest w naszym całkowitym posiadaniu i tylko od nas zależy jak dobrze go wykorzystamy pisał pięknie Seneka w I Liście Moralnym do Lucyliusza.
-
-Podsumowując powyższe, żywię głęboką nadzieję, że **czas** jaki wykorzystałeś na zapoznanie się z “filozofią” **Woda, Tlen iSen** był wart twojego bezcennego czasu. Starałem się, aby w jak najprostszy sposób wyjaśnić wszystkie aspekty mojej filozofii życia, które są efektem wieloletnich doświadczeń i pogłębionych refleksji. Mam nadzieje, że dzięki mojemu wysiłkowi idea “filozofii” WTiS trafiła również do Ciebie i masz ochotę na więcej.
-
-Teraz po przeczytaniu wszystkich rozdziałów nadchodzi kluczowy moment, w którym potrzebna jest Twoja refleksja i swoistego rodzaju przegląd siebie. Muszę uprzedzić, że jeśli chcesz zrobić to jakościowo dobrze będzie do tego potrzebny pewien wysiłek, gdyż z założenia idea mojej “filozofii” jest taka, że ma być bardzo praktyczna. Czas na TLEN, czyli DZIAŁANIE - zaczynamy!
-
-**Przegląd siebie zależy od Ciebie**
-
-Mając na uwadze początkowy cytat Carla Hilty dość oczywiste jest to, że tylko od Ciebie zależy, na ile to co przeczytałeś uda się przerobić w **mądrość** (ang. Wisdom). Mądrość, czyli praktyczną wiedzę do działania, które
-
-150
-
-pozwoli poukładać Twój świat od nowa oraz uzupełni brakujące w nim elementy.
-
-Po pierwsze niezbędna będzie umiejętność skupienia się na jednej rzeczy, o której już wcześniej pisałem. Następnie ważnym krokiem jest konieczność zarezerwowania w swoim kalendarzu czasu z samym sobą po to by ocenić kondycję poszczególnych elementów “filozofii” WTiS w swoim życiu. Nie spiesz się, zrób to refleksyjnie z godną stoickiego mędrca **odwagą** (ang. Courage). Niech Twoja ocena wynika z przemyśleń i będzie **sprawiedliwa** (ang. Justice). Taki przegląd siebie pozwoli Ci na podjęcie odpowiednich kroków „tu i teraz”. Dodatkowo dzięki Twojej **wstrzemięźliwości** (ang. Temperance) w stosunku do dotychczasowych nawyków i działań twoje życie nabierze odpowiedniej harmonii.
+Po pierwsze niezbędna będzie umiejętność refleksyjnego czasami bardzo krytycznego spojrzenia na nasze aktualne życie. Aby to zrobić musimy posiąść umiejętność skupienia się na jednej rzeczy - jak to zrobić pisałem w wpisie . Następnie ważnym krokiem jest konieczność zarezerwowania w swoim kalendarzu czasu z samym sobą po to by ocenić kondycję poszczególnych elementów “filozofii” WTiS w swoim życiu. Nie spiesz się, zrób to refleksyjnie z godną stoickiego mędrca **odwagą** (ang. Courage). Niech Twoja ocena wynika z przemyśleń i będzie **sprawiedliwa** (ang. Justice). Taki przegląd siebie pozwoli Ci na podjęcie odpowiednich kroków „tu i teraz”. Dodatkowo dzięki Twojej **wstrzemięźliwości** (ang. Temperance) w stosunku do dotychczasowych nawyków i działań twoje życie nabierze odpowiedniej harmonii.
 
 W ostatnim rozdziale pisałem dużo o uważności i zapewne uważni czytelnicy odkryli w moich ostatnich słowach nawiązanie do jednego z najważniejszych fundamentów myśli stoickiej **Summum bonum** czyli **Najwyższego** **dobra**. Dla przypomnienia według tej myśli osiągniecie najwyższego dobra (czyli najlepszej wersji siebie) jest możliwe, tylko wtedy, jeśli nasze życiowe decyzje opieramy o podkreślone powyżej wartości (cnoty) moralne. Stanowią one fundament spójnego i harmonijnego życia i odegrały krytyczną role podczas tworzenia całej “filozofii” Woda Tlen iSen. Rekomenduje, aby realizując przegląd siebie i ocenę stanu Twoich filarów harmonijnego życia zawsze opierać o się o ten sprawdzony fundament, który liczy już niemalże 2500 lat.
 
