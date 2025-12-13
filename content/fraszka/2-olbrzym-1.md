@@ -1,13 +1,17 @@
 ---
-title: '#2 - OLBRZYM'
+title: '#3 - LATO HORACEGO'
 date: 2024-10-18T10:10:00
-description: Międzywodzie
-featured_image: /images/anders-jilden-4izt8TxQmEs-unsplash.jpg
+description: Polska
+featured_image: /images/nicholas-bartos-Cl7UD2g1R0w-unsplash.jpg
 ---
-**Olbrzym czy Księżyc o to pytanie**
+**Cieszyć się chwilą, znaczy radować**
 
-**Jak na ten temat wyrobić zdanie**
+**Żyć pełnią życia nic nie żałować**
 
-**Przejść się po plaży na niebo spojrzeć**
+**Carpe diem mówisz, masz rację chyba**
 
-**I Księżyc Olbrzym nad morzem dojrzeć.**
+**Jeśli jej nie masz nie Twoja wina**
+
+**Horacy winę ponosi za to**
+
+**Ty ciesz się życiem przez całe lato**
