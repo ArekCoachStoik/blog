@@ -5,9 +5,7 @@ description: WODA TLEN I SEN
 featured_image: /images/paul-pastourmatzis-VQYK1he07Ow-unsplash.jpg
 draft: false
 ---
-_„Mądrość nie bierze się z czytania, ale z przemyśleń nad_ _przeczytanym_
-
-_Carl Hilty_
+_„Mądrość nie bierze się z czytania, ale z przemyśleń nad_ _przeczytanym - Carl Hilty_
 
 **Poznanie siebie zależy od Ciebie**
 
