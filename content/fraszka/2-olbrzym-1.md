@@ -1,6 +1,6 @@
 ---
 title: '#3 - LATO HORACEGO'
-date: 2024-10-18T10:10:00
+date: 2024-10-20T10:10:00
 description: Polska
 featured_image: /images/nicholas-bartos-Cl7UD2g1R0w-unsplash.jpg
 ---
