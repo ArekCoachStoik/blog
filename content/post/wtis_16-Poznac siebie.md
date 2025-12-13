@@ -20,19 +20,19 @@ W poprzednim wpisie WTiS_15 ostatnim rozdziale pisałem dużo o uważności i
 P**raktyczna “filozofia”**
 
 Jak zacząć? Między teorią a praktyką jest często przepaść. Dlatego od samego początku jak już wcześniej wspomniałem tworząc filozofię Woda Tlen iSen towarzyszyła mi jedna myśl, że musi ona być bardzo praktyczna.
-We wcześniejszych rozdziałach starałem się jak najprościej opisać i pogrupować 3 główne filary harmonijnego życia. Jak było to widać w wielu miejscach korzystałem z mądrych myśli filozofów, naukowców, przywódców narodowych czyduchowych. Chciałem w ten sposób zainspirować, ale również pokazać, że omawiane zagadnienia można łatwo połączyć z konkretnymi ludźmi, których życie pokazało jak praktycznie z nich korzystali.
+We wcześniejszych wpisach na blogu starałem się jak najprościej opisać i pogrupować 3 główne filary harmonijnego życia. Jak było to widać w wielu miejscach korzystałem z mądrych myśli filozofów, naukowców, przywódców narodowych czy duchowych. Chciałem w ten sposób zainspirować, ale również pokazać, że omawiane zagadnienia można łatwo połączyć z konkretnymi ludźmi, których życie pokazało jak praktycznie z nich korzystali.
 
-Wskazywałem również na techniki i narzędzia, które pomagają mi w ciągłej pracy nad sobą oraz książki, które według upodobań mogą pogłębić wiedzę ze wskazywanego przeze mnie obszaru. Każdy istotny fragment książki zawierał też krótkie podsumowanie z najważniejszymi według mnie myślami, które ostatecznie składają się na listę pytań, które można wykorzystać do przeglądu siebie.
+Wskazywałem również na techniki i narzędzia, które pomagają mi w ciągłej pracy nad sobą oraz książki, które według upodobań mogą pogłębić wiedzę ze wskazywanego przeze mnie obszaru. Każdego wpis opisujący 9 filarów harmonijnego życia zawierał też krótkie podsumowanie z najważniejszymi według mnie myślami, które ostatecznie składają się na listę pytań, które można wykorzystać do przeglądu siebie.
 
-Na początku książki zamieściłem matrycę “filozofii” Woda Tlen iSen w formie obrazkowej zagadki. Teraz przychodzi idealny czas na to, aby przedstawić tą samą matrycę w formie opisowej. Przedstawia ona jak 3 główne FILARY “filozofii” WODA TLEN iSEN się przenikają, uzupełniają i tworzą źródło ENERGII WITALNEJ.
+W zakładce WTiS na blogui zamieściłem matrycę “filozofii” Woda Tlen iSen w formie obrazkowej zagadki. Teraz przychodzi idealny czas na to, aby przedstawić tą samą matrycę w formie opisowej. Przedstawia ona jak 3 główne FILARY “filozofii” WODA TLEN iSEN się przenikają, uzupełniają i tworzą filary ENERGII WITALNEJ.
 
 ![](/images/Image%2013-12-2025%20at%2007.58.jpg)
 
-Postanowiłem przedstawić to w takiej formie, gdyż chciałem w maksymalnie prosty i intuicyjny sposób usystematyzować multi-dyscyplinarną wiedzę opisaną w poprzednich rozdziałach. Dodatkowo taki układ daje możliwość prostej oceny oraz zidentyfikowanie obszarów, które wymagają szczególnej uwagi i zaangażowania. Jak zatem ocenić swoją kondycję energii witalnej w oparciu o 3 filary filozofii Woda Tlen iSen
+Postanowiłem przedstawić to w takiej formie, gdyż chciałem w maksymalnie prosty i intuicyjny sposób usystematyzować multi-dyscyplinarną wiedzę opisaną w poprzednich wpisach. Dodatkowo taki układ daje możliwość prostej oceny oraz zidentyfikowanie obszarów, które wymagają szczególnej uwagi i zaangażowania. Jak zatem ocenić swoją kondycję energii witalnej w oparciu o 3 filary filozofii Woda Tlen iSen
 
 **Jak ocenić swoją energię witalną.**
 
-Sposobów jest wiele możesz spróbować na podstawie powyższej matrycy zrobić to sam, zachęcam do pogłębienia wiedzy z poprzednich wpisów. Jeśli wydaje Ci się to zbyt złożone i chciałbyś uzyskać pomoc w tym temacie służę pomocą zachęcam do kontaktu - szczegóły w zakładce "Kontakt". Chętnie umówimy się na pierwszą darmową konsultację na której opowiem o moim autorskim teście energii witalnej oraz zasadach współpracy.
+Sposobów jest wiele możesz spróbować na podstawie powyższej matrycy zrobić to sam, zachęcam do pogłębienia wiedzy z poprzednich wpisów. Jeśli wydaje Ci się to zbyt złożone i chciałbyś uzyskać pomoc w tym temacie służę pomocą zachęcam do kontaktu - szczegóły w zakładce "Kontakt". Chętnie umówię się na pierwszą darmową konsultację na której opowiem o "filozofii" WODA TLEN i SEN oraz moim autorskim teście energii witalnej oraz zasadach współpracy.
 
 Niezależnie od sposobu oceny spójrz na nią z ciekawością - nie oceniaj się . Zaakceptuj to, że tak wygląda dzisiejsza kondycja Twojej energii witalnej oraz poszczególnych filarów WODA, TLEN iSEN. Jeśli jesteś z niej zadowolony fantastycznie, jeśli uważasz, że warto nad nią popracować niech aktualny stan będzie punktem wyjścia do codziennej pracy nad najlepszą wersją siebie.
 
