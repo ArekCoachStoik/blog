@@ -1,7 +1,7 @@
 ---
 title: '#1 - ZIELONE GRZYBY'
 date: 2024-10-12T13:58:00
-description: '#1'
+description: Zielona Góra
 featured_image: /images/IMG_7257.JPEG
 ---
 **Rano wcześniem wstali, na grzyby my pojechali**
