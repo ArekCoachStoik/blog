@@ -1,5 +1,5 @@
 ---
-title: WTiS_12 - Odpoczywaj
+title: WTiS_12 - Wypoczywaj
 date: 2025-07-29T00:00:00
 description: WODA TLEN I SEN
 featured_image: /images/andreas-bentele-86Z8FQN5QMY-unsplash.jpg
@@ -9,7 +9,7 @@ draft: false
 
 **REGENERACJA ENERGII INTELEKTUALNEJ**
 
-Poznaliśmy już magiczną rolę snu. Pozwala on nie tylko zregenerować siły naszego organizmu do działania, ale również konsoliduje i utrwala zdobytą wiedzę. Czy jednak tylko  sen wystarczy, aby nasza głowa była w stanie funkcjonować przez cały dzień? Niestety Jest to bardzo trudne, praktycznie niemożliwe. Ilość informacji i bodźców z jakim się zmagamy powoduje, że bardzo szybko ulegamy przemęczeniu i nasza głowa w związku z przemęczeniem zaczyna zwalniać. Dlatego proces kompleksowej regeneracji naszej energii **INTELEKTUALNEJ&#32;**odgrywa tak bardzo ważną rolę.
+Poznaliśmy już magiczną rolę snu. Pozwala on nie tylko zregenerować siły naszego organizmu do działania, ale również konsoliduje i utrwala zdobytą wiedzę. Czy jednak tylko  sen wystarczy, aby nasza głowa była w stanie funkcjonować przez cały dzień? Niestety Jest to bardzo trudne, praktycznie niemożliwe. Ilość informacji i bodźców z jakim się zmagamy powoduje, że bardzo szybko ulegamy przemęczeniu i nasza głowa w związku z przemęczeniem zaczyna zwalniać. Dlatego proces kompleksowej regeneracji naszej energii **INTELEKTUALNEJ **odgrywa tak bardzo ważną rolę.
 
 Czytają biografie więlu naukowców, autorów książek czy wynalazców łatwo odnaleźć wspólną metodę, dzięki której uzyskują oni wysoką  efektywność swojej pracy. Na czas twórczy przeznaczają oni zazwyczaj pierwsze 3-4h swojego dnia ze względu na postępującej zmęczenie i zmniejszającą się kreatywnością. Odkryli oni, że bardzo trudno przez cały dzień utrzymywać wysoką wydajność. Niek każdy jednak może sobie pozwolić na to by pracować tylko 4. godziny dziennie. Jak zatem uniknąć sytuacji kiedy  przez większą cześć dnia nasza głowa pracuje jak przeciążony procesor chłodzony warczącym wentylatorem.  Warto znaleźć sposób na to, aby kilkukrotnie w ciągu dnia znależć sposób by wykonać przysłowiowy "reset" naszej głowy. Tylko jak to zrobić? Jak skupić się tylko na tym? Tutaj pojawia się idea jednej rzeczy, która może w tym pomóc.
 
@@ -19,7 +19,7 @@ Czytają biografie więlu naukowców, autorów książek czy wynalazców �
 
 Zdjęcie Possessed Photography z Unspleash
 
-Koncepcja jednej rzeczy została dokładnie opisana w książce „One thing” Garego Kellera i Jaya Papasana. W dużym uproszczeniu przekreśla ono jednoznacznie ideę wielozadaniowości (multitaskingu), czyli efektywnego robienia wielu rzeczy na raz. Skupienie się na jednej najważniejszej rzeczy powoduje nieporównywalnie lepsze efekty. Zasadę tą stosują właśnie wspomniani przeze mnie wcześniej autorzy i twórcy, którzy skupiają całą swoją energię na tej jednej najistotniejszej rzeczy. 
+Koncepcja jednej rzeczy została dokładnie opisana w książce „One thing” Garego Kellera i Jaya Papasana. W dużym uproszczeniu przekreśla ono jednoznacznie ideę wielozadaniowości (multitaskingu), czyli efektywnego robienia wielu rzeczy na raz. Skupienie się na jednej najważniejszej rzeczy powoduje nieporównywalnie lepsze efekty. Zasadę tą stosują właśnie wspomniani przeze mnie wcześniej autorzy i twórcy, którzy skupiają całą swoją energię na tej jednej najistotniejszej rzeczy.
 
 Dlaczego nie można by jednak wykorzystać idei jednej rzeczy do świadomego skupienia się na wypoczynku. Jedna rzecz, czyli intencjonalne zaplanowane przerwy, które spowodują szybką regenerację. Ma to zadziałać jak ultraszybkie ładowanie samochodu elektrycznego, które często jest wspomagające do pełnego ładowania w domu. Ta jedna rzecz stosowana systematycznie otwiera przed nami przestrzeń do dalszego kreatywnego myślenia. Jedna rzecz - ale co dokładnie i jak długo robić, aby uzyskać opisany efekt?
 
