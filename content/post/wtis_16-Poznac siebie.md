@@ -1,6 +1,6 @@
 ---
 title: WTiS_16 - Poznać siebie
-date: 2025-12-29T06:36:00
+date: 2025-11-29T06:36:00
 description: WODA TLEN I SEN
 featured_image: /images/paul-pastourmatzis-VQYK1he07Ow-unsplash.jpg
 draft: false
@@ -34,7 +34,7 @@ Postanowiłem przedstawić to w takiej formie, gdyż chciałem w maksymalnie 
 
 **Jak ocenić swoją energię witalną.**
 
-Sposobów jest wiele możesz spróbować na podstawie powyższej matrycy zrobić to sam, zachęcam do pogłębienia wiedzy z poprzednich wpisów. Jeśli wydaje Ci się to zbyt złożone i chciałbyś uzyskać pomoc w tym temacie służę pomocą zachęcam do kontaktu - szczegóły w zakładce "Kontakt". Chętnie umówimy się na pierwszą darmową konsultację na której opowiem o moim autorskim teście energii witalnej oraz zasadach współpracy. 
+Sposobów jest wiele możesz spróbować na podstawie powyższej matrycy zrobić to sam, zachęcam do pogłębienia wiedzy z poprzednich wpisów. Jeśli wydaje Ci się to zbyt złożone i chciałbyś uzyskać pomoc w tym temacie służę pomocą zachęcam do kontaktu - szczegóły w zakładce "Kontakt". Chętnie umówimy się na pierwszą darmową konsultację na której opowiem o moim autorskim teście energii witalnej oraz zasadach współpracy.
 
 Niezależnie od sposobu oceny spójrz na nią z ciekawością - nie oceniaj się . Zaakceptuj to, że tak wygląda dzisiejsza kondycja Twojej energii witalnej oraz poszczególnych filarów WODA, TLEN iSEN. Jeśli jesteś z niej zadowolony fantastycznie, jeśli uważasz, że warto nad nią popracować niech aktualny stan będzie punktem wyjścia do codziennej pracy nad najlepszą wersją siebie.
 
