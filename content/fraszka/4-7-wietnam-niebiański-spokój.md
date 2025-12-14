@@ -1,53 +1,73 @@
 ---
-title: '#4/7 - NIEBIAŃSKI SPOKÓJ'
-date: 2024-11-09T10:10:00
-description: Phu Quoc
-featured_image: /images/IMG_4013.jpg
+title: '#4/8 - DELTA'
+date: 2024-11-12T10:10:00
+description: Delta Mekongu
+featured_image: /images/IMG_4103.jpg
 ---
-Czy filozof czy teolog
+Delta w matmie to różnica
 
-Dziś szczególnie zaś ekolog
+Czasem rzeka raz ulica
 
-Wskaże, że wszystko co zdrowe
+Przecież nie ma tu różnicy
 
-Naturalne, kolorowe
+Więc uchylam tajemnicy
 
-Daje spokój, wlewa wiarę
+Mekong w delcie fascynuje
 
-Że można, uszyć na miarę
+Swym ogromem imponuje
 
-Nie tylko luźne wakacje
+Daje kokos, cegłę, pracę
 
-Lecz życia, swego, narrację
+Wspomnień nigdy nie zatracę
 
-Konfucjusz już wieki temu
+Tajemnicza, kręta, długa
 
-Przekazał wiedzę chętnemu
+Przewodnika to zasługa
 
-Co robić, a co nie warto
+Że łodzią, rowerem, łódką
 
-By spokój i niebo otwarto
+Przygodę mamy nie krótką
 
-Niebiańska plaża , przed nami
+Taką uszytą na miarę
 
-Cudowny cień, pod palmami
+Na koniec, Sajgon dasz wiarę
 
-Spokój tu też znaleźliśmy
+Miasto ogromne jak rzeka
 
-Gdy Phu Quoc, opuściliśmy
+Coś w nim, jednak przecieka
 
-Szum i harmider powrócił
+Ho Chi Minh zrobił różnicę
 
-Nie dajmy, by nas zasmucił
+Deltę, wschodu nałożnicę
 
-Wspomnienia w głowie zostały
+Miasto walczy z nowym ładem
 
-Na trwałe, jak,  te morza skały
+Kolonialnym swym układem
 
-Prawda to , czy sen na jawie
+Czy zejdzie poniżej zera
 
-Skryty, w wietnamskiej kawie
+I będzie dla milionera
 
-To tylko od nas zależy
+Może Wietnamczyk, niezłomnie
 
-Kto w co i kiedy, uwierzy.
+Zadba o ojczyznę, ponownie
+
+Gdy zdejmą reżimu łapę
+
+To Sajgon wróci na mapę
+
+W pełnej swojej świetności
+
+Ku świata całego radości.
+
+Zostawmy tu politykę
+
+Zakończmy tą retorykę
+
+Wycieczka dobiega końca
+
+Wyjeżdżać żal tyle słońca
+
+Smaków, wrażeń, także ludzi
+
+Azja nigdy się nie znudzi!
