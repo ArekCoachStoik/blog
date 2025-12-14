@@ -1,5 +1,5 @@
 ---
-title: '#4/4 - WIETNAM (Morskie Góry)'
+title: '#4/4 - MORSKIE GÓRY'
 date: 2024-11-01T10:10:00
 description: Ha Long
 featured_image: /images/IMG_3451.jpg
