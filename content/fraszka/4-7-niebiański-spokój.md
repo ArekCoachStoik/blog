@@ -1,5 +1,5 @@
 ---
-title: '#4/7 - NIEBIAŃSKI SPOKÓj'
+title: '#4/7 - NIEBIAŃSKI SPOKÓJ'
 date: 2024-11-09T10:10:00
 description: Delta Mekongu / Sajgon
 featured_image: /images/IMG_4013.jpg
