@@ -2,7 +2,7 @@
 title: '#4 part 1 - WIETNAM'
 date: 2024-10-28T10:10:00
 description: Poznań - Urodziny
-featured_image: /images/nicholas-bartos-Cl7UD2g1R0w-unsplash.jpg
+featured_image: /images/IMG_3216.Jpg
 ---
 Urlop, wczasy, wypoczynek wreszcie na to czas
 
