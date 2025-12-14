@@ -1,14 +1,14 @@
 ---
 title: '#4 part 2 - WIETNAM (Hanoi)'
-date: 2024-10-28T10:10:00
+date: 2024-10-29T10:10:00
 description: Hanoi
 featured_image: /images/IMG_3141.jpg
 ---
-Ten dzień był długi a noc za krótka 
+Ten dzień był długi a noc za krótka
 
 Zanim świt, wcześnie była pobudka
 
-Stresu przed lotem było, a no i  
+Stresu przed lotem było, a no i
 
 Dubaj, stop over, a my w Hanoi
 
