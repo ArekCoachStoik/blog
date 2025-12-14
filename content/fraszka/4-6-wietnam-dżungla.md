@@ -1,7 +1,7 @@
 ---
 title: '#4/6 - WIETNAM (Dżungla)'
 date: 2024-11-06T10:10:00
-description: Ha Long
+description: My Son
 featured_image: /images/IMG_3645.jpg
 ---
 Z dżungli miejskiej uciekamy
