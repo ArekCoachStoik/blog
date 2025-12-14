@@ -4,22 +4,30 @@ date: 2024-10-30T10:10:00
 description: Hanoi
 featured_image: /images/IMG_3143.jpg
 ---
-Ten dzień był długi a noc za krótka
+Gdyby faraon żył dzisiaj jeszcze
 
-Zanim świt, wcześnie była pobudka
+W krokodylowe wrzuciłby kleszcze
 
-Stresu przed lotem było, a no i
+Człowieka który rzecz postanowił
 
-Dubaj, stop over, a my w Hanoi
+By wszystkie ryby, które wyłowił
 
-Jankes i Francuz chcieli tu rządzić
+Posłać żołnierzom do walki z wrogiem
 
-Lecz Wietnamczycy nie dali mącić
+Aby z niewoli zerwać nałogiem
 
-Żyją, pracują kraj swój kochają
+Chyba nie myślał HO CHI MINH wtedy
 
-Czy tylko szczęścia tutaj zaznają?
+Jakie na przyszłość stworzy potrzeby
 
-Odpowiedź na to jeszcze przed nami
+Potrzeby walki o wodza mądrość
 
-Któż to powie, tylko oni , sami.
+O ruski balsam i jego godność
+
+Biedny on teraz leży na wieki
+
+Tłum chodzi w koło i ma wypieki
+
+Lenin i Ho Chi chwałę to taką
+
+Zafundowali swoim rodakom !
