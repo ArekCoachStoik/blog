@@ -14,7 +14,7 @@ Od grubości, tak portfela, już to, zależy
 
 Bo rozległe, wybujałe, nasze, fantazje
 
-Gdy do tego dołożymy , istotną okazje
+Gdy do tego dołożymy , istotną okazje 
 
 Jak na przykład urodziny, ups pięćdziesiąte
 
