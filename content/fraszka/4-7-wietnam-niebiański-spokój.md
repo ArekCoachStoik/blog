@@ -1,65 +1,73 @@
 ---
-title: '#4/9 - TWARDE LĄDOWANIE'
-date: 2024-11-17T10:10:00
-description: Polska
-featured_image: /images/IMG_4318.jpg
+title: '#4/8 - DELTA'
+date: 2024-11-12T10:10:00
+description: Delta Mekongu / Sajgon
+featured_image: /images/IMG_4103.jpg
 ---
-W myślach moich wciąż jest Wietnam
+Delta w matmie to różnica
 
-Czy dam radę i to przetrwam
+Czasem rzeka raz ulica
 
-Gdyż na zewnątrz jest już plucha
+Przecież nie ma tu różnicy
 
-Pogodowa zawierucha
+Więc uchylam tajemnicy
 
-W pracy Sajgon dasz ty wiarę
+Mekong w delcie fascynuje
 
-Choć liczony w inną miarę
+Swym ogromem imponuje
 
-Taką mocno biznesową
+Daje kokos, cegłę, pracę
 
-A dość często obcesową
+Wspomnień nigdy nie zatracę
 
-Powrót powiem ci o Panie
+Tajemnicza, kręta, długa
 
-Jak to twarde lądowanie
+Przewodnika to zasługa
 
-Najlepszemu się to zdarza
+Że łodzią, rowerem, łódką
 
-Biuro, praca to nie plaża
+Przygodę mamy nie krótką
 
-Trzeba jakoś dać tu radę
+Taką uszytą na miarę
 
-Chwycić epicką poradę
+Na koniec, Sajgon dasz wiarę
 
-Carpe diem i prosta sprawa
+Miasto ogromne jak rzeka
 
-Choć to praca nie zabawa
+Coś w nim, jednak przecieka
 
-Wszystko siedzi w naszej głowie
+Ho Chi Minh zrobił różnicę
 
-Każdy mądry to podpowie
+Deltę, wschodu nałożnicę
 
-Jak tu jednak nie zwariować
+Miasto walczy z nowym ładem
 
-I z tej troski nie chorować
+Kolonialnym swym układem
 
-Planuj wyjazd zwlekać szkoda
+Czy zejdzie poniżej zera
 
-Wtedy życie to przygoda
+I będzie dla milionera
 
-Mieć w zanadrzu dobry plan
+Może Wietnamczyk, niezłomnie
 
-Zebrać swój rodzinny klan
+Zadba o ojczyznę, ponownie
 
-Wszystkich którzy Cię kochają
+Gdy zdejmą reżimu łapę
 
-I radością swą pałają
+To Sajgon wróci na mapę
 
-Wtedy każde lądowanie
+W pełnej swojej świetności
 
-To przystanek, kołowanie
+Ku świata całego radości.
 
-Do kolejnej wnet przygody
+Zostawmy tu politykę
 
-Pełnej słońca i pogody.
+Zakończmy tą retorykę
+
+Wycieczka dobiega końca
+
+Wyjeżdżać żal tyle słońca
+
+Smaków, wrażeń, także ludzi
+
+Azja nigdy się nie znudzi!
