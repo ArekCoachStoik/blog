@@ -1,5 +1,5 @@
 ---
-title: '#4/5 - WIETNAM (Kazik)'
+title: '#4/5 - KAZIK'
 date: 2024-11-04T10:10:00
 description: Hoi An
 featured_image: /images/IMG_3561.jpg
