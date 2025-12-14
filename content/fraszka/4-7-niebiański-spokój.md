@@ -1,6 +1,6 @@
 ---
 title: '#4/7 - NIEBIAŃSKI SPOKÓj'
-date: 2024-11-12T10:10:00
+date: 2024-11-09T10:10:00
 description: Delta Mekongu / Sajgon
 featured_image: /images/IMG_4013.jpg
 ---
@@ -32,7 +32,7 @@ Niebiańska plaża , przed nami
 
 Cudowny cień, pod palmami
 
-Spokój tu też znaleźliśmy 
+Spokój tu też znaleźliśmy
 
 Gdy Phu Quoc, opuściliśmy
 
@@ -48,6 +48,6 @@ Prawda to , czy sen na jawie
 
 Skryty, w wietnamskiej kawie
 
-To tylko od nas zależy 
+To tylko od nas zależy
 
 Kto w co i kiedy, uwierzy.
