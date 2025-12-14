@@ -15,7 +15,7 @@ Zacznę od dobrych wiadomości. Czytelnicy mojego bloga już wiedzą, że jeśli
 
 Po pierwsze aby tak się stało niezbędna będzie umiejętność refleksyjnego - czasami bardzo krytycznego spojrzenia na nasze aktualne życie. Aby to zrobić musimy posiąść umiejętność skupienia się na jednej rzeczy - jak to zrobić pisałem w wpisie "WTiS_12 Wypoczywaj".
 
-Następnym ważnym kolejnym krokiem jest konieczność zarezerwowania w swoim kalendarzu czasu z samym sobą. To jest ten unikalny moment, kiedy możesz ocenić kondycję poszczególnych jego elementów, a mam nadzieje że zrobienie tego w oparciu o fundamenty _ “filozofii” _** WODA TLEN iSEN** pozwoli ten bezcenny czas dobrze wykorzystać.
+Następnym ważnym kolejnym krokiem jest konieczność zarezerwowania w swoim kalendarzu czasu z samym sobą. To jest ten unikalny moment, kiedy możesz ocenić kondycję poszczególnych elementów swojego życia -  i mam nadzieje że zrobienie tego w oparciu o fundamenty _“filozofii”_ **WODA TLEN iSEN** pozwolą ten bezcenny czas dobrze wykorzystać.
 
 Nie spiesz się, zrób to refleksyjnie z godną stoickiego mędrca **odwagą** (ang. Courage). Niech Twoja ocena wynika z przemyśleń i będzie **sprawiedliwa** (ang. Justice). Taki przegląd siebie pozwoli Ci na podjęcie odpowiednich kroków „tu i teraz”. Dodatkowo dzięki Twojej **wstrzemięźliwości** (ang. Temperance) w stosunku do dotychczasowych nawyków i działań twoje życie nabierze odpowiedniej harmonii.
 
