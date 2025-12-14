@@ -1,6 +1,6 @@
 ---
 title: '#4/6 - WIETNAM (Dżungla)'
-date: 2024-11-02T10:10:00
+date: 2024-11-06T10:10:00
 description: Ha Long
 featured_image: /images/IMG_3645.jpg
 ---
@@ -22,7 +22,7 @@ Przed nami ludzi peleton
 
 Nie zniechęca nas to wcale
 
-Do celu, dążyć, wytrwale 
+Do celu, dążyć, wytrwale
 
 A gdy oczy ciut przymknięte
 
@@ -74,7 +74,7 @@ Punkt na mapie na wakacje
 
 Dżungla odda to co wzięła
 
-Czas przywróci świetność dzieła 
+Czas przywróci świetność dzieła
 
 Czy to będzie jednak trwałe
 
@@ -82,7 +82,7 @@ Bo z naturą szanse małe
 
 Wielu się już siłowało
 
-Lecz z żywiołem nie wygrało 
+Lecz z żywiołem nie wygrało
 
 Spójrzmy na to refleksyjnie
 
