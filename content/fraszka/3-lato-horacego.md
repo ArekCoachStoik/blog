@@ -1,7 +1,7 @@
 ---
-title: '#4/1 - WIETNAM (Urlodziny)'
+title: '#4/1 - URLODZINY'
 date: 2024-10-28T10:10:00
-description: Poznań - Urlodziny
+description: Poznań
 featured_image: /images/IMG_3216.Jpg
 ---
 Urlop, wczasy, wypoczynek wreszcie na to czas
