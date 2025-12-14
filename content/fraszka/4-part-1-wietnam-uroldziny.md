@@ -1,5 +1,5 @@
 ---
-title: '#4 part 2 - WIETNAM (Hanoi)'
+title: '#4/2 - WIETNAM (Hanoi)'
 date: 2024-10-29T10:10:00
 description: Hanoi
 featured_image: /images/IMG_3141.jpg
