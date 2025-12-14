@@ -4,38 +4,50 @@ date: 2024-11-02T10:10:00
 description: Ha Long
 featured_image: /images/IMG_3561.jpg
 ---
-Czy stoi za tym jakaś logika
+Jak nie być dumnym z bycia Polakiem
 
-Wszystko co piękne tak szybko znika
+Patrząc na pomnik z naszym rodakiem
 
-Zanim zniknęło nas pochłonęło
+Znajdziemy w HOI AN pomnik Kazika
 
-Skąd się to wszystko nagle tu wzięło
+Tak, Architekta nie zaś muzyka
 
-Morze i góry, góry i morze
+Jan pewnie Kazia dobrze kojarzył
 
-Może smoczysko tutaj pomoże
+O odkrywaniu świata też marzył
 
-Zwierz to olbrzymi ma wielkie moce
+To nie architekt lecz Pan inżynier
 
-Te cuda stworzył w HA LONG zatoce
+Zwykłego życia on uciekinier
 
-Mimo, że wszystko to z oczu znika
+Wspominam jego gdyż to mój father
 
-Zostanie w myślach, jak ta muzyka
+Chciał być niezłomny jak nasz bohater
 
-Góry i morze, gwiazdy i słońce
+Teraz gdy patrzy na wszystko z góry
 
-Wietnamski Jing Yang ma różne końce
+Jest przeszczęśliwy a nie ponury
 
-Różne lecz takie nierozerwalne
+Co Kazikowi zaś zawdzięczamy 
 
-W harmonii piękne i nie banalne.
+Co dla potomnym tutaj dziś mamy
 
-Tai chi w swych ruchach wszystko pokaże
+Dzięki to nie mu starówka stoi
 
-Nada sens życiu, troski wymaże.
+Dał cynk komuchom ze nie przystoi
 
-Nostalgia wszystkich nas ogarnęła
+Coś tak pięknego od tak skasować
 
-Oby jak statek nie odpłynęła
+I pomógł perłę tą uratować.
+
+Świat się już poznał, UNESCO wysłał
+
+A cud Wietnamski na listę wpisał
+
+Spieszmy się poznać uroki jego
+
+Nim tłum przemieni oblicze tego
+
+Co najpiękniejsze i naturalne
+
+Odarte z blichtru i wiele warte.
