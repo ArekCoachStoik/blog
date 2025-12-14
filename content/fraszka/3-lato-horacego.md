@@ -1,17 +1,61 @@
 ---
-title: '#3 - LATO HORACEGO'
-date: 2024-10-20T10:10:00
-description: Polska
+title: '#4 part 1 - WIETNAM'
+date: 2024-10-28T10:10:00
+description: Poznań - Urodziny
 featured_image: /images/nicholas-bartos-Cl7UD2g1R0w-unsplash.jpg
 ---
-**Cieszyć się chwilą, znaczy radować**
+Urlop, wczasy, wypoczynek wreszcie na to czas
 
-**Żyć pełnią życia nic nie żałować**
+Można spędzić go dowolnie choćby nura w las
 
-**Carpe diem mówisz, masz rację chyba**
+Co począć gdy ambicja dalej niż w las mierzy
 
-**Jeśli jej nie masz nie Twoja wina**
+Od grubości, tak portfela, już to, zależy
 
-**Horacy winę ponosi za to**
+Bo rozległe, wybujałe, nasze, fantazje
 
-**Ty ciesz się życiem przez całe lato**
+Gdy do tego dołożymy , istotną okazje
+
+Jak na przykład urodziny, ups pięćdziesiąte
+
+Wszystko pokręcone, jak piąte przez dziesiąte
+
+Ważne pytanie, urlop to czy urodziny?
+
+Myśl przewrotna podpowie, że to „urlodziny”
+
+Hedoniczna adaptacja szepce drogi plan
+
+Wietnam, Azja , głównie hotel, a nie tani van
+
+Jak tu uciec z tej planety gdzie jest pot i znój
+
+Planet Escape tak od ręki daje plan jak mój
+
+Nie zwlekajmy, czas już nadszedł by ruszyć w drogę
+
+Dotrzeć tam gdzie nieznane, swą postawić nogę.
+
+Hej przygodo, my ruszamy zabawy już czas
+
+Ważne tylko czy wyprawa uszyta w sam raz ?
+
+Troski tu zostawiamy, w duchu już pogoda
+
+Żyjmy chwilą , cieszmy się, spotka nas przygoda
+
+W każdej chwili niech pamięć nam to przypomina
+
+Nie ważne gdzie, jak drogo , czy wesoła mina
+
+Ważne by mieć koło siebie ludzi dobrej woli
+
+To urlop prosty w lesie nas też zadowoli
+
+Nie tym razem choć do lasu pewnie zajrzymy
+
+Las ten dżunglą się okaże na to liczymy
+
+Wszystko spakowane, dobre mamy humory
+
+Od rana wskakujemy na podróży tory.
