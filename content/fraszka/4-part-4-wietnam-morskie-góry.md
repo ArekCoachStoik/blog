@@ -1,5 +1,5 @@
 ---
-title: '#4 part 4 - WIETNAM (Morskie Góry)'
+title: '#4/4 - WIETNAM (Morskie Góry)'
 date: 2024-11-01T10:10:00
 description: Ha Long
 featured_image: /images/IMG_3451.jpg
@@ -8,7 +8,7 @@ Czy stoi za tym jakaś logika
 
 Wszystko co piękne tak szybko znika
 
-Zanim zniknęło nas pochłonęło 
+Zanim zniknęło nas pochłonęło
 
 Skąd się to wszystko nagle tu wzięło
 
@@ -32,7 +32,7 @@ Różne lecz takie nierozerwalne
 
 W harmonii piękne i nie banalne.
 
-Tai chi w swych ruchach wszystko pokaże 
+Tai chi w swych ruchach wszystko pokaże
 
 Nada sens życiu, troski wymaże.
 
