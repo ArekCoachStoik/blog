@@ -1,5 +1,5 @@
 ---
-title: '#4/6 - WIETNAM (Dżungla)'
+title: '#4/6 - DŻUNGLA'
 date: 2024-11-06T10:10:00
 description: My Son
 featured_image: /images/IMG_3645.jpg
