@@ -1,6 +1,6 @@
 ---
 title: '#4/5 - WIETNAM (Kazik)'
-date: 2024-11-02T10:10:00
+date: 2024-11-04T10:10:00
 description: Ha Long
 featured_image: /images/IMG_3561.jpg
 ---
@@ -28,7 +28,7 @@ Teraz gdy patrzy na wszystko z góry
 
 Jest przeszczęśliwy a nie ponury
 
-Co Kazikowi zaś zawdzięczamy 
+Co Kazikowi zaś zawdzięczamy
 
 Co dla potomnym tutaj dziś mamy
 
