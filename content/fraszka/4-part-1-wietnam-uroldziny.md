@@ -1,61 +1,25 @@
 ---
-title: '#4 part 1 - WIETNAM (Uroldziny)'
+title: '#4 part 2 - WIETNAM (Hanoi)'
 date: 2024-10-28T10:10:00
-description: Poznań - Urlodziny
-featured_image: /images/IMG_3216.Jpg
+description: Hanoi
+featured_image: /images/IMG_3141.jpg
 ---
-Urlop, wczasy, wypoczynek wreszcie na to czas
+Ten dzień był długi a noc za krótka 
 
-Można spędzić go dowolnie choćby nura w las
+Zanim świt, wcześnie była pobudka
 
-Co począć gdy ambicja dalej niż w las mierzy
+Stresu przed lotem było, a no i  
 
-Od grubości portfela, tylko to  zależy
+Dubaj, stop over, a my w Hanoi
 
-Bo rozległe, wybujałe, są dziś fantazje
+Jankes i Francuz chcieli tu rządzić
 
-Gdy do tego dołożymy , istotną okazje
+Lecz Wietnamczycy nie dali mącić
 
-Jak na przykład urodziny, ups pięćdziesiąte
+Żyją, pracują kraj swój kochają
 
-Wszystko pokręcone, jak piąte przez dziesiąte
+Czy tylko szczęścia tutaj zaznają?
 
-Ważne pytanie, urlop to czy urodziny?
+Odpowiedź na to jeszcze przed nami
 
-Myśl przewrotna podpowie, że to „urlodziny”
-
-Hedoniczna adaptacja szepce drogi plan
-
-Wietnam, Azja , głównie hotel, a nie tani van
-
-Jak tu uciec z tej planety gdzie jest pot i znój
-
-Planet Escape tak od ręki daje plan jak mój
-
-Nie zwlekajmy, czas już nadszedł by ruszyć w drogę
-
-Dotrzeć tam gdzie nieznane, swą postawić nogę.
-
-Hej przygodo, my ruszamy zabawy już czas
-
-Ważne tylko czy wyprawa uszyta w sam raz ?
-
-Troski tu zostawiamy, w duchu już pogoda
-
-Żyjmy chwilą , cieszmy się, spotka nas przygoda
-
-W każdej chwili niech pamięć nam to przypomina
-
-Nie ważne gdzie, jak drogo , czy wesoła mina
-
-Ważne by mieć koło siebie ludzi dobrej woli
-
-To urlop prosty w lesie nas też zadowoli
-
-Nie tym razem choć do lasu pewnie zajrzymy
-
-Las ten dżunglą się okaże na to liczymy
-
-Wszystko spakowane, dobre mamy humory
-
-Od rana wskakujemy na podróży tory.
+Któż to powie, tylko oni , sami.
