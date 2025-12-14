@@ -1,7 +1,7 @@
 ---
 title: '#4 part 1 - WIETNAM'
 date: 2024-10-28T10:10:00
-description: Poznań - Urodziny
+description: Poznań - Urlodziny
 featured_image: /images/IMG_3216.Jpg
 ---
 Urlop, wczasy, wypoczynek wreszcie na to czas
@@ -14,7 +14,7 @@ Od grubości, tak portfela, już to, zależy
 
 Bo rozległe, wybujałe, nasze, fantazje
 
-Gdy do tego dołożymy , istotną okazje 
+Gdy do tego dołożymy , istotną okazje
 
 Jak na przykład urodziny, ups pięćdziesiąte
 
