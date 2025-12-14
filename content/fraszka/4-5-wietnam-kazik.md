@@ -1,7 +1,7 @@
 ---
 title: '#4/5 - WIETNAM (Kazik)'
 date: 2024-11-04T10:10:00
-description: Ha Long
+description: Hoi An
 featured_image: /images/IMG_3561.jpg
 ---
 Jak nie być dumnym z bycia Polakiem
