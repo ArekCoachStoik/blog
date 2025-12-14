@@ -10,9 +10,9 @@ Można spędzić go dowolnie choćby nura w las
 
 Co począć gdy ambicja dalej niż w las mierzy
 
-Od grubości, tak portfela, już to, zależy
+Od grubości portfela, tylko to  zależy
 
-Bo rozległe, wybujałe, nasze, fantazje
+Bo rozległe, wybujałe, są dziś fantazje
 
 Gdy do tego dołożymy , istotną okazje
 
