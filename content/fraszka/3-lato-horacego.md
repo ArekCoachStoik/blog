@@ -1,5 +1,5 @@
 ---
-title: '#4 part 1 - WIETNAM'
+title: '#4 part 1 - WIETNAM (Urlodziny)'
 date: 2024-10-28T10:10:00
 description: Poznań - Urlodziny
 featured_image: /images/IMG_3216.Jpg
