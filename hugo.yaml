@@ -24,7 +24,3 @@ menu:
     - name: "TU ZACZNIJ"
       url: /about
       weight: -1
-    - name: "sklep"
-      url: /SKLEP
-      weight: 4
-
