@@ -1,6 +1,6 @@
 ---
 title: '#5 - DOBA W TRIO'
-date: 2024-11-17T10:10:00
+date: 2024-12-07T10:10:00
 description: Gdańsk-Spot-Gdynia
 featured_image: /images/IMG_4427 Small.jpeg
 ---
