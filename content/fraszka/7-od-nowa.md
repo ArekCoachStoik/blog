@@ -2,7 +2,7 @@
 title: '#7 - OD NOWA'
 date: 2024-12-29T10:10:00
 description: Karkonosze-Łomnica-Karpacz
-featured_image: /images/IMG_4481 Small.jpeg
+featured_image: /images/IMG_4630 Small.jpeg
 ---
 1	Sudety, góry Karkonosze, widok na szczyt
 
@@ -26,13 +26,13 @@ featured_image: /images/IMG_4481 Small.jpeg
 
 11	Tam, tu za rogiem, Szwajcaria skrzętnie się chowa
 
-12	Helwetów mało, ale szarlotka gotowa 
+12	Helwetów mało, ale szarlotka gotowa
 
 13	Stąd dwa kroki, krótka wspinaczka, szczyt zdobyty
 
 14	Krzyż na nim stoi, dumny, rdzą lekko pokryty
 
-15	To Krzyżna Góra, a nie wspominany Sokolik 
+15	To Krzyżna Góra, a nie wspominany Sokolik
 
 16 	Zdobyć da radę każdy, nie tylko Katolik
 
@@ -50,7 +50,7 @@ featured_image: /images/IMG_4481 Small.jpeg
 
 23	To ich duma i radość, patrzą jak świat chłoną
 
-24	Kiedy od zimna po morsowaniu zapłoną 
+24	Kiedy od zimna po morsowaniu zapłoną
 
 25	Radością, swojego życia, nowym odkryciem
 
@@ -100,14 +100,13 @@ featured_image: /images/IMG_4481 Small.jpeg
 
 48	Stroje galowe, szampan, sernik Emi ekstraklasa
 
-49	Dzień się kończy rok cały za chwile odchodzi 
+49	Dzień się kończy rok cały za chwile odchodzi
 
 50	Zacznijmy coś od nowa bo jesteśmy „młodzi”
 
 51	Młodzi duchem bo prawda jest to oczywista
 
 52	Kto jak myśli o sobie tak z życia korzysta.
-
 
 LEGENDA:
 
