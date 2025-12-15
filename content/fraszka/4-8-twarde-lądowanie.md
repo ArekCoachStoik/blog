@@ -63,3 +63,5 @@ To przystanek, kołowanie
 Do kolejnej wnet przygody
 
 Pełnej słońca i pogody.
+
+![](/images/3filary.jpg)
