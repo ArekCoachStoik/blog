@@ -20,7 +20,7 @@ featured_image: /images/IMG_4630 Small.jpeg
 
  8	Dobrze znany przewodnik, do nas dołączy
 
- 9  	Żwawo ruszamy, pod górkę, przez las, od nowa
+ 9  Żwawo ruszamy, pod górkę, przez las, od nowa
 
 10	Zanim szczyt zdobędziemy taka oto mowa
 
@@ -108,7 +108,7 @@ featured_image: /images/IMG_4630 Small.jpeg
 
 52	Kto jak myśli o sobie tak z życia korzysta.
 
-LEGENDA:
+**LEGENDA:**
 
 1-5  		Wspomnienia z podróży w Karkonosze na Sylwestra/Nowy Rok 2025
 
