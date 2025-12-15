@@ -1,127 +1,155 @@
 ---
-title: '#5 - DOBA W TRIO'
-date: 2024-12-07T10:10:00
+title: '#6 - GÓRSKIE MORZE'
+date: 2024-12-21T10:10:00
 description: Gdańsk-Spot-Gdynia
-featured_image: /images/IMG_4427 Small.jpeg
+featured_image: /images/IMG_4481 Small.jpeg
 ---
-1 	Gdy karnawał jedź do Rio
+1	Czas to świąteczny, bardzo wesoły
 
- 2	Jak jarmarki skocz do Trio
+ 2	“Dzieci” w te pędy wyszły ze “szkoły”
 
- 3	Gdzie to Trio zapytacie
+ 3	Bo start podróży, szybko się zbliża
 
- 4	Na północy siostro, bracie
+ 4	Wielkich emocji, nic nie obniża
 
- 5	Nie, nie o Laponię chodzi
+ 5	Zwłaszcza, że w góry żwawo ruszamy
 
- 6	Choć dopłynąć można w łodzi
+ 6	Do Białki dzisiaj, my dojeżdżamy
 
- 7	My do pociągu wbijamy
+ 7	Już prawie północ, do łóżek iść czas
 
- 8	I przygodę zaczynamy
+ 8	Góralski Resort ugości dziś nas
 
- 9	Gdańsk to miasto jest epickie
+ 9	Wstajemy rano, szybkie śniadanie
 
-10	Piękne, dumne, poetyckie
+10	Areczek w aucie ciśnie zebranie
 
-11	Hanza charakter nadała
+11	Droga dość bliska, za to cudowna
 
-12	A Korona żuraw dała
+12	Tatr naszych wielkość, bardzo wymowna
 
-13	Miasto w tempie się rozwija
+13	Polana Łysa szybko minięta
 
-14	Charakteru nie zabija
+14	Parkingu w lesie, nikt nie pamięta
 
-15	A do tego w czas grudniowy
+15	Wycieczkę w gór głąb, tu zaczynamy
 
-16	Przyozdabia w jarmark nowy
+16	Uroku Karpat ,zaraz zaznamy
 
-17	Kiedy grzańca już wypijesz
+17	Góry już widać w swym majestacie
 
-18	Oraz dwór Artusa miniesz
+18	Po Rysach szczytów je rozpoznacie
 
-19	SKMka obok czeka
+19	Na trasie ślisko gdyż zrobił się lód
 
-20	W niej tłum ludzi jak ta rzeka
+20	Ludzi i koni niestety jest w bród
 
-21	Dalej dziś nią popłyniemy
+21	Szlaku meandry z bicza mijają
 
-22	Do Sopotu dojedziemy
+22	Góry potęgę swą ujawniają
 
-23   Sopot TRIA to środeczek
+24	Lecz zaraz, o co tu biegać może
 
-24	Spina TRIO jak zameczek
+25	Wszyscy turyści mówią że morze
 
-25	Wille jak małe pałace
+26	Do tego oko, już wszystko jasne
 
-26	Chyba tutaj się zatracę
+27	To Morskie Oko, Polaków własne
 
-27	Molo, plaża kurort piękny
+28	Grzaniec, szarlotka i naleśniczek
 
-28	Bursztyn na palcu domknięty
+29	Zestaw góralskich to miłośniczek
 
-29	Czas TRIO nasze dokończyć
+30	Czas się zatrzymał, jak stąd się zabrać
 
-30	W SKMke znów się włączyć
+31	Wspomnień i fotek trzeba wnet nabrać
 
-31	Stacja Gdynia czas wysiadać
+32	Droga na parking , dość szybko mija
 
-32	Miasto nowe co tu gadać
+33	Nagle z zakrętu osioł nam wbija
 
-33	Stąd modernizm tu znajdziemy
+34	Wszyscy w zdziwieniu patrzą przed siebie
 
-34	Zanim do morza dojdziemy
+35	Piękna poświata odbija w niebie
 
-35	Dar tam piękny przycumował
+36	Jak by jelenia a nie osiołka
 
-36	By Pomorze nam promował
+37	I to nam wleci, do wspomnień tobołka
 
-37	Koniec tutaj tej przygody
+38	Jedno jest pewne górska przyroda
 
-38	Pożegnamy morza wody
+39	Za chaos miejski piękna nagroda
 
-39	Pięknym słońcem na suficie
+40	My jednak chcemy zwiedzić też miasto
 
-40	Dworca Gdynia to odkrycie
+41	Wciągnąć obiadek może też ciasto
 
-41	TRIO choć jest połączone
+42	Zakopiec blisko, centrum Podhala
 
-42	To stylami podzielone
+43	Biała odwaga symbol Górala
 
-43	Warto poczuć tą różnice
+44	Znak rozpoznawczy, tradycja wiara
 
-44	I zachować tajemnicę
+45	Choć rozet tutaj jest co nie miara
 
-45	Jak to wszystko się udało
+46	Dom kryty gontem styl zakopiański
 
-46	Choć ta doba to za mało.
+47	Mała Szwajcaria rzekł by Kowalski
+
+48	Arek jak Harry tak Harry Potter
+
+49	W pętli jest czasu, “smoke on the water”
+
+50	Pętla nad Ruczaj go zaprowadza
+
+51	Starą historię tu wszystkim zdradza
+
+52	Wspomnienie LOTem głowę zalewa
+
+53	Oko ulotne nie jest jak mewa
+
+54	Tu wyostrzyło swoją optykę
+
+55	Miał doktor Szczęsny swoją taktykę
+
+56	Dzień minął bystro, będą wspomnienia
+
+57	Przygody hej, nie do zapomnienia
+
+58	By je powtórzyć pojawia się presja.
+
+59	Na koniec taka nadchodzi refleksja
+
+60	Rodzina duża to moc i siła
+
+61	Wyprawa razem zawsze jest miła
+
+62	Gdy wszyscy razem siebie wspieramy
+
+63	Piękne owoce tego zbieramy.
 
 LEGENDA:
 
-1-46  	Wspomnienia ze spontanicznej podróży autora z żoną do Trójmiasta na Jarmark  Bożenarodzeniowy 2023
+1-8  		Wspomnienia z podróży rodzinnej w Tatry przed Św Bożego Narodzenia 2024
 
-2		Trio - Trójmiasto Gdańsk-Sopot-Gdynia
+10-29	Wycieczka do Morskiego Oka
 
-11		Gdańsk stając się części zrzeszenia miast portowych HANZy zaczął się dynamicznie rozwijać
+18		rysy szczytów nawiązują również do szczytu Rysy
 
-12		Po odzyskaniu Gdańska przez Króla Polskiego od Krzyzakow nad Motławą powstaje Żuraw w kształcie jaki dzisiaj 			kojarzymy
+33-37	Podcza powrotu do Zakopanego wyskoczył nagle olbrzymi Jeleń, którego córka autora w emocjach nazwała osłem
 
-13-14	Nawiązanie do architektury Wyspy Spichrzów, której nowoczesna zabudowa nawiązuje do starej architektury 				miasta
+43 		Nawiązanie do filmu Biała Odwaga
 
-19		SKMka - szybka kolej miejska łącząca miasta Trójmiasto i nie tylko
+44-45	Górale uznawani są za bardzo pobożnych jednocześnie w ich tradycji pojawiają się np symbole pogańskich rozet
 
-22-28	Dalsza cześć szalonej podróży - Spot ze swoją architekturą kurortu cesarskiego
+47 		Mała Szwajcaria nazwa restauracji w Zakopanem
 
-28		Wspomnieni zakupu upragnionego pierścionka z bursztynem
+48-55 	Wspomnienie autora pobytu jako dziecko w Sanatorium Okulistycznym dla Dzieci w Zakopanem
 
-31-40 	Dalsza cześć podróży - Gdynia
+48-50	Pętla czasu nawiązuje do zapętlonej piosenki “Smoke on the water” Pink Turtle w restauracji Mała Szwajcaria oraz 		do powrotu w miejsce pobytu autora w pobliskim Sanatorium, w którym aktualnie znajduje się pensjonat Ruczaj 			Ruczaj to również nazwa górskiego potoku, który przepływa obok byłego Sanatorium
 
-33		Unikalna architektura Gdyni - Modernizm międzywojenny Art Deco
+52		Wspomnienie LOTem chodzi o podróż rodziców i siostry autora z Zakopanego do Warszawa samolotem LOT
 
-35		Dar Pomorza cumuje w porcie Gdyńskim
+55		Dr Szczęsny Ziobrowski był lekarzem prowadzącym który doprowadził do wyleczenia autora
 
-39 		Na dworcu w Gdyni na suficie znajdują się piękne malowidła z 1957r nawiązujące do podróży, odrestaurowane			w 2012r
-
-42		Każdem miasto charakteryzuje się zupełnie innym stylem architektonicznym (Gdańsk-gotycko-barokowy,         			Sopot-neogotycki styl kurortu letniskowego, Gdynia-modernizm-Art Deco)
-
-45-46	Cala szalona wyprawa po Trójmiescie zajęła mniej niż 24h
+60		Nawiązanie do Karty Rodziny Dużej ( rodziny od trójki dzieci)
