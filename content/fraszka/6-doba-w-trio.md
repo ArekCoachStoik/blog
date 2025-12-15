@@ -1,5 +1,5 @@
 ---
-title: '#6 - DOBA W TRIO'
+title: '#5 - DOBA W TRIO'
 date: 2024-12-07T10:10:00
 description: Gdańsk-Spot-Gdynia
 featured_image: /images/IMG_4427 Small.jpeg
@@ -8,7 +8,7 @@ featured_image: /images/IMG_4427 Small.jpeg
 
  2	Jak jarmarki skocz do Trio
 
- 3	Gdzie to Trio zapytacie 
+ 3	Gdzie to Trio zapytacie
 
  4	Na północy siostro, bracie
 
@@ -46,7 +46,7 @@ featured_image: /images/IMG_4427 Small.jpeg
 
 21	Dalej dziś nią popłyniemy
 
-22	Do Sopotu dojedziemy 
+22	Do Sopotu dojedziemy
 
 23   Sopot TRIA to środeczek
 
@@ -92,7 +92,7 @@ featured_image: /images/IMG_4427 Small.jpeg
 
 44	I zachować tajemnicę
 
-45	Jak to wszystko się udało 
+45	Jak to wszystko się udało
 
 46	Choć ta doba to za mało.
 
@@ -120,7 +120,7 @@ LEGENDA:
 
 35		Dar Pomorza cumuje w porcie Gdyńskim
 
-39 		Na dworcu w Gdyni na suficie znajdują się piękne malowidła z 1957r nawiązujące do podróży, odrestaurowane			w 2012r 
+39 		Na dworcu w Gdyni na suficie znajdują się piękne malowidła z 1957r nawiązujące do podróży, odrestaurowane			w 2012r
 
 42		Każdem miasto charakteryzuje się zupełnie innym stylem architektonicznym (Gdańsk-gotycko-barokowy,         			Sopot-neogotycki styl kurortu letniskowego, Gdynia-modernizm-Art Deco)
 
