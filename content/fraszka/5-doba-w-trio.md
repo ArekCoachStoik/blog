@@ -1,7 +1,7 @@
 ---
 title: '#6 - GÓRSKIE MORZE'
 date: 2024-12-21T10:10:00
-description: Gdańsk-Spot-Gdynia
+description: Zakopane
 featured_image: /images/IMG_4481 Small.jpeg
 ---
 1	Czas to świąteczny, bardzo wesoły
@@ -128,7 +128,7 @@ featured_image: /images/IMG_4481 Small.jpeg
 
 63	Piękne owoce tego zbieramy.
 
-LEGENDA:
+**LEGENDA:**
 
 1-8  		Wspomnienia z podróży rodzinnej w Tatry przed Św Bożego Narodzenia 2024
 
