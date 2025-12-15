@@ -77,13 +77,11 @@ Dołożę wszelkich starań, aby przekazywana tutaj wiedza była wartościowa r�
 
 Każda osoba zainteresowaną moją "filozofią" jest dla mnie ważna. Gorąco zachęcam do :
 
-1.Komentowania postów na **[BLOG'u](/post)**, 
+1.Zapoznawania się z postami na **[BLOG'u](/post)**, 
 
 2.Napisania wiadomości przez formularz w zakładce **[Kontakt](/contact)**
 
 3.Zapoznanie sie szerzej z genezą filozofii w zakładce **[WTiS](/wtis)**. 
-
-Wkrótce udostępnię również dodatkowe materiały, takie jak książka, ebook oraz TEST energii życiowej, które znajdziesz w zakładce **[SKLEP](/sklep)** 
 
 Jeśli chcesz bliżej poznać założenia WTiS, zapraszam zarówno do krótkiej, nieformalnej rozmowy, jak i profesjonalnych sesji mentoringowo-coachingowych. Szczegóły znajdziesz w zakładce **[Kontakt](/contact)**, gdzie wszystko sprawnie ustalimy.
 
