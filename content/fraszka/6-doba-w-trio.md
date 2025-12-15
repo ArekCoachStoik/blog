@@ -96,7 +96,7 @@ featured_image: /images/IMG_4427 Small.jpeg
 
 46	Choć ta doba to za mało.
 
-LEGENDA:
+**LEGENDA:**
 
 1-46  	Wspomnienia ze spontanicznej podróży autora z żoną do Trójmiasta na Jarmark  Bożenarodzeniowy 2023
 
