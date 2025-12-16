@@ -1,77 +1,41 @@
 ---
-title: '#9 - MAJÓWKA'
-date: 2025-05-01T10:10:00
-description: Białystok-Białowieża-Żelechów
-featured_image: /images/A80A0093.JPEG
+title: '#10 /1- TO NIE CZAS BY UMIERAĆ'
+date: 2025-06-13T10:10:00
+description: Apulgia - Matera
+featured_image: /images/IMG_5516 Small.jpeg
 ---
-Maja już początek czas na dłuższą przerwę
+Szkolny bal już za nami, zabawa była przednia
 
-W planach jest Podlasie w duszy czuje werwę
+Przed wycieczki trudami , zaprawa odpowiednia
 
-Dziś to granic krańce, choć gdy czas cofniemy
+Czas wyruszyć już w drogę, pobudka to wyzwanie
 
-Wielu kultur państwa, centrum odnajdziemy
+Samolot już czeka, w nim,  domowe śniadanie
 
-Polak, Żyd i Tatar, Cygan, Rus i Prus
+Lot krótki, sum słuchawek, niepokój umilił
 
-W kultur tyglu żyli, choć nie był to ich mus
+Fiat 500 nie czekał, nikt się mocno nie zdziwił
 
-Losy niełatwe, splecione jak warkocze
+„To nie czas by umierać”, lecz rozpocząć przygodę
 
-Wóz tolerancji po bruku tam turkocze
+Jak Bond, pędem, do Matery ruszyć w pogodę
 
-Białystok, to miasto, w całości jest dowodem
+Iść się po mieście z Pasją, przebyć krzyżową drogę
 
-Że wiara, kuchnia, strój nie były powodem
+Rozkochać się jak Gibson, zgubić się też tu mogę
 
-Zawiści, niesnasek, by ludy walczyły
+Uliczki wszystkie kręte, w romańskiej zabudowie
 
-Ale cennym darem, żeby w zgodzie żyły
+Gdzie dobrze zjeść i wypić Anetka nam podpowie
 
-Nadto wszystko mowa, u każdego inna
+Orecchiette, Baccala, Gniochi, ta kuchnia to dar
 
-Esperanto matka uczyć ich powinna
+Ulegli nie tylko cesarz, jak i nie jeden car
 
-Zamenhof się starał aby tak się stało
+Matera nocą wzrusza, historii powiew czujesz
 
-Historia pamięta, lecz wiele nie zostało.
+Jednak już ze zmęczenia, nagle w łóżku lądujesz
 
-Tyle to wspominek, działanie wskazane
+Raniutko śniadanie, relaks, trzeba już wyjeżdżać
 
-Ruszamy więc w drogę, rowerki składane
-
-Jest rynek, Katedra, Branickich wersale
-
-Hagia Sophia stoi, w jednym tu “kawale”
-
-W końcu głód nas złapał, Tatar daniem skusił
-
-Kibiny, halva, do niczego nie zmusił
-
-Kuchnia pierwsza klasa w rękach Pani Lili
-
-Znana w kręgach dama czas Wam tu umili
-
-Wracamy, Czarnecki już czeka z pokojem
-
-Do puszczy ruszymy, ze świetnym nastrojem
-
-Droga prosta, cerkwie kolorowe stoją
-
-Okiennice w chatkach, nasze oczy koją
-
-Pól rozległych jednak, już tu jest koniec bliski
-
-Puszcza się roztwiera, a z nią zwierząt piski
-
-Król puszczy jest  jeden, nie lew lecz żubr prapolski
-
-Symbol Żubrówki i całej naszej Polski
-
-Z sękaczem czas wracać, Wielkopolska czeka
-
-Droga będzie kreta jak niejedna rzeka
-
-Wcześniej Ryki, Komunia, Pałac Żelechów
-
-Cała ta wyprawa warta wielu grzechów.
+Miejsce to polecamy, warto tutaj przyjeżdzać
