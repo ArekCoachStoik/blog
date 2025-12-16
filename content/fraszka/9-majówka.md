@@ -1,7 +1,7 @@
 ---
 title: '#9- MAJÓWKA'
 date: 2025-05-01T10:10:00
-description: Apulgia - Matera
+description: Białystok-Białowieża-Żelechów
 featured_image: /images/A80A0093.JPEG
 ---
 Maja już początek czas na dłuższą przerwę
@@ -34,7 +34,7 @@ Esperanto matka uczyć ich powinna
 
 Zamenhof się starał aby tak się stało
 
-Historia pamięta, lecz wiele nie zostało. 
+Historia pamięta, lecz wiele nie zostało.
 
 Tyle to wspominek, działanie wskazane
 
@@ -60,7 +60,7 @@ Droga prosta, cerkwie kolorowe stoją
 
 Okiennice w chatkach, nasze oczy koją
 
-Pól rozległych jednak, już tu jest koniec bliski 
+Pól rozległych jednak, już tu jest koniec bliski
 
 Puszcza się roztwiera, a z nią zwierząt piski
 
