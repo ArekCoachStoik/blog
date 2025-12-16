@@ -1,61 +1,77 @@
 ---
-title: '#8 - W GARNCU'
-date: 2025-03-01T10:10:00
-description: Poznań
-featured_image: /images/alexandra-8RFzy0YEfeE-unsplash.jpg
+title: '#9 - MAJÓWKA'
+date: 2025-05-01T10:10:00
+description: Białystok-Białowieża-Żelechów
+featured_image: /images/A80A0093.JPEG
 ---
-Weekend się zaczyna myśli brną ku przygodzie
+Maja już początek czas na dłuższą przerwę
 
-Czy uda się ją znaleźć w poznanskiej zagrodzie ?
+W planach jest Podlasie w duszy czuje werwę
 
-A jakże miasto to w końcu zowie się know how
+Dziś to granic krańce, choć gdy czas cofniemy
 
-Niekiedy i poznaniak go jeszcze nie poznał
+Wielu kultur państwa, centrum odnajdziemy
 
-Od czego więc zacząć skoro już po dwunastej
+Polak, Żyd i Tatar, Cygan, Rus i Prus
 
-W jeżyckiej uliczce trochę lekko przyciasnej
+W kultur tyglu żyli, choć nie był to ich mus
 
-Szukaj przeszłości i podniebienia radości
+Losy niełatwe, splecione jak warkocze
 
-Nie tym razem, Święty Marcin nas dziś ugości
+Wóz tolerancji po bruku tam turkocze
 
-Swym Groniem me dziecię zakręci dziś w głowie
+Białystok, to miasto, w całości jest dowodem
 
-Pokłon jej gościnności, a wino, na zdrowie.
+Że wiara, kuchnia, strój nie były powodem
 
-Czas ruszać w drogę odkrywać  miasto nieznane
+Zawiści, niesnasek, by ludy walczyły
 
-Bohaterów Enigmy, wspomnimy dziś chwałę
+Ale cennym darem, żeby w zgodzie żyły
 
-Polaków, którym nawet anglik nie odbierze
+Nadto wszystko mowa, u każdego inna
 
-I z kart historii prawdy nikt już nie wypierze
+Esperanto matka uczyć ich powinna
 
-Że nasze chłopaki, dzielni matematycy
+Zamenhof się starał aby tak się stało
 
-Odkryli idee nazistowskiej matrycy.
+Historia pamięta, lecz wiele nie zostało.
 
-Stąd już dwa kroki na Fredry do Zbawiciela
+Tyle to wspominek, działanie wskazane
 
-Dla wszystkich bez wiary dobrego przyjaciela
+Ruszamy więc w drogę, rowerki składane
 
-Lecz zaraz chwileczkę już wybiła godzina
+Jest rynek, Katedra, Branickich wersale
 
-By przyjaciół zaciągnąć gdzie dobra nowina
+Hagia Sophia stoi, w jednym tu “kawale”
 
-Mosty Berdychowskie łączą stare i nowe
+W końcu głód nas złapał, Tatar daniem skusił
 
-Dzięki nim rozkwitną wybrzeża, choć nie portowe
+Kibiny, halva, do niczego nie zmusił
 
-Trzeba się spieszyć bo głód ponownie chwyta
+Kuchnia pierwsza klasa w rękach Pani Lili
 
-Docieramy do miejsca gdzie na widelcu wyryta
+Znana w kręgach dama czas Wam tu umili
 
-Fromażeria, w garncu miesza nie tylko sery
+Wracamy, Czarnecki już czeka z pokojem
 
-W marcu jak w garncu poda dziś również desery
+Do puszczy ruszymy, ze świetnym nastrojem
 
-Koniec już tej przygody czas wracać do domu
+Droga prosta, cerkwie kolorowe stoją
 
-Może i ta fraszka przyda się, tylko komu?
+Okiennice w chatkach, nasze oczy koją
+
+Pól rozległych jednak, już tu jest koniec bliski
+
+Puszcza się roztwiera, a z nią zwierząt piski
+
+Król puszczy jest  jeden, nie lew lecz żubr prapolski
+
+Symbol Żubrówki i całej naszej Polski
+
+Z sękaczem czas wracać, Wielkopolska czeka
+
+Droga będzie kreta jak niejedna rzeka
+
+Wcześniej Ryki, Komunia, Pałac Żelechów
+
+Cała ta wyprawa warta wielu grzechów.
