@@ -1,5 +1,5 @@
 ---
-title: '#10 /1- TO NIE CZAS BY UMIERAĆ'
+title: '#10/1- TO NIE CZAS BY UMIERAĆ'
 date: 2025-06-13T10:10:00
 description: Apulgia - Matera
 featured_image: /images/IMG_5516 Small.jpeg
