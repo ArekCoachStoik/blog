@@ -2,7 +2,7 @@
 title: '#4/8 - DELTA'
 date: 2024-11-12T10:10:00
 description: Delta Mekongu / Sajgon
-featured_image: /images/IMG_4103.jpg
+featured_image: /images/IMG_4103.jpeg
 ---
 Delta w matmie to różnica
 
