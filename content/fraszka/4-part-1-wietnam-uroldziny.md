@@ -2,7 +2,7 @@
 title: '#4/2 - HANOI'
 date: 2024-10-29T10:10:00
 description: Hanoi
-featured_image: /images/IMG_3141.jpg
+featured_image: /images/IMG_3216.jpeg
 ---
 Ten dzień był długi a noc za krótka
 
