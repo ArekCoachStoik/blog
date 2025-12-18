@@ -1,109 +1,61 @@
 ---
-title: '#14 - MEKSYK (NY)'
-date: 2025-09-25T10:10:00
-description: CoteAzur  (Nicea) + Chamonix
-featured_image: /images/IMG_6949.JPEG
+title: '#14/1 MEKSYK - WARTKIE JABŁKO'
+date: 2025-10-29T10:10:00
+description: New York
+featured_image: /images/IMG_7415 2.jpeg
 ---
-Lazur morza dobrze znany
+Pierwsze chłody za nami, liście lecą już z drzew
 
-Wyjazd wspólny wyczekany
+Ogród posprzątany, być może nie każdy krzew
 
-Droga do Niecei długa
+Jabłka prosto z drzewa, w tą podróż nie bierzemy
 
-Nocna autostrada mruga
+Big Apple w swojej krasie tu i tam znajdziemy
 
-Orange na noc nas przygarnie
+Pseudo tej mieściny, Nowym Yorkiem zwanego   
 
-Olbrzym z okna patrzy na mnie
+Kupione za drobne przez Holendra cwanego
 
-Rzym też stopę tu postawił
+Swoją potęgą mocno jednych dziś urzeka
 
-Amfiteatr, łuk zostawił
+Drudzy uciekną hen jako Hudson piękna rzeka
 
-Rano kawa - nie ze zboża
+My płyniemy z Penn Station jak ten potok rwący
 
-Nasz kierunek lazur morza
+Pełen rowerów, aut, Jankes dokądś biegnący?
 
-Cote Azur słynne na świecie
+Broadway, jak przełom Dunajca, nas nurt prowadzi
 
-Dumą Francji to już wiecie
+Time square, obok Empire aż o niebo wadzi
 
-Dumnie pierś Negresco wskaże
+Manhatan porywa, płyńmy w dół do Żelazka
 
-Stąd już krok na piękne plaże
+Prasować nie ma jak, za to jest czas na ciastka
 
-Plaże, góry tak bez końca
+I to nie byle jakie, Levain nas zaprasza
 
-A do tego pełno słońca
+Stąd nurkiem w dół do kładki - o jest - dobra nasza
 
-Ruszmy dalej ku przygodzie
+Za rzeką szumi Brooklyn - woła dziś do siebie
 
-Zachłyśnięci tym co w wodzie
+Kładka to za mało, biorę za rękę Ciebie
 
-Do Monako pociąg wiedzie
+I ruszamy, wartko - majestatycznym mostem
 
-Monte Carlo nie jest w biedzie
+Jemu, nie jedna głębia, nie równa się wzrostem
 
-Luksus, przepych się wylewa
+Widok nam dech zapiera, iPhone trzaska foty
 
-Wszystko to się jakoś zlewa
+A kończymy Time Out klubie, gdyż miał dobre noty
 
-W obraz miejsca tak dziwnego
+Do Downtown stąd spłyniemy „mostkiem” podwieszonym
 
-Z piękna bycia odartego.
+Monument WTC, jak nie być tu wzruszonym
 
-Zamek owszem, zmiana warty
+Zostaje wrócić pod prąd, rwącego potoku
 
-Wszystko z klasą jak na party
+Na lotnisku poczekać - długo już po zmroku
 
-Kościół ogród i widoki
+Stop over w Nowym Yorku wart swego zmęczenia
 
-Godne książąt, nasze kroki
-
-Stąd już ścieżką lazurowa
-
-Podążamy swoją drogą
-
-Do Nicei choć bez wygód
-
-Miraval i wiele przygód
-
-Dziś Nicee opuszczamy
-
-Socce, lazur wspominamy
-
-Perfume z Eze zabierzemy
-
-Schody w Menton zinstujemy
-
-A na koniec dnia długiego
-
-Zjemy u Włocha jednego
-
-Co się ukrył gdzieś przy trasie
-
-Znaleźć łatwo go nie da się
-
-Noc ukryła alpów szczyty
-
-W Albertville Ibis ukryty
-
-Na drodze do szczytu w bieli
-
-To Mont Blanc byście wiedzieli
-
-Chamonix otwiera drogę
-
-By grawitacji podłożyć nogę
-
-W górę hen kolej prowadzi
-
-Spojrzeć w górę nie za wadzi
-
-Aqui di Midi cała w bieli
-
-No i do tego w słońca kąpieli
-
-Gór tych majestat z nami zostanie
-
-A przed nami - już tylko latanie.
+Gdyż popłyną za nami wspaniałe wspomnienia.
