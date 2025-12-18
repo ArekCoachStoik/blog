@@ -2,7 +2,7 @@
 title: '#7 - OD NOWA'
 date: 2024-12-29T10:10:00
 description: Karkonosze-Łomnica-Karpacz
-featured_image: /images/IMG_4630 Small.jpeg
+featured_image: /images/IMG_4630.jpeg
 ---
 1	Sudety, góry Karkonosze, widok na szczyt
 
