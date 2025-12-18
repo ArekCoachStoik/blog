@@ -14,7 +14,7 @@ Jak bez słońca witaminy, się nie rozchorować
 
 Wreszcie, słońce i pogada na horyzont skacze
 
-Ja w te pędy w MIędzywodziu kąty swe zobaczę
+Ja w te pędy w Międzywodziu kąty swe zobaczę
 
 Kąty znane, kuchnia przednia, dzieci już są w drodze
 
@@ -43,10 +43,10 @@ Będzie sporo czekolady bez zrywania metki
 Nowe idzie damy radę, jakiem w końcu Korby
 
 Zanim jesień wciąż są w ruchu wakacyjne torby.
- 
+
 Co nas spotka chyba tylko Forest Gump podpowie
 
-Życie jak te czekoladki, w pudełku gotowe 
+Życie jak te czekoladki, w pudełku gotowe
 
 Tu marcepan, tam słodziutkie gorzkie, też bywają
 
