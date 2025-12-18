@@ -1,5 +1,5 @@
 ---
-title: '#13/1 - LAZUROWE ALPY'
+title: '#13 - LAZUROWE ALPY'
 date: 2025-09-25T10:10:00
 description: CoteAzur  (Nicea) + Chamonix
 featured_image: /images/IMG_6949.JPEG
