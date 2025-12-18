@@ -2,7 +2,7 @@
 title: '#1 - ZIELONE GRZYBY'
 date: 2024-10-12T13:58:00
 description: Zielona Góra
-featured_image: /images/IMG_7257.JPEG
+featured_image: /images/IMG_2939.jpeg
 ---
 Rano wcześniem wstali, na grzyby my pojechali
 
