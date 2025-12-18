@@ -2,7 +2,7 @@
 title: '#4/3 - MUMIA'
 date: 2024-10-30T10:10:00
 description: Hanoi
-featured_image: /images/IMG_3143.jpg
+featured_image: /images/IMG_3143.jpeg
 ---
 Gdyby faraon żył dzisiaj jeszcze
 
