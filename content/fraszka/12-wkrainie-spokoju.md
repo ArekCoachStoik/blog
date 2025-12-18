@@ -1,29 +1,109 @@
 ---
-title: '#12 - WKRAinie spokoju'
-date: 2025-08-15T10:10:00
-description: Rzeka WKRA. - okolice Modlina
-featured_image: /images/IMG_6388 2.jpeg
+title: '#13/1 - LAZUROWE ALPY'
+date: 2025-09-25T10:10:00
+description: CoteAzur  (Nicea) + Chamonix
+featured_image: /images/IMG_6949.JPEG
 ---
-Spokojna woda, kaczki i ryby
+Lazur morza dobrze znany
 
-Jak starczy czasu idźmy na grzyby
+Wyjazd wspólny wyczekany
 
-Najpierw my jednak rzeką spłyniemy
+Droga do Niecei długa
 
-Kajaki z rana wnet zwodujemy
+Nocna autostrada mruga
 
-Wiosło za wiosłem wodę rozcina
+Orange na noc nas przygarnie
 
-Na naszych twarzach radosna mina
+Olbrzym z okna patrzy na mnie
 
-Abordaż humor jeszcze poprawi
+Rzym też stopę tu postawił
 
-Gdy smak cytryny, żołądek przetrawi
+Amfiteatr, łuk zostawił
 
-Wkra swym spokojem w głowach zostanie
+Rano kawa - nie ze zboża
 
-A w naszych myślach - kolejne spotkanie
+Nasz kierunek lazur morza
 
-To już jest Joniec nie ma już nic
+Cote Azur słynne na świecie
 
-Jesteśmy wolni możemy iść …
+Dumą Francji to już wiecie
+
+Dumnie pierś Negresco wskaże
+
+Stąd już krok na piękne plaże
+
+Plaże, góry tak bez końca
+
+A do tego pełno słońca
+
+Ruszmy dalej ku przygodzie
+
+Zachłyśnięci tym co w wodzie
+
+Do Monako pociąg wiedzie
+
+Monte Carlo nie jest w biedzie
+
+Luksus, przepych się wylewa
+
+Wszystko to się jakoś zlewa
+
+W obraz miejsca tak dziwnego
+
+Z piękna bycia odartego.
+
+Zamek owszem, zmiana warty
+
+Wszystko z klasą jak na party
+
+Kościół ogród i widoki
+
+Godne książąt, nasze kroki
+
+Stąd już ścieżką lazurowa
+
+Podążamy swoją drogą
+
+Do Nicei choć bez wygód
+
+Miraval i wiele przygód
+
+Dziś Nicee opuszczamy
+
+Socce, lazur wspominamy
+
+Perfume z Eze zabierzemy
+
+Schody w Menton zinstujemy
+
+A na koniec dnia długiego
+
+Zjemy u Włocha jednego
+
+Co się ukrył gdzieś przy trasie
+
+Znaleźć łatwo go nie da się
+
+Noc ukryła alpów szczyty
+
+W Albertville Ibis ukryty
+
+Na drodze do szczytu w bieli
+
+To Mont Blanc byście wiedzieli
+
+Chamonix otwiera drogę
+
+By grawitacji podłożyć nogę
+
+W górę hen kolej prowadzi
+
+Spojrzeć w górę nie za wadzi
+
+Aqui di Midi cała w bieli
+
+No i do tego w słońca kąpieli
+
+Gór tych majestat z nami zostanie
+
+A przed nami - już tylko latanie.
