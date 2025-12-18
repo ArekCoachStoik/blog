@@ -2,7 +2,7 @@
 title: '#4/1 - URLODZINY'
 date: 2024-10-28T10:10:00
 description: Poznań
-featured_image: /images/IMG_3216.Jpg
+featured_image: /images/IMG_3216.jpeg
 ---
 Urlop, wczasy, wypoczynek wreszcie na to czas
 
