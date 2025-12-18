@@ -2,7 +2,7 @@
 title: '#5 - DOBA W TRIO'
 date: 2024-12-07T10:10:00
 description: Gdańsk-Spot-Gdynia
-featured_image: /images/IMG_4427 Small.jpeg
+featured_image: /images/IMG_4427.jpeg
 ---
 1 	Gdy karnawał jedź do Rio
 
