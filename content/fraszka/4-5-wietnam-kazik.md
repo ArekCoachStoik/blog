@@ -2,7 +2,7 @@
 title: '#4/5 - KAZIK'
 date: 2024-11-04T10:10:00
 description: HOI AN
-featured_image: /images/IMG_3561.jpeg
+featured_image: /images/IMG_3561 2.jpeg
 ---
 Jak nie być dumnym z bycia Polakiem
 
