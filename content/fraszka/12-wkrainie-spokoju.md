@@ -1,7 +1,7 @@
 ---
 title: '#12 - WKRAinie spokoju'
 date: 2025-08-15T10:10:00
-description: Wolin - Międzywodzie
+description: Rzeka WKRA. - okolice Modlina
 featured_image: /images/IMG_6388 2.jpeg
 ---
 Spokojna woda, kaczki i ryby
