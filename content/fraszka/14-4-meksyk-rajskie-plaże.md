@@ -1,6 +1,6 @@
 ---
 title: '#14/4 MEKSYK - RAJSKIE PLAŻE'
-date: 2025-10-31T10:10:00
+date: 2025-11-05T10:10:00
 description: Holbox-Tulum
 featured_image: /images/IMG_8368 2.jpeg
 ---
