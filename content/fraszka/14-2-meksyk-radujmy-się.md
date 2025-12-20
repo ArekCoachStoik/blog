@@ -4,7 +4,7 @@ date: 2025-10-30T10:10:00
 description: Valladolid (Tryptyk)
 featured_image: /images/IMG_7484 2.jpeg
 ---
-#1
+**#1 - Dia de los muertos**
 
 ![](/images/IMG_7478%202.jpeg)
 
@@ -48,7 +48,7 @@ Piękny to jest początek kolejnej przygody
 
 Rzucamy się z radością w Rio Lagartos wody.
 
-#2
+**#2 - Rio Lagartos**
 
 ![](/images/IMG_7608%202.jpeg)
 
@@ -100,7 +100,7 @@ Stroje nieprzeciętne i trudno wybrać parę
 
 A zostawić to miejsce, to tylko za karę
 
-#3
+#3 - Chichen Izta
 
 ![](/images/IMG_7739%202.jpeg)
 
