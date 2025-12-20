@@ -6,6 +6,8 @@ featured_image: /images/IMG_7484 2.jpeg
 ---
 #1
 
+![](/images/IMG_7478%202.jpeg)
+
 Nadszedł czas radości, jukatańskiej podróży
 
 Kto chce dobrze ją przeżyć w myślach się zanurzy
@@ -48,7 +50,7 @@ Rzucamy się z radością w Rio Lagartos wody.
 
 #2
 
-![](/images/IMG_7739%202.jpeg)
+![](/images/IMG_7608%202.jpeg)
 
 Kapitan już na stacji i to benzynowej
 
@@ -100,6 +102,8 @@ A zostawić to miejsce, to tylko za karę
 
 #3
 
+![](/images/IMG_7739%202.jpeg)
+
 Dzień kolejny czas zacząć pobudką poranną
 
 Stanąć przed piramidą, olbrzymią, staranną
@@ -139,3 +143,5 @@ Bliskich swoich wspominać, przy tym się radować.
 Jest od kogo się uczyć jak połączyć pięknie
 
 Smierć, życie, tradycje tak że aż serce mięknie.
+
+![](/images/IMG-7698.JPG)
