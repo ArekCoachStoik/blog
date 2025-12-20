@@ -12,7 +12,7 @@ featured_image: /images/IMG_7415 2.jpeg
 
  4		Big Apple w swojej krasie tu i tam znajdziemy
 
- 5 		Pseudo tej mieściny, Nowym Jorkiem zwanego   
+ 5 		Pseudo tej mieściny, Nowym Jorkiem zwanego
 
  6		Kupione za drobne przez Holendra cwanego
 
@@ -60,13 +60,13 @@ featured_image: /images/IMG_7415 2.jpeg
 
 28		Gdyż popłyną za nami wspaniałe wspomnienia.
 
-LEGENDA
+**LEGENDA**
 
 1-28 	Wspomnienie z krótkiego pobytu w Nowym Jorku w trakcie międzylądowanie na trasie do Meksyku
 
-4		Big Apple to określenie  w jaki nazywa się Nowy Jork
+4		Big Apple to określenie  jakiego używa się w stosunku do Nowego Jorku
 
-6		W 1626 Holendrzy kupili aktualny teren Manhattanu za ok 24 dolary 
+6		W 1626 Holendrzy kupili aktualny teren Manhattanu za ok 24 dolary
 
 8		Hudson rzeka rozdzielająca Manhattan od Newark
 
@@ -78,7 +78,7 @@ LEGENDA
 
 12		Time Square - plac będący częścią Broadway na którym w NY świętuje się Nowy Rok
 
-12		Empire - Empire State Building - ikoniczny drapacz chmur - symbol NY, przez wiele lat najwyższy budynek świata, 
+12		Empire - Empire State Building - ikoniczny drapacz chmur - symbol NY, przez wiele lat najwyższy budynek świata,
 
 13		Żelazko - Flatiron, charakterystyczny budynek w kształcie “duszy” (wkładu) starych żelazek.
 
