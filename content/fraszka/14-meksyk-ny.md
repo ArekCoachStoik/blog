@@ -95,3 +95,5 @@ featured_image: /images/IMG_7415 2.jpeg
 23		“mostek podwieszony” to ta sama kładka nad mostem Brooklyn Bridge
 
 24		Monument WTC - pomnik World Trade Center upamiętniający zamach 9/11
+
+26		Przesiadka w NY trwała kilkanaście godzin (bez noclegu), z oczekiwaniem nocnym na poranny lot
