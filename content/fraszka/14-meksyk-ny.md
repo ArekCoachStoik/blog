@@ -4,58 +4,94 @@ date: 2025-10-29T10:10:00
 description: New York
 featured_image: /images/IMG_7415 2.jpeg
 ---
-Pierwsze chłody za nami, liście lecą już z drzew
+1		Pierwsze chłody za nami, liście lecą już z drzew
 
-Ogród posprzątany, być może nie każdy krzew
+ 2		Ogród posprzątany, być może nie każdy krzew
 
-Jabłka prosto z drzewa, w tą podróż nie bierzemy
+ 3		Jabłka prosto z drzewa, w tą podróż nie bierzemy
 
-Big Apple w swojej krasie tu i tam znajdziemy
+ 4		Big Apple w swojej krasie tu i tam znajdziemy
 
-Pseudo tej mieściny, Nowym Yorkiem zwanego   
+ 5 		Pseudo tej mieściny, Nowym Jorkiem zwanego   
 
-Kupione za drobne przez Holendra cwanego
+ 6		Kupione za drobne przez Holendra cwanego
 
-Swoją potęgą mocno jednych dziś urzeka
+ 7		Swoją potęgą mocno jednych dziś urzeka
 
-Drudzy uciekną hen jako Hudson piękna rzeka
+ 8		Drudzy uciekną hen jako Hudson piękna rzeka
 
-My płyniemy z Penn Station jak ten potok rwący
+ 9		My płyniemy z Penn Station jak ten potok rwący
 
-Pełen rowerów, aut, Jankes dokądś biegnący?
+10		Pełen rowerów, aut, Jankes dokądś biegnący?
 
-Broadway, jak przełom Dunajca, nas nurt prowadzi
+11		Broadway, jak przełom Dunajca, nas nurt prowadzi
 
-Time square, obok Empire aż o niebo wadzi
+12		Time square, obok Empire aż o niebo wadzi
 
-Manhatan porywa, płyńmy w dół do Żelazka
+13		Manhatan porywa, płyńmy w dół do Żelazka
 
-Prasować nie ma jak, za to jest czas na ciastka
+14		Prasować nie ma jak, za to jest czas na ciastka
 
-I to nie byle jakie, Levain nas zaprasza
+15		I to nie byle jakie, Levain nas zaprasza
 
-Stąd nurkiem w dół do kładki - o jest - dobra nasza
+16		Stąd nurkiem w dół do kładki - o jest - dobra nasza
 
-Za rzeką szumi Brooklyn - woła dziś do siebie
+17		Za rzeką szumi Brooklyn - woła dziś do siebie
 
-Kładka to za mało, biorę za rękę Ciebie
+18		Kładka to za mało, biorę za rękę Ciebie
 
-I ruszamy, wartko - majestatycznym mostem
+19		I ruszamy, wartko - majestatycznym mostem
 
-Jemu, nie jedna głębia, nie równa się wzrostem
+20		Jemu, nie jedna głębia, nie równa się wzrostem
 
-Widok nam dech zapiera, iPhone trzaska foty
+21		Widok nam dech zapiera, iPhone trzaska foty
 
-A kończymy Time Out klubie, gdyż miał dobre noty
+22		Kończymy w Time Out klubie, gdyż miał dobre noty
 
-Do Downtown stąd spłyniemy „mostkiem” podwieszonym
+23		Do Downtown stąd spłyniemy „mostkiem” podwieszonym
 
-Monument WTC, jak nie być tu wzruszonym
+24		Monument WTC, jak nie być tu wzruszonym
 
-Zostaje wrócić pod prąd, rwącego potoku
+25		Zostaje wrócić pod prąd, rwącego potoku
 
-Na lotnisku poczekać - długo już po zmroku
+26		Na lotnisku poczekać - długo już po zmroku
 
-Stop over w Nowym Yorku wart swego zmęczenia
+27		Stop over w Nowym Yorku wart swego zmęczenia
 
-Gdyż popłyną za nami wspaniałe wspomnienia.
+28		Gdyż popłyną za nami wspaniałe wspomnienia.
+
+LEGENDA
+
+1-28 	Wspomnienie z krótkiego pobytu w Nowym Jorku w trakcie międzylądowanie na trasie do Meksyku
+
+4		Big Apple to określenie  w jaki nazywa się Nowy Jork
+
+6		W 1626 Holendrzy kupili aktualny teren Manhattanu za ok 24 dolary 
+
+8		Hudson rzeka rozdzielająca Manhattan od Newark
+
+9		Penn Station - stacja koli i metra w centralnej części Manhattanu
+
+10		Jankes - wieloznaczne określenie na Amerykanów
+
+11		Broadway - jedna z głównych arterii miasta przecinająca standardowy układ macierzowy miast, otoczona wieloma 		wysokim budynkami,
+
+12		Time Square - plac będący częścią Broadway na którym w NY świętuje się Nowy Rok
+
+12		Empire - Empire State Building - ikoniczny drapacz chmur - symbol NY, przez wiele lat najwyższy budynek świata, 
+
+13		Żelazko - Flatiron, charakterystyczny budynek w kształcie “duszy” (wkładu) starych żelazek.
+
+15 		Levain - znana z ciastek nowojorska cukiernia
+
+16		Kładka - chodzi o kładkę nad mostem Brooklyn Bridge
+
+17 		Brooklyn - dzielnica Nowego Jorku położona na południe od Manhattan za rzeką
+
+18		Time Out Club - sieciowy food court po stronie Brooklyn z fantastycznym widokiem na Manhattan
+
+19		Downtown - centrum miasta
+
+23		“mostek podwieszony” to ta sama kładka nad mostem Brooklyn Bridge
+
+24		Monument WTC - pomnik World Trade Center upamiętniający zamach 9/11
