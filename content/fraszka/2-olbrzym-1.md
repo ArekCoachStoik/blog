@@ -4,6 +4,8 @@ date: 2024-10-20T10:10:00
 description: Polska
 featured_image: /images/IMG_3026.jpeg
 ---
+![](/images/IMG_3004.jpeg)
+
 Cieszyć się chwilą, znaczy radować
 
 Żyć pełnią życia nic nie żałować
