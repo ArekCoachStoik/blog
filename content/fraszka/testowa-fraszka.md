@@ -4,9 +4,13 @@ date: 2024-10-12T13:58:00
 description: Zielona Góra
 featured_image: /images/IMG_7257 2.jpeg
 ---
-My rano wcześnie wstali i na grzyby  pojechali
+Wcześnie my rano wstali 
 
-prawdziwków było mało  do Zielonej doruszyliśmy śmiało
+i na grzyby  pojechali
+
+prawdziwków było mało  
+
+do Zielonej doruszyliśmy śmiało
 
 Po drodze pizzeria, palmiarnia, win spróbowaliśmy wielu
 
