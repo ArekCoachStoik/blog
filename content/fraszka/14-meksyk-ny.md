@@ -62,19 +62,19 @@ featured_image: /images/IMG_7415 2.jpeg
 
 **LEGENDA**
 
-1-28 	Wspomnienie z krótkiego pobytu w Nowym Jorku w trakcie międzylądowanie na trasie do Meksyku
+1-28 	Wspomnienie z krótkiego pobytu w Nowym Jorku w trakcie międzylądowanie na trasie do Meksyku,  tytuł łączy różne wodne metafory przemieszczania się po Nowym Jorku (Big APPLE)
 
 4		Big Apple to określenie  jakiego używa się w stosunku do Nowego Jorku
 
 6		W 1626 Holendrzy kupili aktualny teren Manhattanu za ok 24 dolary
 
-8		Hudson rzeka rozdzielająca Manhattan od Newark
+8		Hudson - rzeka rozdzielająca Manhattan od Newark
 
-9		Penn Station - stacja koli i metra w centralnej części Manhattanu
+9		Penn Station - stacja kolei i metra w centralnej części Manhattanu
 
 10		Jankes - wieloznaczne określenie na Amerykanów
 
-11		Broadway - jedna z głównych arterii miasta przecinająca standardowy układ macierzowy miast, otoczona wieloma 		wysokim budynkami,
+11		Broadway - jedna z głównych arterii miasta przecinająca standardowy układ macierzowy, otoczona wieloma 		wysokim budynkami,
 
 12		Time Square - plac będący częścią Broadway na którym w NY świętuje się Nowy Rok
 
