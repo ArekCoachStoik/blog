@@ -46,9 +46,9 @@ Piękny to jest początek kolejnej przygody
 
 Rzucamy się z radością w Rio Lagartos wody.
 
-
-
 #2
+
+![](/images/IMG_7739%202.jpeg)
 
 Kapitan już na stacji i to benzynowej
 
@@ -98,8 +98,6 @@ Stroje nieprzeciętne i trudno wybrać parę
 
 A zostawić to miejsce, to tylko za karę
 
-
-
 #3
 
 Dzień kolejny czas zacząć pobudką poranną
@@ -141,5 +139,3 @@ Bliskich swoich wspominać, przy tym się radować.
 Jest od kogo się uczyć jak połączyć pięknie
 
 Smierć, życie, tradycje tak że aż serce mięknie.
-
-
