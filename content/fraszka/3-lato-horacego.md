@@ -4,7 +4,7 @@ date: 2024-10-28T10:10:00
 description: Poznań
 featured_image: /images/IMG_3216.jpeg
 ---
-
+![](/images/IMG_3161.jpeg)
 
 Urlop, wczasy, wypoczynek wreszcie na to czas
 
@@ -61,5 +61,3 @@ Las ten dżunglą się okaże na to liczymy
 Wszystko spakowane, dobre mamy humory
 
 Od rana wskakujemy na podróży tory.
-
-
