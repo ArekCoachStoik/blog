@@ -4,6 +4,8 @@ date: 2025-06-15T10:10:00
 description: Apulgia - Otranto
 featured_image: /images/A80A0354.JPEG
 ---
+![](/images/IMG_5595.jpeg)
+
 Czas ruszyć w dalszą drogę, na nogi wygodne buty
 
 Birkeny, crocsy,  o nie ! , szpilka, bez zbędnej buty
@@ -39,3 +41,5 @@ Spacer, czas na kolacja, Włoch wita, bouna sera
 Słońce zaszło nad portem, koniec dnia już jest bliski
 
 Czas wracać w winnicy progi, gdzie cykadowe piski.
+
+![](/images/IMG_5585.jpeg)
