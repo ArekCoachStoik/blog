@@ -2,8 +2,11 @@
 title: '#6 - GÓRSKIE MORZE'
 date: 2024-12-21T10:10:00
 description: Zakopane
-featured_image: /images/IMG_4481.jpeg
+featured_image: /images/IMG_4525.jpeg
 ---
+![](/images/IMG_4481.jpeg)
+
+
 1	Czas to świąteczny, bardzo wesoły
 
  2	“Dzieci” w te pędy wyszły ze “szkoły”
