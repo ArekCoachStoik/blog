@@ -4,7 +4,7 @@ date: 2024-11-09T10:10:00
 description: Phu Quoc
 featured_image: /images/IMG_4013.jpeg
 ---
-
+![](/images/IMG_3788%20(1).jpeg)
 
 Czy filozof czy teolog
 
@@ -54,4 +54,4 @@ To tylko od nas zależy
 
 Kto w co i kiedy, uwierzy.
 
-
+![](/images/IMG_3815.jpeg)
