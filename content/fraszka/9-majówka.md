@@ -4,6 +4,8 @@ date: 2025-05-01T10:10:00
 description: Białystok-Białowieża-Żelechów
 featured_image: /images/A80A0093.JPEG
 ---
+![](/images/A80A0131%20%281%29%20Small.jpeg)
+
 Maja już początek czas na dłuższą przerwę
 
 W planach jest Podlasie w duszy czuje werwę
