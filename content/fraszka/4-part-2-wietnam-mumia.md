@@ -4,6 +4,8 @@ date: 2024-10-30T10:10:00
 description: Hanoi
 featured_image: /images/IMG_3143.jpeg
 ---
+![](/images/IMG_3149.jpeg)
+
 Gdyby faraon żył dzisiaj jeszcze
 
 W krokodylowe wrzuciłby kleszcze
@@ -32,4 +34,4 @@ Lenin i Ho Chi chwałę to taką
 
 Zafundowali swoim rodakom !
 
-![](/images/IMG_3149.jpeg)
+![](/images/IMG_3167.jpeg)
