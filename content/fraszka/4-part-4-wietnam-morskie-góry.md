@@ -4,7 +4,7 @@ date: 2024-11-01T10:10:00
 description: Ha Long
 featured_image: /images/IMG_3451.jpeg
 ---
-![](/images/IMG_3498.jpeg)
+![](/images/IMG_3505%20%283%29%202.jpeg)
 
 Czy stoi za tym jakaś logika
 
