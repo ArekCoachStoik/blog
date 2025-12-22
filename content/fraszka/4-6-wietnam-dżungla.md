@@ -4,7 +4,7 @@ date: 2024-11-06T10:10:00
 description: My Son
 featured_image: /images/IMG_3645.jpeg
 ---
-
+![](/images/IMG_3682.jpeg)
 
 Z dżungli miejskiej uciekamy
 
@@ -94,4 +94,4 @@ Bogom pokłon i tej  ziemi
 
 Tej logiki nikt nie zmieni.
 
-
+![](/images/IMG_3692.jpeg)
