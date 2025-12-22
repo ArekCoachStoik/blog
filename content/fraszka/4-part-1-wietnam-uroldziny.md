@@ -23,3 +23,5 @@ Czy tylko szczęścia tutaj zaznają?
 Odpowiedź na to jeszcze przed nami
 
 Któż to powie, tylko oni , sami.
+
+![](/images/IMG_3198.jpeg)
