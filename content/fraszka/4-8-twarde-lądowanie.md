@@ -2,8 +2,10 @@
 title: '#4/9 - TWARDE LĄDOWANIE'
 date: 2024-11-17T10:10:00
 description: Polska
-featured_image: /images/IMG_4318.jpeg
+featured_image: /images/IMG_3843.jpeg
 ---
+![](/images/IMG_3897.jpeg)
+
 W myślach moich wciąż jest Wietnam
 
 Czy dam radę i to przetrwam
@@ -64,4 +66,4 @@ Do kolejnej wnet przygody
 
 Pełnej słońca i pogody.
 
-![](/images/3filary.jpg)
+![](/images/IMG_3256.jpeg)
