@@ -31,3 +31,5 @@ Tłum chodzi w koło i ma wypieki
 Lenin i Ho Chi chwałę to taką
 
 Zafundowali swoim rodakom !
+
+![](/images/IMG_3149.jpeg)
