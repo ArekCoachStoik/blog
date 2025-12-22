@@ -40,6 +40,6 @@ Nada sens życiu, troski wymaże.
 
 Nostalgia wszystkich nas ogarnęła
 
-Oby jak statek nie odpłynęła
+Oby jak statek nie odpłynęła 
 
 ![](/images/IMG_3522.jpeg)
