@@ -4,6 +4,8 @@ date: 2024-12-07T10:10:00
 description: Gdańsk-Spot-Gdynia
 featured_image: /images/IMG_4427.jpeg
 ---
+![](/images/IMG_jarmark.jpg)
+
 1 	Gdy karnawał jedź do Rio
 
  2	Jak jarmarki skocz do Trio
