@@ -4,6 +4,8 @@ date: 2024-11-06T10:10:00
 description: My Son
 featured_image: /images/IMG_3645.jpeg
 ---
+
+
 Z dżungli miejskiej uciekamy
 
 Czemu? Toć tu wszystko mamy
@@ -91,3 +93,5 @@ To co ludzkie ,to przeminie
 Bogom pokłon i tej  ziemi
 
 Tej logiki nikt nie zmieni.
+
+
