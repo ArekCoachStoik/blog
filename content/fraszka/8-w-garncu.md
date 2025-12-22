@@ -4,7 +4,7 @@ date: 2025-06-13T10:10:00
 description: Apulgia - Matera
 featured_image: /images/IMG_5516.jpeg
 ---
-![](/images/A80A0289.JPEG)
+![](/images/IMG_5498%20%281%29.jpeg)
 
 Szkolny bal już za nami, zabawa była przednia
 
