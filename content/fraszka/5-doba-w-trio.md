@@ -6,8 +6,7 @@ featured_image: /images/IMG_4525.jpeg
 ---
 ![](/images/IMG_4481.jpeg)
 
-
-1	Czas to świąteczny, bardzo wesoły
+ 1	Czas to świąteczny, bardzo wesoły
 
  2	“Dzieci” w te pędy wyszły ze “szkoły”
 
