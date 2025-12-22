@@ -6,7 +6,7 @@ featured_image: /images/IMG_4013.jpeg
 ---
 ![](/images/IMG_3788%20(1).jpeg)
 
-Czy filozof czy teolog
+Raz filozof raz teolog
 
 Dziś szczególnie zaś ekolog
 
@@ -30,7 +30,7 @@ Co robić, a co nie warto
 
 By spokój i niebo otwarto
 
-Niebiańska plaża , przed nami
+Niebiańska plaża przed nami
 
 Cudowny cień, pod palmami
 
@@ -44,7 +44,7 @@ Nie dajmy, by nas zasmucił
 
 Wspomnienia w głowie zostały
 
-Na trwałe, jak,  te morza skały
+Trwale, jak  tego morza skały
 
 Prawda to , czy sen na jawie
 
@@ -52,6 +52,6 @@ Skryty, w wietnamskiej kawie
 
 To tylko od nas zależy
 
-Kto w co i kiedy, uwierzy.
+Kto w co i kiedy - uwierzy.
 
 ![](/images/IMG_3815.jpeg)
