@@ -34,6 +34,8 @@ W harmonii piękne i nie banalne.
 
 Tai chi w swych ruchach wszystko pokaże
 
+![](/images/IMG_3522.jpeg)
+
 Nada sens życiu, troski wymaże.
 
 Nostalgia wszystkich nas ogarnęła
