@@ -2,8 +2,10 @@
 title: '#4/8 - DELTA'
 date: 2024-11-12T10:10:00
 description: Delta Mekongu / Sajgon
-featured_image: /images/IMG_4103.jpeg
+featured_image: /images/IMG_4115.jpeg
 ---
+![](/images/IMG_4103.jpeg)
+
 Delta w matmie to różnica
 
 Czasem rzeka raz ulica
@@ -71,3 +73,5 @@ Wyjeżdżać żal tyle słońca
 Smaków, wrażeń, także ludzi
 
 Azja nigdy się nie znudzi!
+
+![](/images/IMG_4318%20%281%29.jpeg)
