@@ -4,6 +4,8 @@ date: 2024-11-04T10:10:00
 description: HOI AN
 featured_image: /images/IMG_3561 2.jpeg
 ---
+![](/images/IMG_3626%20%281%29.jpeg)
+
 Jak nie być dumnym z bycia Polakiem
 
 Patrząc na pomnik z naszym rodakiem
@@ -51,5 +53,3 @@ Nim tłum przemieni oblicze tego
 Co najpiękniejsze i naturalne
 
 Odarte z blichtru i wiele warte.
-
-
