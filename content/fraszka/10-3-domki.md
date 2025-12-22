@@ -4,9 +4,11 @@ date: 2025-06-17T10:10:00
 description: Apulgia - Polignano di Mare-Alberobello
 featured_image: /images/IMG_5733.jpeg
 ---
+![](/images/IMG_5729.jpeg)
+
 Czas zostawić południe, bardzo żal jest wyjeżdżać
 
-W głowie krążą wciąż myśli, by tu jeszcze przyjeżdżasz
+W głowie krążą wciąż myśli, by tu jeszcze przyjeżdżać
 
 Aby droga na północ upłynęła na miło
 
@@ -31,3 +33,5 @@ Noc krótka, myśli zostaną, w wielkim podziwie
 Zanim do Bari ruszymy, ostatnie spojrzenie
 
 Krainę Truli zwiedzić warto, po każdej cenie !
+
+![](/images/IMG_5824.jpeg)
