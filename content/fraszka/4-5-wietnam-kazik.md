@@ -53,3 +53,5 @@ Nim tłum przemieni oblicze tego
 Co najpiękniejsze i naturalne
 
 Odarte z blichtru i wiele warte.
+
+![](/images/IMG_3553.jpeg)
