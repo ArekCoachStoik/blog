@@ -4,6 +4,8 @@ date: 2025-03-01T19:10:00
 description: Poznań
 featured_image: /images/alexandra-8RFzy0YEfeE-unsplash.jpg
 ---
+![](/images/IMG_mosty.jpeg)
+
 Weekend się zaczyna myśli brną ku przygodzie
 
 Czy uda się ją znaleźć w poznanskiej zagrodzie ?
@@ -12,7 +14,7 @@ A jakże miasto to w końcu zowie się know how
 
 Niekiedy i poznaniak go jeszcze nie poznał
 
-Od czego więc zacząć skoro już po dwunastej 
+Od czego więc zacząć skoro już po dwunastej
 
 W jeżyckiej uliczce trochę lekko przyciasnej
 
@@ -28,7 +30,7 @@ Czas ruszać w drogę odkrywać  miasto nieznane
 
 Bohaterów Enigmy, wspomnimy dziś chwałę
 
-Polaków, którym nawet anglik nie odbierze 
+Polaków, którym nawet anglik nie odbierze
 
 I z kart historii prawdy nikt już nie wypierze
 
@@ -40,11 +42,11 @@ Stąd już dwa kroki na Fredry do Zbawiciela
 
 Dla wszystkich bez wiary dobrego przyjaciela
 
-Lecz zaraz chwileczkę już wybiła godzina 
+Lecz zaraz chwileczkę już wybiła godzina
 
 By przyjaciół zaciągnąć gdzie dobra nowina
 
-Mosty Berdychowskie łączą stare i nowe 
+Mosty Berdychowskie łączą stare i nowe
 
 Dzięki nim rozkwitną wybrzeża, choć nie portowe
 
