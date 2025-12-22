@@ -4,6 +4,8 @@ date: 2024-12-29T10:10:00
 description: Karkonosze-Łomnica-Karpacz
 featured_image: /images/IMG_4630.jpeg
 ---
+![](/images/IMG_4692.jpeg)
+
 1	Sudety, góry Karkonosze, widok na szczyt
 
  2	W kotlinie jeleniogórskiej malutki jest zgrzyt
