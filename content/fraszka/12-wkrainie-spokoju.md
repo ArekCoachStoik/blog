@@ -4,6 +4,8 @@ date: 2025-09-25T10:10:00
 description: CoteAzur  (Nicea) + Chamonix
 featured_image: /images/IMG_6949.JPEG
 ---
+![](/images/IMG_6987%20%281%29%202.jpeg)
+
 Lazur morza dobrze znany
 
 Wyjazd wspólny wyczekany
