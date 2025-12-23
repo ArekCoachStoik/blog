@@ -1,9 +1,11 @@
 ---
-title: '#14/4 MEKSYK - RAJSKIE PLAŻE'
+title: '#14/4 RAJSKIE PLAŻE'
 date: 2025-11-05T10:10:00
 description: Holbox-Tulum
 featured_image: /images/IMG_8368 2.jpeg
 ---
+![](/images/IMG_8340.JPEG)
+
 Teraz czas rajskich plaż, czy w Meksyku je mają ?
 
 Oczekiwaniom naszym czy one sprostają ?
@@ -60,4 +62,6 @@ Dziękujemy za słońce, ludzi i potrawy
 
 Mieliśmy tutaj mnóstwo, wspaniałej zabawy
 
-Arcos sin gringo pero Polaco
+Arcos - sin gringo pero Polaco
+
+![](/images/IMG_8294.JPEG)
