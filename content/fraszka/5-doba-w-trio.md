@@ -130,6 +130,8 @@ featured_image: /images/IMG_4525.jpeg
 
 63	Piękne owoce tego zbieramy.
 
+![](/images/IMG_4514.jpeg)
+
 **LEGENDA:**
 
 1-8  		Wspomnienia z podróży rodzinnej w Tatry przed Św Bożego Narodzenia 2024
