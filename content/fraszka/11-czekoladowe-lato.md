@@ -4,6 +4,8 @@ date: 2025-08-13T10:10:00
 description: Wolin - Międzywodzie
 featured_image: /images/IMG_6349.JPEG
 ---
+![](/images/IMG_6360.JPEG)
+
 Gdzie to lato się ukryło, nikt nie wie, ja szukam
 
 Czech tu powie, basta przestań, ja tego nie kumam
