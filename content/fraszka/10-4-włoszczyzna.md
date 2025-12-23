@@ -4,6 +4,8 @@ date: 2025-06-19T10:10:00
 description: Apulgia - Bari
 featured_image: /images/IMG_5904.jpeg
 ---
+![](/images/katedra.jpeg)
+
 Koniec wycieczki już bliski
 
 Czas zapakować walizki
@@ -39,3 +41,5 @@ Apuglie już wspominamy
 Ze słońca, zabytków, strawy
 
 Bez końca dobrej zabawy
+
+![](/images/willa.jpg)
