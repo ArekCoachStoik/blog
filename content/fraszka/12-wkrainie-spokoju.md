@@ -109,3 +109,5 @@ No i do tego w słońca kąpieli
 Gór tych majestat z nami zostanie
 
 A przed nami - już tylko latanie.
+
+![](/images/IMG_7112.JPEG)
