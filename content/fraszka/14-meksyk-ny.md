@@ -66,7 +66,7 @@ featured_image: /images/IMG_7415 2.jpeg
 
 **LEGENDA**
 
-1-28 	Wspomnienie z krótkiego pobytu w Nowym Jorku w trakcie międzylądowanie na trasie do Meksyku,  tytuł łączy różne wodne metafory przemieszczania się po Nowym Jorku (Big APPLE)
+1-28 	    Wspomnienie z krótkiego pobytu w Nowym Jorku w trakcie międzylądowanie na trasie do Meksyku,  tytuł łączy różne wodne metafory przemieszczania się po Nowym Jorku (Big APPLE)
 
 4		Big Apple to określenie  jakiego używa się w stosunku do Nowego Jorku
 
