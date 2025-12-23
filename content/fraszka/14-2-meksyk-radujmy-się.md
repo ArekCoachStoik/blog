@@ -1,5 +1,5 @@
 ---
-title: '#14/2 MEKSYK - RADUJMY SIĘ'
+title: '#14/2 RADUJMY SIĘ'
 date: 2025-10-30T10:10:00
 description: Valladolid (Tryptyk)
 featured_image: /images/IMG_7484 2.jpeg
