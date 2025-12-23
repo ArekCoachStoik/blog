@@ -1,10 +1,12 @@
 ---
-title: '#14/1 MEKSYK - WARTKIE JABŁKO'
+title: '#14/1 WARTKIE JABŁKO'
 date: 2025-10-29T10:10:00
 description: New York
 featured_image: /images/IMG_7415 2.jpeg
 ---
-1		Pierwsze chłody za nami, liście lecą już z drzew
+![](/images/IMG_7436.JPEG)
+
+ 1		Pierwsze chłody za nami, liście lecą już z drzew
 
  2		Ogród posprzątany, być może nie każdy krzew
 
@@ -59,6 +61,8 @@ featured_image: /images/IMG_7415 2.jpeg
 27		Stop over w Nowym Yorku wart swego zmęczenia
 
 28		Gdyż popłyną za nami wspaniałe wspomnienia.
+
+![](/images/IMG_8474.JPEG)
 
 **LEGENDA**
 
