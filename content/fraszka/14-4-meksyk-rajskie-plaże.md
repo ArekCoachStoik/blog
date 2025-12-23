@@ -62,6 +62,8 @@ Dziękujemy za słońce, ludzi i potrawy
 
 Mieliśmy tutaj mnóstwo, wspaniałej zabawy
 
-Arcos - sin gringo pero Polaco
+Nareszcie Meksyk poznaliśmy jako tako
+
+To donosi Arcos - sin gringo pero Polaco
 
 ![](/images/IMG_8294.JPEG)
