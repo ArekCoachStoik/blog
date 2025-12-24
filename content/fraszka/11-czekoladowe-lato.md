@@ -26,7 +26,7 @@ Plaża, spacer, biegi, rower, wszystko w swoim czasie
 
 Lato w pełni, humor w transie, wypocząć tu da się
 
-Szkoda tylko ze tak krótko czas kąt oddać innym
+Szkoda tylko, że tak krótko - czas kąt oddać innym
 
 Lato w pełni tu znalazłem, w klimacie rodzinnym
 
