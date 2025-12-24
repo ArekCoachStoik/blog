@@ -102,4 +102,4 @@ Kupując emocje sięgały aż zenitu
 
 Nam pozostaną jako wspomnienia ze szczytu.
 
-![](/images/IMG_8638.JPEG)
+![](/images/IMG_8638%202.jpeg)
