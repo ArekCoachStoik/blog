@@ -52,7 +52,7 @@ featured_image: /images/IMG_4630.jpeg
 
 23	To ich duma i radość, patrzą jak świat chłoną
 
-24	Kiedy od zimna po morsowaniu zapłoną
+24	Kiedy od zimna, po morsowaniu zapłoną
 
 25	Radością, swojego życia, nowym odkryciem
 
@@ -116,7 +116,7 @@ featured_image: /images/IMG_4630.jpeg
 
 6-16	Coroczna wyprawa na “Cycki Janowickie - Sokolik i Górę Krzyżną” w Rudawach Janowickich
 
-7-8		Spotkanie z Jarkiem Kryńskim Leadera Grupy podróży do Nepalu/Indii 2023
+7-8		Spotkanie z Jarkiem Leadera Grupy podróży do Nepalu/Indii 2023
 
 11-12	Nawiązanie do Schroniska Szwajcarka PTTK u podnóża Góry Krzyżnej
 
