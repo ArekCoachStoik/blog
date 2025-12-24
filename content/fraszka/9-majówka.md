@@ -6,7 +6,7 @@ featured_image: /images/A80A0093.JPEG
 ---
 ![](/images/A80A0131%20%281%29%20Small.jpeg)
 
-Maja już początek czas na dłuższą przerwę
+Maja już początek, czas na dłuższą przerwę
 
 W planach jest Podlasie w duszy czuje werwę
 
@@ -16,7 +16,7 @@ Wielu kultur państwa, centrum odnajdziemy
 
 Polak, Żyd i Tatar, Cygan, Rus i Prus
 
-W kultur tyglu żyli, choć nie był to ich mus
+W kultur tyglu żyli, nie był to dla ich mus
 
 Losy niełatwe, splecione jak warkocze
 
@@ -62,7 +62,7 @@ Droga prosta, cerkwie kolorowe stoją
 
 Okiennice w chatkach, nasze oczy koją
 
-Pól rozległych jednak, już tu jest koniec bliski
+Pól rozległych jednak, już tu koniec jest bliski
 
 Puszcza się roztwiera, a z nią zwierząt piski
 
@@ -72,7 +72,7 @@ Symbol Żubrówki i całej naszej Polski
 
 Z sękaczem czas wracać, Wielkopolska czeka
 
-Droga będzie kreta jak niejedna rzeka
+Droga będzie kręta jak niejedna rzeka
 
 Wcześniej Ryki, Komunia, Pałac Żelechów
 
