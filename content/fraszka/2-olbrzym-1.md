@@ -8,7 +8,7 @@ featured_image: /images/IMG_3026.jpeg
 
 Cieszyć się chwilą, znaczy radować
 
-Żyć pełnią życia nic nie żałować
+Żyć pełnią życia - nic nie żałować
 
 Carpe diem mówisz, masz rację chyba
 
