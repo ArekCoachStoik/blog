@@ -28,7 +28,7 @@ Hola Valadolid y Casa Tia Micha
 
 W tym pueblo magicos atrakcji wiele czycha
 
-Dia de meurtos zaczęte dziecięcym pochodem
+Dia de los meurtos wabi dziecięcym pochodem
 
 Fantazja niebiańska a może z piekła rodem
 
