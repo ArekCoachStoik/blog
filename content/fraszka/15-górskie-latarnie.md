@@ -2,9 +2,9 @@
 title: '#15  GÓRSKIE LATARNIE'
 date: 2025-12-20T10:10:00
 description: Szklarska Poręba
-featured_image: /images/IMG_8636.JPEG
+featured_image: /images/IMG_8636 2.jpeg
 ---
-![](/images/IMG_8656.JPEG)
+![](/images/IMG_8656%202.jpeg)
 
 Czas ruszyć na przygodę wieczorową porą
 
@@ -22,7 +22,7 @@ Uśniemy pełni wrażeń olśnieni talentem
 
 Jutro górskie przygody za każdym zakrętem
 
-Pobudka jak na wczasy trochę bez litości 
+Pobudka jak na wczasy trochę bez litości
 
 To w końcu męski wyjazd nie jeden zazdrości
 
@@ -58,7 +58,7 @@ W Jakuszycach Polana dworcem zaskakuje
 
 Tam od prawie półwieku Piast biegiem szusuje
 
-Wnet do dworca dotarliśmy w Szklarskiej Porębie 
+Wnet do dworca dotarliśmy w Szklarskiej Porębie
 
 Architektom pasuje jak to Niebo w gębie
 
