@@ -12,7 +12,7 @@ Latarnie dawno zgasły, nocna jazda - zmorą
 
 Ktoś oświetlił drogę płytą niebylejaką
 
-Tekst złapać nie łatwo ,idzie nam jako TACO
+Tekst złapać nie łatwo, idzie nam jako TACO
 
 Przesłuchane dokładnie ale raz to za mało
 
@@ -24,9 +24,9 @@ Jutro górskie przygody za każdym zakrętem
 
 Pobudka jak na wczasy trochę bez litości
 
-To w końcu męski wyjazd nie jeden zazdrości
+To w końcu męski wyjazd - nie jeden zazdrości
 
-Gdyż zima już za pasem raki czas założyć
+Gdyż zima już za pasem, raki czas założyć
 
 Powodów by je zabrać można by namnożyć
 
@@ -34,9 +34,9 @@ Niech no rzuci kamieniem ten co się nie ślizną
 
 Prosto zakończyć wypad czasem z dużą  blizną
 
-Kamieńczyk rzuca urok ,lód znika nam z drogi
+Kamieńczyk rzuca urok, lód znika nam z drogi
 
-Hala Szrenica woła,  czy są tam pierogi ?
+Hala Szrenicka woła,  czy są tam pierogi ?
 
 W sumie wszystko było nawet kamień wędrowny
 
@@ -48,7 +48,7 @@ Acz widok po horyzont chmurami pokryty
 
 Czas wracać jak jednak coś nowego zobaczyć
 
-Trzeba swoją nogę w nowym szlaku zaznaczyć
+Trzeba szybko nogę w nowym szlaku zaznaczyć
 
 Droga ciężka, uroku Owcze skały dały
 
@@ -60,7 +60,7 @@ Tam od prawie półwieku Piast biegiem szusuje
 
 Wnet do dworca dotarliśmy w Szklarskiej Porębie
 
-Architektom pasuje jak to Niebo w gębie
+Architektom pasuje jak to "Niebo w gębie"
 
 Czas na mistrza się gotować ale saunowego
 
@@ -84,15 +84,15 @@ Zanim to wszystko poznamy historię Łaby
 
 Dobrze się mu przyjrzeć nim w dół warto ruszymy
 
-I łabskiego wodospad w całej krasie ujrzymy
+I łabski wodospad w całej krasie ujrzymy
 
-Wracamy do Resortu, raz truchtem raz chodem
+Mkniemy do Resortu, raz truchtem a raz chodem
 
 By przed nocą u Hutnika dać rozbrat z głodem
 
-Wracamy autem choć Tramwaje są dziś w modzie
+Wracamy też autem choć Tramwaje są w modzie
 
-Aby ich doznać nic nie stanie na przeszkodzie
+Aby ich słuchać nic nie stanie na przeszkodzie
 
 Bilety na płytę kupione, stadion czeka
 
