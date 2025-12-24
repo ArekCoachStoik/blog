@@ -6,21 +6,21 @@ featured_image: /images/alexandra-8RFzy0YEfeE-unsplash.jpg
 ---
 ![](/images/IMG_mosty.jpeg)
 
-Weekend się zaczyna myśli brną ku przygodzie
+Weekend się zaczyna, myśli brną ku przygodzie
 
 Czy uda się ją znaleźć w poznanskiej zagrodzie ?
 
-A jakże miasto to w końcu zowie się know how
+A jakże, miasto to w końcu zowie się - know how
 
-Niekiedy i poznaniak go jeszcze nie poznał
+Niejeden to poznaniak - go jeszcze nie poznał
 
-Od czego więc zacząć skoro już po dwunastej
+Od czego więc zacząć - skoro już po dwunastej
 
 W jeżyckiej uliczce trochę lekko przyciasnej
 
 Szukaj przeszłości i podniebienia radości
 
-Nie tym razem, Święty Marcin nas dziś ugości
+Tym razem Święty Marcin nas tu dziś ugości
 
 Swym Groniem me dziecię zakręci dziś w głowie
 
@@ -32,7 +32,7 @@ Bohaterów Enigmy, wspomnimy dziś chwałę
 
 Polaków, którym nawet anglik nie odbierze
 
-I z kart historii prawdy nikt już nie wypierze
+I z kart historii prawdy, nikt już nie wypierze
 
 Że nasze chłopaki, dzielni matematycy
 
@@ -58,6 +58,6 @@ Fromażeria, w garncu miesza nie tylko sery
 
 W marcu jak w garncu poda dziś również desery
 
-Koniec już tej przygody czas wracać do domu
+Koniec już tej przygody, czas wracać do domu
 
 Może i ta fraszka przyda się, tylko komu?
