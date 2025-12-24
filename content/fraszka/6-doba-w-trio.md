@@ -1,7 +1,7 @@
 ---
 title: '#5 - DOBA W TRIO'
 date: 2024-12-07T10:10:00
-description: Gdańsk-Spot-Gdynia
+description: Gdańsk-Sopot-Gdynia
 featured_image: /images/IMG_4427.jpeg
 ---
 ![](/images/IMG_jarmark.jpg)
@@ -18,7 +18,7 @@ featured_image: /images/IMG_4427.jpeg
 
  6	Choć dopłynąć można w łodzi
 
- 7	My do pociągu wbijamy
+ 7	My - do pociągu wbijamy
 
  8	I przygodę zaczynamy
 
