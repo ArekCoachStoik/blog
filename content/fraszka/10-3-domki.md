@@ -1,7 +1,7 @@
 ---
 title: '#10/3- DOMKI'
 date: 2025-06-17T10:10:00
-description: Apulgia - Polignano di Mare-Alberobello
+description: Apulgia - Polignano a Mare-Alberobello
 featured_image: /images/IMG_5733.jpeg
 ---
 ![](/images/IMG_5729.jpeg)
@@ -12,7 +12,7 @@ W głowie krążą wciąż myśli, by tu jeszcze przyjeżdżać
 
 Aby droga na północ upłynęła na miło
 
-Od pomysłów na zwiedzanie, nam się zaroiło
+Od pomysłów zwiedzania, nam się aż zaroiło
 
 Pierwszy postój nad morzem, w radio leci Volare
 
@@ -28,7 +28,7 @@ Zdjęć, zdjątek, selfików, w sumie nie można przerwać
 
 Serce z rozumem walczy, domek czeka cierpliwie
 
-Noc krótka, myśli zostaną, w wielkim podziwie
+Noc krótka, myśli zostaną w wielkim podziwie
 
 Zanim do Bari ruszymy, ostatnie spojrzenie
 
