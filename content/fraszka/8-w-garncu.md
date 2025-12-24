@@ -14,7 +14,7 @@ Czas wyruszyć już w drogę, pobudka to wyzwanie
 
 Samolot już czeka, w nim,  domowe śniadanie
 
-Lot krótki, sum słuchawek, niepokój umilił
+Lot krótki, szum słuchawek, niepokój umilił
 
 Fiat 500 nie czekał, nikt się mocno nie zdziwił
 
@@ -22,7 +22,7 @@ Fiat 500 nie czekał, nikt się mocno nie zdziwił
 
 Jak Bond, pędem, do Matery ruszyć w pogodę
 
-Iść się po mieście z Pasją, przebyć krzyżową drogę
+Iść po mieście z Pasją, przebyć krzyżową drogę
 
 Rozkochać się jak Gibson, zgubić się też tu mogę
 
