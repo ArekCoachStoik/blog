@@ -48,9 +48,9 @@ To do dzisiaj, nie poległa
 
 Miejsce za to, dość zniszczone
 
-Choć przez Chamów, było czczone
+Choć przez Czamów, było czczone
 
-Nie myl chama z tamtym Chamem
+Nie myl chama z tamtym Czamem
 
 On był królem, wielkim Panem
 
