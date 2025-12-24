@@ -36,7 +36,7 @@ Co dla potomnym tutaj dziś mamy
 
 Dzięki to nie mu starówka stoi
 
-Dał cynk komuchom ze nie przystoi
+Dał cynk komuchom, że nie przystoi
 
 Coś tak pięknego od tak skasować
 
