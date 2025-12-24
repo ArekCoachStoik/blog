@@ -21,3 +21,5 @@ Po to by aby na końcu wylądować na czyimś weselu
 Hotel butikowy, noc krótka, przepyszne śniadanie
 
 To "grzybobranie" na długo w pamięci zostanie.
+
+![](/images/IMG_2946%202.jpeg)
