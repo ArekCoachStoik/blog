@@ -20,7 +20,7 @@ featured_image: /images/IMG_4525.jpeg
 
  7	Już prawie północ, do łóżek iść czas
 
- 8	Góralski Resort ugości dziś nas
+ 8	Góralski Resort, ugości dziś nas
 
  9	Wstajemy rano, szybkie śniadanie
 
@@ -84,7 +84,7 @@ featured_image: /images/IMG_4525.jpeg
 
 40	My jednak chcemy zwiedzić też miasto
 
-41	Wciągnąć obiadek może też ciasto
+41	Wciągnąć obiadek, może też ciasto
 
 42	Zakopiec blisko, centrum Podhala
 
