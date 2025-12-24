@@ -110,6 +110,8 @@ featured_image: /images/IMG_4630.jpeg
 
 52	Kto jak myśli o sobie tak z życia korzysta.
 
+![](/images/IMG_4640.jpeg)
+
 **LEGENDA:**
 
 1-5  		Wspomnienia z podróży w Karkonosze na Sylwestra/Nowy Rok 2025
