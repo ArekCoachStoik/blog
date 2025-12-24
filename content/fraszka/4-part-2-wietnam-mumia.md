@@ -10,7 +10,7 @@ Gdyby faraon żył dzisiaj jeszcze
 
 W krokodylowe wrzuciłby kleszcze
 
-Człowieka który rzecz postanowił
+Człowieka, który rzecz postanowił
 
 By wszystkie ryby, które wyłowił
 
