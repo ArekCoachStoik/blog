@@ -68,7 +68,7 @@ Zakończmy tą retorykę
 
 Wycieczka dobiega końca
 
-Wyjeżdżać żal tyle słońca
+Wyjeżdżać żal - tyle słońca
 
 Smaków, wrażeń, także ludzi
 
