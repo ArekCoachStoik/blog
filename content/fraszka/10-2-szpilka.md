@@ -16,7 +16,7 @@ Pięknych miast jest bez liku i wskoczyć nie zawadzi
 
 W Monopli Gustavo, ma swój monopol cały
 
-Z Instagrama focacie, zjada duży i mały
+Z IG focaccie, zjada duży, średni i mały
 
 Buta szpilka już czeka ze wspaniałą pogodą
 
