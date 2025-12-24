@@ -1,7 +1,7 @@
 ---
 title: '#13 - LAZUROWE ALPY'
 date: 2025-09-25T10:10:00
-description: CoteAzur  (Nicea) + Chamonix
+description: Cote Azur  (Nicea) + Chamonix
 featured_image: /images/IMG_6949.JPEG
 ---
 ![](/images/IMG_6987%20%281%29%202.jpeg)
@@ -52,7 +52,7 @@ Wszystko to się jakoś zlewa
 
 W obraz miejsca tak dziwnego
 
-Z piękna bycia odartego.
+Z piękna bycia odartego
 
 Zamek owszem, zmiana warty
 
@@ -102,12 +102,12 @@ W górę hen kolej prowadzi
 
 Spojrzeć w górę nie za wadzi
 
-Aqui di Midi cała w bieli
+Aqui di Midi jest w bieli
 
-No i do tego w słońca kąpieli
+Do tego w słońca kąpieli
 
-Gór tych majestat z nami zostanie
+Wspomnienie z nami zostanie
 
-A przed nami - już tylko latanie.
+Przed nami - tylko latanie.
 
 ![](/images/IMG_7112.JPEG)
