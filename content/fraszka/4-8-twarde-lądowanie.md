@@ -14,7 +14,7 @@ Gdyż na zewnątrz jest już plucha
 
 Pogodowa zawierucha
 
-W pracy Sajgon dasz ty wiarę
+W pracy Sajgon, dasz ty wiarę
 
 Choć liczony w inną miarę
 
@@ -36,7 +36,7 @@ Chwycić epicką poradę
 
 Carpe diem i prosta sprawa
 
-Choć to praca nie zabawa
+Choć to praca, nie zabawa
 
 Wszystko siedzi w naszej głowie
 
@@ -46,7 +46,7 @@ Jak tu jednak nie zwariować
 
 I z tej troski nie chorować
 
-Planuj wyjazd zwlekać szkoda
+Planuj wyjazd, zwlekać szkoda
 
 Wtedy życie to przygoda
 
