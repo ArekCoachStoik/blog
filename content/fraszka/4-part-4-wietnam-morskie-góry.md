@@ -10,7 +10,7 @@ Czy stoi za tym jakaś logika
 
 Wszystko co piękne tak szybko znika
 
-Zanim zniknęło nas pochłonęło
+Zanim zniknęło, nas pochłonęło
 
 Skąd się to wszystko nagle tu wzięło
 
@@ -18,7 +18,7 @@ Morze i góry, góry i morze
 
 Może smoczysko tutaj pomoże
 
-Zwierz to olbrzymi ma wielkie moce
+Zwierz to olbrzymi, ma wielkie moce
 
 Te cuda stworzył w HA LONG zatoce
 
