@@ -40,7 +40,7 @@ Nawet algi w zatoce swój blask pokazały
 
 Nim czek na prom powrotny, trzeba będzie podać
 
-Stek z tuny, serveze, garść pesso, muszę oddać
+Stek z tuny, serveze, garść pesso - klucze oddać
 
 Opuszczać Holbox trzeba, ruszyć w dalszą drogę
 
@@ -62,7 +62,7 @@ Dziękujemy za słońce, ludzi i potrawy
 
 Mieliśmy tutaj mnóstwo, wspaniałej zabawy
 
-Nareszcie Meksyk poznaliśmy jako tako
+Meksyk nareszcie poznaliśmy jako tako
 
 To donosi Arcos - sin gringo pero Polaco
 
