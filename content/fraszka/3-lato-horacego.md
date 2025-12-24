@@ -1,14 +1,14 @@
 ---
 title: '#4/1 - URLODZINY'
 date: 2024-10-28T10:10:00
-description: Poznań
+description: Poznań przed wylotem do Wietnam
 featured_image: /images/IMG_3216.jpeg
 ---
 ![](/images/IMG_3161.jpeg)
 
-Urlop, wczasy, wypoczynek wreszcie na to czas
+Urlop, wczasy, wypoczynek, wreszcie na to czas
 
-Można spędzić go dowolnie choćby nura w las
+Można spędzić go dowolnie, choćby nura w las
 
 Co począć gdy ambicja dalej niż w las mierzy
 
@@ -22,9 +22,9 @@ Jak na przykład urodziny, ups pięćdziesiąte
 
 Wszystko pokręcone, jak piąte przez dziesiąte
 
-Ważne pytanie, urlop to czy urodziny?
+Ważne tu pytanie, urlop czy urodziny?
 
-Myśl przewrotna podpowie, że to „urlodziny”
+Myśl pisarska podpowie - że to „urlodziny”
 
 Hedoniczna adaptacja szepce drogi plan
 
@@ -61,3 +61,5 @@ Las ten dżunglą się okaże na to liczymy
 Wszystko spakowane, dobre mamy humory
 
 Od rana wskakujemy na podróży tory.
+
+![](/images/planetesapce.jpg)
