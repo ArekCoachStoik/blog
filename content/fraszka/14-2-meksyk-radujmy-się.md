@@ -60,13 +60,13 @@ Kapoki założone, drinki są w plecaku
 
 Czego się tu spodziewać, dziewczyno, chłopaku
 
-Ruszamy,silnik warcze, tempa nabieramy
+Ruszamy, silnik warcze, tempa nabieramy
 
 Nagle stop, tu czeka, krokodyl spodziewany
 
 Do wody rękę włoży, wariat bądź bohater
 
-Na szczęście, to nie widzi, jego Alma Mater
+Na szczęście, nie zobaczy, jego Alma Mater
 
 Dalej ptaków co nie miara, głowa skręca - tak,
 
@@ -104,7 +104,7 @@ A zostawić to miejsce, to tylko za karę
 
 ![](/images/IMG_7739%202.jpeg)
 
-Dzień kolejny czas zacząć pobudką poranną
+Dzień kolejny czas zacząć, pobudką poranną
 
 Stanąć przed piramidą, olbrzymią, staranną
 
@@ -112,7 +112,7 @@ To miasto Chichen Itza, duma wszystkich Mayów
 
 Znana, odwiedzana, przez ludzi z wielu krajów
 
-Kompleks potężny, wszystko w nim prawie pasuje
+Kompleks potężny, prawie w nim wszystko pasuje
 
 Straganów masa, finalny efekt popsuje
 
