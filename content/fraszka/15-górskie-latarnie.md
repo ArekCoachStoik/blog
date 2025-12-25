@@ -38,7 +38,7 @@ Kamieńczyk rzuca urok, lód znika nam z drogi
 
 Hala Szrenicka woła,  czy są tam pierogi ?
 
-W sumie wszystko było nawet kamień wędrowny
+W sumie wszystko było, nawet kamień wędrowny
 
 Znalazł się tu dla niego - właściciel ponowny
 
@@ -50,7 +50,7 @@ Czas wracać jak jednak coś nowego zobaczyć
 
 Trzeba swoją nogę, w nowym szlaku zaznaczyć
 
-Droga ciężka, uroku Owcze skały dały
+Droga ciężka, uroku Owcze dały skały
 
 Kierunek do stacji od razu nam wskazały
 
@@ -74,7 +74,7 @@ Hemingway, jak raper - tak nam tu pomoże
 
 “Człowiek nie młody” “i” po górach chodzić “morze”
 
-Noc krótka pierwsze odciski są już na piętach
+Noc krótka, odciski dają się w znak na piętach
 
 To wszystko zniknie w Kotłów Śnieżnych odmętach
 
@@ -84,22 +84,22 @@ Zanim to się stanie - poznam historię Łaby
 
 Dobrze się mu przyjrzeć nim w dół wartko ruszymy
 
-I wodospad łabski w całej krasie ujrzymy
+I wodospad łabski w pełnej krasie ujrzymy
 
 Mkniemy do Resortu, raz truchtem a raz chodem
 
-By przed nocą u Hutnika dać rozbrat z głodem
+By przed nocą u Hutnika, rozbrat dać z głodem
 
 Wracamy też autem choć Tramwaje są w modzie
 
-By ich "słuchać", nic nam nie stanie, na przeszkodzie
+By ich "słuchać", nic nie stanie, nam na przeszkodzie
 
 Bilety na płytę kupione, stadion czeka
 
-Prosić nie trzeba, chociaż Fifi chwilę poczeka
+Prosić nie trzeba, choć Fifi chwilę poczeka
 
-Kupując emocje sięgały nam zenitu
+Kupując- emocje sięgały nam zenitu
 
-One pozostaną jak wspomnienia ze szczytu.
+Pozostaną one jak wspomnienia ze szczytu.
 
 ![](/images/IMG_8638%202.jpeg)
