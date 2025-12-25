@@ -4,7 +4,7 @@ date: 2025-12-20T10:10:00
 description: Szklarska Poręba
 featured_image: /images/IMG_8636 2.jpeg
 ---
-![](/images/IMG_8656%202.jpeg)
+![](/images/IMG_8657.JPEG)
 
 Czas ruszyć na przygodę, wieczorową porą
 
