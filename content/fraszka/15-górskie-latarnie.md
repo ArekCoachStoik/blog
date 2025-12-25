@@ -6,7 +6,7 @@ featured_image: /images/IMG_8636 2.jpeg
 ---
 ![](/images/IMG_8656%202.jpeg)
 
-Czas ruszyć na przygodę wieczorową porą
+Czas ruszyć na przygodę, wieczorową porą
 
 Latarnie dawno zgasły, nocna jazda - zmorą
 
@@ -18,7 +18,7 @@ Przesłuchane dokładnie ale raz to za mało
 
 Tak jak z tym Resortem - gdy hotel to za mało
 
-Uśniemy pełni wrażeń olśnieni talentem
+Uśniemy pełni wrażeń, olśnieni talentem
 
 Jutro górskie przygody za każdym zakrętem
 
@@ -40,7 +40,7 @@ Hala Szrenicka woła,  czy są tam pierogi ?
 
 W sumie wszystko było nawet kamień wędrowny
 
-Znalazł się tu dla niego właściciel ponowny
+Znalazł się tu dla niego - właściciel ponowny
 
 Małe kroki do góry - szczyt Szrenicy zdobyty
 
@@ -48,43 +48,43 @@ Acz widok po horyzont chmurami pokryty
 
 Czas wracać jak jednak coś nowego zobaczyć
 
-Trzeba szybko nogę w nowym szlaku zaznaczyć
+Trzeba swoją nogę, w nowym szlaku zaznaczyć
 
 Droga ciężka, uroku Owcze skały dały
 
-Kierunek na stacje od razu nam wskazały
+Kierunek do stacji od razu nam wskazały
 
 W Jakuszycach Polana dworcem zaskakuje
 
-Tam od prawie półwieku Piast biegiem szusuje
+Tam od prawie półwieku Piast z Piastem szusuje
 
-Wnet do dworca dotarliśmy w Szklarskiej Porębie
+Drahą jesteśmy na dworcu w Szklarskiej Porębie
 
 Architektom pasuje jak to "Niebo w gębie"
 
-Czas na mistrza się gotować ale saunowego
+Już czas się gotować na mistrza saunowego
 
 Wachlarzem, olejkami zrobi z nas nowego
 
-Wspinacza, turystę człowieka niezłomnego
+Wspinacza, turystę, człowieka niezłomnego
 
-Do zmagań z naturą zawsze gotowego
+Do zmagań z naturą, zawsze gotowego
 
-Hemingway, jak raper tak nam tu pomoże
+Hemingway, jak raper - tak nam tu pomoże
 
 “Człowiek nie młody” “i” po górach chodzić “morze”
 
 Noc krótka pierwsze odciski są już na piętach
 
-To wszystko zniknie w snieżnych kotłów odmętach
+To wszystko zniknie w Kotłów Śnieżnych odmętach
 
-Zanim to wszystko poznamy historię Łaby
+Zanim to się stanie - poznam historię Łaby
 
-Łabski szczyt, schronisko a pomnik ważne aby
+Łabski szczyt, schronisko a pomnik - ważne aby ..
 
-Dobrze się mu przyjrzeć nim w dół warto ruszymy
+Dobrze się mu przyjrzeć nim w dół wartko ruszymy
 
-I łabski wodospad w całej krasie ujrzymy
+I wodospad łabski w całej krasie ujrzymy
 
 Mkniemy do Resortu, raz truchtem a raz chodem
 
@@ -92,14 +92,14 @@ By przed nocą u Hutnika dać rozbrat z głodem
 
 Wracamy też autem choć Tramwaje są w modzie
 
-Aby ich słuchać nic nie stanie na przeszkodzie
+By ich "słuchać", nic nam nie stanie, na przeszkodzie
 
 Bilety na płytę kupione, stadion czeka
 
 Prosić nie trzeba, chociaż Fifi chwilę poczeka
 
-Kupując emocje sięgały aż zenitu
+Kupując emocje sięgały nam zenitu
 
-Nam pozostaną jako wspomnienia ze szczytu.
+One pozostaną jak wspomnienia ze szczytu.
 
 ![](/images/IMG_8638%202.jpeg)
