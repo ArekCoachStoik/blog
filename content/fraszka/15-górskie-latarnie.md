@@ -6,100 +6,104 @@ featured_image: /images/IMG_8636 2.jpeg
 ---
 ![](/images/IMG_8657.JPEG)
 
-Czas ruszyć na przygodę, wieczorową porą
+ 1 Czas ruszyć na przygodę, wieczorową porą
 
-Latarnie dawno zgasły, nocna jazda - zmorą
+ 2 Latarnie dawno zgasły, nocna jazda - zmorą
 
-Ktoś oświetlił drogę płytą niebylejaką
+ 3 Ktoś oświetlił drogę płytą niebylejaką
 
-Tekst złapać nie łatwo, idzie nam jako TACO
+ 4 Tekst złapać nie łatwo, idzie nam jako TACO
 
-Przesłuchane dokładnie ale raz to za mało
+ 5 Przesłuchane dokładnie ale raz to za mało
 
-Tak jak z tym Resortem - gdy hotel to za mało
+ 6 Tak jak z tym Resortem - gdy hotel to za mało
 
-Uśniemy pełni wrażeń, olśnieni talentem
+7 Uśniemy pełni wrażeń, olśnieni talentem
 
-Jutro górskie przygody za każdym zakrętem
+8 Jutro górskie przygody za każdym zakrętem
 
-Pobudka jak na wczasy trochę bez litości
+9 Pobudka jak na wczasy trochę bez litości
 
-To w końcu męski wyjazd - nie jeden zazdrości
+10To w końcu męski wyjazd - nie jeden zazdrości
 
-Gdyż zima już za pasem, raki czas założyć
+11 Gdyż zima już za pasem, raki czas założyć
 
-Powodów by je zabrać można by namnożyć
+12 Powodów by je zabrać można by namnożyć
 
-Niech no rzuci kamieniem ten co się nie ślizną
+13 Niech no rzuci kamieniem ten co się nie ślizną
 
-Prosto zakończyć wypad czasem z dużą  blizną
+14 Prosto zakończyć wypad czasem z dużą  blizną
 
-Kamieńczyk rzuca urok, lód znika nam z drogi
+15 Kamieńczyk rzuca urok, lód znika nam z drogi
 
-Hala Szrenicka woła,  czy są tam pierogi ?
+16 Hala Szrenicka woła,  czy są tam pierogi ?
 
-W sumie wszystko było, nawet kamień wędrowny
+17 W sumie wszystko było, nawet kamień wędrowny
 
-Znalazł się tu dla niego - właściciel ponowny
+18 Znalazł się tu dla niego - właściciel ponowny
 
-Małe kroki do góry - szczyt Szrenicy zdobyty
+19 Małe kroki do góry - szczyt Szrenicy zdobyty
 
-Acz widok po horyzont chmurami pokryty
+20 Acz widok po horyzont chmurami pokryty
 
-Czas wracać jak jednak coś nowego zobaczyć
+21 Czas wracać jak jednak coś nowego zobaczyć
 
-Trzeba swoją nogę, w nowym szlaku zaznaczyć
+22 Trzeba swoją nogę, w nowym szlaku zaznaczyć
 
-Droga ciężka, uroku Owcze dały skały
+23 Droga ciężka, uroku Owcze dały skały
 
-Kierunek do stacji od razu nam wskazały
+24 Kierunek do stacji od razu nam wskazały
 
-W Jakuszycach Polana dworcem zaskakuje
+25 W Jakuszycach Polana dworcem zaskakuje
 
-Tam od prawie półwieku Piast z Piastem szusuje
+26 Tam od prawie półwieku Piast z Piastem szusuje
 
-Drahą jesteśmy na dworcu w Szklarskiej Porębie
+27 Drahą jesteśmy na dworcu w Szklarskiej Porębie
 
-Architektom pasuje jak to "Niebo w gębie"
+28 Architektom pasuje jak to "Niebo w gębie"
 
-Już czas się gotować na mistrza saunowego
+29 Już czas się gotować na mistrza saunowego
 
-Wachlarzem, olejkami zrobi z nas nowego
+30 Wachlarzem, olejkami zrobi z nas nowego
 
-Wspinacza, turystę, człowieka niezłomnego
+31 Wspinacza, turystę, człowieka niezłomnego
 
-Do zmagań z naturą, zawsze gotowego
+32 Do zmagań z naturą, zawsze gotowego
 
-Hemingway, jak raper - tak nam tu pomoże
+33 Hemingway, jak raper - tak nam tu pomoże
 
-“Człowiek nie młody” “i” po górach chodzić “morze”
+34 “Człowiek nie młody” “i” po górach chodzić “morze”
 
-Noc krótka, odciski dają się w znak na piętach
+35 Noc krótka, odciski dają się w znak na piętach
 
-To wszystko zniknie w Kotłów Śnieżnych odmętach
+36 To wszystko zniknie w Kotłów Śnieżnych odmętach
 
-Zanim to się stanie - poznam historię Łaby
+37 Zanim to się stanie - poznam historię Łaby
 
-Łabski szczyt, schronisko a pomnik - ważne aby ..
+38 Łabski szczyt, schronisko a pomnik - ważne aby ..
 
-Dobrze się mu przyjrzeć nim w dół wartko ruszymy
+39 Dobrze się mu przyjrzeć nim w dół wartko ruszymy
 
-I wodospad łabski w pełnej krasie ujrzymy
+40 I wodospad łabski w pełnej krasie ujrzymy
 
-Mkniemy do Resortu, raz truchtem a raz chodem
+41 Mkniemy do Resortu, raz truchtem a raz chodem
 
-By przed nocą u Hutnika, rozbrat dać z głodem
+42 By przed nocą u Hutnika, rozbrat dać z głodem
 
-Wracamy też autem choć Tramwaje są w modzie
+43 Wracamy też autem choć Tramwaje są w modzie
 
-By ich "słuchać", nic nie stanie, nam na przeszkodzie
+44 By ich "słuchać", nic nie stanie, nam na przeszkodzie
 
-Bilety na płytę kupione, stadion czeka
+45 Bilety na płytę kupione, stadion czeka
 
-Prosić nie trzeba, choć Fifi chwilę poczeka
+46 Prosić nie trzeba, choć Fifi chwilę poczeka
 
-Kupując- emocje sięgały nam zenitu
+47 Kupując- emocje sięgały nam zenitu
 
-Pozostaną one jak wspomnienia ze szczytu.
+48 Pozostaną one jak wspomnienia ze szczytu.
 
 ![](/images/IMG_8638%202.jpeg)
+
+**LEGENDA**
+
+1-48 Męska wyprawa w góry ojca i syna
