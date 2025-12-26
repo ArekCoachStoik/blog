@@ -107,3 +107,35 @@ featured_image: /images/IMG_8636 2.jpeg
 **LEGENDA**
 
 1-48 Męska wyprawa w góry ojca i syna
+
+2-4 "Latarnie dawno zgasły" - tytuł nowej płyty Taco Hemingwaya
+
+6 -  Motto Resort Blue Mountain - gdy hotel to za mało
+
+11 - raki - zabezpieczenie na buty przed lodem
+
+15 - Wodospad Kamieńczyk
+
+17 - Kamień wędrowny - inicjatywa #Kamyczki  
+
+23 - Szlak Hala Szrenicka-Polana Jakuszycka
+
+26 - w 2026r będzie 50 Bieg Piastów 
+
+27 - Drama to po czesku Kolej
+
+28 - Dworzec w Szklarskiej Porębie zdobył tytuł najładniejszego małego dworca w Polsce, a "Niebo w gębie" to nazwa sieci restauracji w Karkonoszach,
+
+29 - Rytuał sanowania w Blue Mountain Resort
+
+33-34 Parafraza pomiędzy twórczością Ernesta Hemingwaya, Taco Hemingwaya a możliwościami chodzenia po górach niekoniecznie w młodym wieku - słowo "morze" jest celowo tak napisane :-)
+
+37 - pod łabskim szczytem od strony Czech znajduje się pomnik i źródło Łaby
+
+41 - ze względu na krótki dzień ( najkrótszy w roku) i długą wycieczkę aby zdarzyć przed zmrokiem cześć końcowa trasy odbyła się również biegiem
+
+42 - Karczma Hutnika - restauracja w Szklarskiej Porębie
+
+43 - Tramwaje to tytuł piosenki z nowej płyty TACO
+
+44-47 - fragment dotyczy kupowania biletu na koncert TACO w Warszawie 23.05.26 - bilety na płytę sprzedały się w 8 minut od startu sprzedaży
