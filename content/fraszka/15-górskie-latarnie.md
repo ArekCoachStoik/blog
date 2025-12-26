@@ -116,13 +116,13 @@ featured_image: /images/IMG_8636 2.jpeg
 
 15 - Wodospad Kamieńczyk
 
-17 - Kamień wędrowny - inicjatywa #Kamyczki  
+17 - Kamień wędrowny - inicjatywa #Kamyczki
 
 23 - Szlak Hala Szrenicka-Polana Jakuszycka
 
-26 - w 2026r będzie 50 Bieg Piastów 
+26 - w 2026r będzie 50 Bieg Piastów
 
-27 - Drama to po czesku Kolej
+27 - Draha to po czesku Kolej
 
 28 - Dworzec w Szklarskiej Porębie zdobył tytuł najładniejszego małego dworca w Polsce, a "Niebo w gębie" to nazwa sieci restauracji w Karkonoszach,
 
@@ -136,6 +136,6 @@ featured_image: /images/IMG_8636 2.jpeg
 
 42 - Karczma Hutnika - restauracja w Szklarskiej Porębie
 
-43 - Tramwaje to tytuł piosenki z nowej płyty TACO
+43 - "Tramwaje" to tytuł piosenki z nowej płyty TACO
 
 44-47 - fragment dotyczy kupowania biletu na koncert TACO w Warszawie 23.05.26 - bilety na płytę sprzedały się w 8 minut od startu sprzedaży
