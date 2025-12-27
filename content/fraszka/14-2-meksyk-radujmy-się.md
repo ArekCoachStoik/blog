@@ -78,7 +78,7 @@ Fotki robię co i raz, w niezliczonej masie
 
 Jeszcze Spa jest przed nami, glinka leczy ciało
 
-A Maria, Jezus patrzą, by się nic nie stało
+A Maria, Jezus patrzą, by nic się nie stało
 
 Nasze miasto już czeka w radosnej scenerii
 
