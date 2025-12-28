@@ -42,15 +42,15 @@ featured_image: /images/IMG_8636 2.jpeg
 
 18 Znalazł się tu dla niego - właściciel ponowny
 
-19 Małe kroki do góry - szczyt Szrenicy zdobyty
+19 Dwa kroki do góry - najbliższy szczyt jaśnieje 
 
-20 Acz widok po horyzont chmurami pokryty
+20 Szrenica w swoim blasku, już się do nas śmieje
 
 21 Czas wracać jak jednak coś nowego zobaczyć
 
 22 Trzeba swoją nogę, w nowym szlaku zaznaczyć
 
-23 Droga ciężka, uroku Owcze dały skały
+23 Droga ciężka, rozbłysną tutaj Owcze skały
 
 24 Kierunek do stacji od razu nam wskazały
 
@@ -74,33 +74,41 @@ featured_image: /images/IMG_8636 2.jpeg
 
 34 “Człowiek nie młody” “i” po górach chodzić “morze”
 
-35 Noc krótka, odciski dają się w znak na piętach
+35 By chodzić po górach zdrowie się przydaje
 
-36 To wszystko zniknie w Kotłów Śnieżnych odmętach
+36 Pod Apteką nie jeden swą miłość poznaje
 
-37 Zanim to się stanie - poznam historię Łaby
+37 Nasza miłość do gór nie stamtąd pochodzi
 
-38 Łabski szczyt, schronisko a pomnik - ważne aby ..
+38 A to wszystko zaczęło się kiedyś tam  w Łodzi
 
-39 Dobrze się mu przyjrzeć nim w dół wartko ruszymy
+39 Noc krótka, odciski dają się w znak na piętach
 
-40 I wodospad łabski w pełnej krasie ujrzymy
+40 To wszystko zniknie w Kotłów Śnieżnych odmętach
 
-41 Mkniemy do Resortu, raz truchtem a raz chodem
+41 Zanim to się stanie - poznam historię Łaby
 
-42 By przed nocą u Hutnika, rozbrat dać z głodem
+42 Łabski szczyt, schronisko a pomnik - ważne aby ..
 
-43 Wracamy też autem choć Tramwaje są w modzie
+43 Dobrze się mu przyjrzeć nim w dół wartko ruszymy
 
-44 By ich "słuchać", nic nie stanie, nam na przeszkodzie
+44 I wodospad łabski w pełnej krasie ujrzymy
 
-45 Bilety na płytę kupione, stadion czeka
+45 Mkniemy do Resortu, raz truchtem a raz chodem
 
-46 Prosić nie trzeba, choć Fifi chwilę poczeka
+46 By przed nocą u Hutnika, rozbrat dać z głodem
 
-47 Kupując- emocje sięgały nam zenitu
+47 Wracamy też autem choć Tramwaje są w modzie
 
-48 Pozostaną one jak wspomnienia ze szczytu.
+49 By ich "słuchać", nic nie stanie, nam na przeszkodzie
+
+50 Bilety na płytę kupione, stadion czeka
+
+51 Prosić nie trzeba, choć Fifi chwilę poczeka
+
+52 Kupując- emocje sięgały nam zenitu
+
+53 Pozostaną one jak wspomnienia ze szczytu.
 
 ![](/images/IMG_8638%202.jpeg)
 
@@ -134,10 +142,10 @@ featured_image: /images/IMG_8636 2.jpeg
 
 37 - pod łabskim szczytem od strony Czech znajduje się pomnik i źródło Łaby
 
-41 - ze względu na krótki dzień ( najkrótszy w roku) i długą wycieczkę aby zdarzyć przed zmrokiem cześć końcowa trasy odbyła się również biegiem
+45 - ze względu na krótki dzień ( najkrótszy w roku) i długą wycieczkę aby zdarzyć przed zmrokiem cześć końcowa trasy odbyła się również biegiem
 
-42 - Karczma Hutnika - restauracja w Szklarskiej Porębie
+46 - Karczma Hutnika - restauracja w Szklarskiej Porębie
 
-43 - "Tramwaje" to tytuł piosenki z nowej płyty TACO
+47 - "Tramwaje" to tytuł piosenki z nowej płyty TACO
 
-44-47 - fragment dotyczy kupowania biletu na koncert TACO w Warszawie 23.05.26 - bilety na płytę sprzedały się w 8 minut od startu sprzedaży
+50-53 - fragment dotyczy kupowania biletu na koncert TACO w Warszawie 23.05.26 - bilety na płytę sprzedały się w 8 minut od startu sprzedaży
