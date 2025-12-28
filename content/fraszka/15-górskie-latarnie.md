@@ -36,7 +36,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
 15 Kamieńczyk rzuca urok, lód znika nam z drogi
 
-16 Hala Szrenicka woła,  czy są tam pierogi ?
+16 Hala Szrenicka woła - czy są tam pierogi ?
 
 17 W sumie wszystko było, nawet kamień wędrowny
 
@@ -80,7 +80,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
 37 Nasza miłość do gór nie stamtąd pochodzi
 
-38 A to wszystko zaczęło się kiedyś tam  w Łodzi
+38 To wszystko się zaczęło kiedyś  w mieście Łodzi
 
 39 Noc krótka, odciski dają się w znak na piętach
 
@@ -96,7 +96,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
 45 Mkniemy do Resortu, raz truchtem a raz chodem
 
-46 By przed nocą u Hutnika, rozbrat dać z głodem
+46 By nocą u Hutnika, rozbrat zrobić z głodem
 
 47 Wracamy też autem choć Tramwaje są w modzie
 
