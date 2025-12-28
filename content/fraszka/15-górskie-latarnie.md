@@ -32,7 +32,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
 13 No "niech rzuci  kamieniem" ten co się nie ślizną
 
-14 Czasem łatwo zakończyć wypad czarną  blizną
+14 Czasem można zakończyć wypad dużą  blizną
 
 15 Kamieńczyk rzuca urok, lód znika nam z drogi
 
