@@ -10,7 +10,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
  2 Latarnie dawno zgasły, nocna jazda - zmorą
 
- 3 Ktoś oświetlił drogę płytą niebylejaką
+ 3 Ktoś oświetlił drogę - płytą nie byle jaką
 
  4 Tekst złapać nie łatwo, idzie nam jako TACO
 
