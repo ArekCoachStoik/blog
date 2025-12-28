@@ -18,11 +18,11 @@ featured_image: /images/IMG_8636 2.jpeg
 
  6 Tak jak z tym Resortem - gdy hotel to za mało
 
-7 Uśniemy pełni wrażeń, olśnieni talentem
+ 7 Uśniemy pełni wrażeń, olśnieni talentem
 
-8 Jutro górskie przygody za każdym zakrętem
+ 8 Jutro górskie przygody za każdym zakrętem
 
-9 Pobudka jak na wczasy trochę bez litości
+ 9 Pobudka jak na wczasy trochę bez litości
 
 10To w końcu męski wyjazd - nie jeden zazdrości
 
@@ -32,7 +32,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
 13 No "niech rzuci  kamieniem" ten co się nie ślizną
 
-14 Prosto zakończyć wypad czasem z dużą  blizną
+14 Czasem łatwo zakończyć wypad czarną  blizną
 
 15 Kamieńczyk rzuca urok, lód znika nam z drogi
 
@@ -42,7 +42,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
 18 Znalazł się tu dla niego - właściciel ponowny
 
-19 Dwa kroki do góry - najbliższy szczyt jaśnieje 
+19 Dwa kroki do góry - najbliższy szczyt jaśnieje
 
 20 Szrenica w swoim blasku, już się do nas śmieje
 
