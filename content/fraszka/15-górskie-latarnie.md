@@ -30,7 +30,7 @@ featured_image: /images/IMG_8636 2.jpeg
 
 12 Powodów by je zabrać można by namnożyć
 
-13 Niech no rzuci kamieniem ten co się nie ślizną
+13 No "niech rzuci  kamieniem" ten co się nie ślizną
 
 14 Prosto zakończyć wypad czasem z dużą  blizną
 
@@ -113,6 +113,8 @@ featured_image: /images/IMG_8636 2.jpeg
 6 -  Motto Resort Blue Mountain - gdy hotel to za mało
 
 11 - raki - zabezpieczenie na buty przed lodem
+
+13 - "niech rzuci kamieniem" - nawiązanie  do utworu "+++trzykropki" z frazy biblijnej
 
 15 - Wodospad Kamieńczyk
 
