@@ -1,6 +1,6 @@
 ---
 title: WTiS_17 - NOWY ROK NOWY TY
-date: 2026-01-23T06:36:00
+date: 2025-12-30T18:06:00
 description: WODA TLEN I SEN
 featured_image: /images/boliviainteligente-4MVUGZfMTuI-unsplash.jpg
 draft: false
@@ -11,7 +11,7 @@ _„P_odstawowe zadanie w życiu polega na tym, by identyfikować i odpowiednio 
 
 **TWÓJ  WYBÓR**
 
-Nowy rok warto rozpocząć od tego aby w sposób przejrzysty i jasny dokonać naszych wyborów. Ja osobiście nie jestem zwolennikiem aby start swojej zmiany łączyć z jakimś numerologicznym wskazaniem jak 1 stycznia nie mniej zdaj sobie sprawę z tego, że jest wiele osób, dla których ta data może odgrywać istotną rolę w procesie zmiany. Dlaczego zatem jej nie wykorzystać po to aby właśnie rozpocząć świadomy proces zmiany w poszukiwaniu najlepszej wersji siebie. Dla wnikliwych czytelników mojego bloga oczywiste jest, że to poszukiwanie najepszej wersji siebie stanowi fundament harmonijnego i szczęśliwego życia. 
+Nowy rok warto rozpocząć od tego aby w sposób przejrzysty i jasny dokonać naszych wyborów. Ja osobiście nie jestem zwolennikiem aby start swojej zmiany łączyć z jakimś numerologicznym wskazaniem jak 1 stycznia nie mniej zdaj sobie sprawę z tego, że jest wiele osób, dla których ta data może odgrywać istotną rolę w procesie zmiany. Dlaczego zatem jej nie wykorzystać po to aby właśnie rozpocząć świadomy proces zmiany w poszukiwaniu najlepszej wersji siebie. Dla wnikliwych czytelników mojego bloga oczywiste jest, że to poszukiwanie najepszej wersji siebie stanowi fundament harmonijnego i szczęśliwego życia.
 
 NOWOROCZNE POSTANOWIENIA
 
