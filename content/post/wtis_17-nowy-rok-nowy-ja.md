@@ -1,6 +1,6 @@
 ---
 title: WTiS_17 - NOWY ROK NOWY TY
-date: 2025-12-30T18:06:00
+date: 2025-12-29T18:06:00
 description: WODA TLEN I SEN
 featured_image: /images/boliviainteligente-4MVUGZfMTuI-unsplash.jpg
 draft: false
