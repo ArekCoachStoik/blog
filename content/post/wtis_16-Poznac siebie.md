@@ -5,7 +5,7 @@ description: WODA TLEN I SEN
 featured_image: /images/paul-pastourmatzis-VQYK1he07Ow-unsplash.jpg
 draft: false
 ---
-DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpisów mocno zachęcam aby rozpocząć od **TU ZACZNIJ** a następni zapraszam do przeczytania wszystkich wpisów na blogu zaczynając od **WTiS_01 - Woda**. Gorąco zachęcam - ARCOS.
+DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpisów mocno zachęcam aby rozpocząć od [TU ZACZNIJ](https://wodatlenisen.site/about/) a następni zapraszam do przeczytania wszystkich wpisów na blogu zaczynając od **WTiS_01 - Woda**. Gorąco zachęcam - ARCOS.
 
 _„Mądrość nie bierze się z czytania, ale z przemyśleń nad_ _przeczytanym - Carl Hilty_
 
