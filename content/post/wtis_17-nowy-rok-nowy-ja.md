@@ -5,7 +5,7 @@ description: WODA TLEN I SEN
 featured_image: /images/boliviainteligente-4MVUGZfMTuI-unsplash.jpg
 draft: false
 ---
-DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpisów mocno zachęcam aby rozpocząć od [TU ZACZNIJ](https://wodatlenisen.site/about/) a następni zapraszam do przeczytania wszystkich wpisów na blogu zaczynając od **WTiS_01 - Woda**. Gorąco zachęcam - ARCOS.
+DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpisów mocno zachęcam aby rozpocząć od [TU ZACZNIJ](https://wodatlenisen.site/about/) a następni zapraszam do przeczytania wszystkich wpisów na blogu zaczynając od [WTiS - WODA_01](https://wodatlenisen.site/post/wtis01/). Gorąco zachęcam - ARCOS.
 
 _„Podstawowe zadanie w życiu polega na tym, by identyfikować i odpowiednio dzielić sprawy na zewnętrzne , nad którymi nie mamy kontroli oraz na te związane z naszymi wyborami" _- Epiktet
 
