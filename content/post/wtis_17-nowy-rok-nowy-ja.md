@@ -1,6 +1,6 @@
 ---
 title: WTiS_17 - NOWY ROK NOWY TY
-date: 2025-12-29T18:06:00
+date: 2025-12-31T18:26:00
 description: WODA TLEN I SEN
 featured_image: /images/boliviainteligente-4MVUGZfMTuI-unsplash.jpg
 draft: false
@@ -21,4 +21,4 @@ Wynika to z faktu, że zmiana wymaga czasu i nie zależy w żaden sposób od dni
 
 **Wszystkim życzę na  NOWY ROK 2026 jak najwięcej refleksji zamiast impulsywnych reakcji oraz dużo energii i siły do podejmowania działania, które doprowadzi Was do lepszej wersji siebie. W tym wszystkim odnajdźcie czas na wypoczynek. Niech "filozofia" WODA TLEN i SEN zadziała na WAS w pełni - DO SIEGO ROKU !**
 
-**ARCOS **
+\*\*ARCOS \*\*
