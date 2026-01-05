@@ -36,7 +36,7 @@ W tym miejscu, 800 świętych trafiło do raju
 
 Po takich emocjach, czas zwiedzić miasto, od zera
 
-Spacer, czas na kolację, Włoch wita, bouna sera
+Spacer, czas na kolację, Włoch wita, Bouna Sera
 
 Słońce zaszło nad portem, koniec dnia już jest bliski
 
