@@ -44,7 +44,7 @@ Nie dajmy, by nas zasmucił
 
 Wspomnienia w głowie zostały
 
-Trwałe, jak  tego morza skały
+Na trwałe, jak morskie skały
 
 Prawda to , czy sen na jawie
 
