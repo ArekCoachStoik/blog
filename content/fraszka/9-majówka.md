@@ -16,7 +16,7 @@ Wielu kultur państwa, centrum odnajdziemy
 
 Polak, Żyd i Tatar, Cygan, Rus i Prus
 
-W kultur tyglu żyli, nie był to dla ich mus
+W kultur tyglu żyli i nie był to ich mus
 
 Losy niełatwe, splecione jak warkocze
 
