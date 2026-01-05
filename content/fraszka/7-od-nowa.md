@@ -52,7 +52,7 @@ featured_image: /images/IMG_4630.jpeg
 
 23	To ich duma i radość, patrzą jak świat chłoną
 
-24	Kiedy od zimna, po morsowaniu zapłoną
+24	Zimą w Przesiece, po morsowaniu zapłoną
 
 25	Radością, swojego życia, nowym odkryciem
 
