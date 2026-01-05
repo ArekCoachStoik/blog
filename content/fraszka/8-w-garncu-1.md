@@ -18,15 +18,15 @@ Od czego więc zacząć - skoro już po dwunastej
 
 W jeżyckiej uliczce trochę lekko przyciasnej
 
-Szukaj przeszłości i podniebienia radości
+Szukam przeszłości i podniebienia radości
 
-Tym razem Święty Marcin nas tu dziś ugości
+Tym razem Święty Marcin jednak nas ugości
 
 Swym Groniem me dziecię zakręci dziś w głowie
 
 Pokłon jej gościnności, a wino, na zdrowie.
 
-Czas ruszać w drogę odkrywać  miasto nieznane
+Czas ruszać w drogę, odkrywać miasto nieznane
 
 Bohaterów Enigmy, wspomnimy dziś chwałę
 
