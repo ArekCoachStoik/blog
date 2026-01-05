@@ -52,6 +52,6 @@ Skryty, w wietnamskiej kawie
 
 To tylko od nas zależy
 
-Kto w co i kiedy - uwierzy.
+Kto w co i kiedy, uwierzy
 
 ![](/images/IMG_3815.jpeg)
