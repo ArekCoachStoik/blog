@@ -12,7 +12,7 @@ Czy uda się ją znaleźć w poznanskiej zagrodzie ?
 
 A jakże, miasto to w końcu zowie się - know how
 
-Niejeden to poznaniak - go jeszcze nie poznał
+A niejeden poznaniak jeszcze go nie poznał
 
 Od czego więc zacząć - skoro już po dwunastej
 
