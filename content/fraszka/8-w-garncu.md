@@ -24,7 +24,7 @@ Jak Bond, pędem, do Matery ruszyć w pogodę
 
 Iść po mieście z Pasją, przebyć krzyżową drogę
 
-Rozkochać się jak Gibson, zgubić się też tu mogę
+Rozkochać się jak Gibson, zgubić się tu też mogę
 
 Uliczki wszystkie kręte, w romańskiej zabudowie
 
@@ -40,4 +40,4 @@ Jednak już ze zmęczenia, nagle w łóżku lądujesz
 
 Raniutko śniadanie, relaks, trzeba już wyjeżdżać
 
-Miejsce to polecamy, warto tutaj przyjeżdzać
+Miejsce to polecamy, bo warto tu przyjeżdzać
