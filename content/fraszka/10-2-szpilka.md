@@ -38,7 +38,7 @@ Po takich emocjach, czas zwiedzić miasto, od zera
 
 Spacer, czas na kolację, Włoch wita, Bouna Sera
 
-Słońce zaszło nad portem, koniec dnia już jest bliski
+Słońce zaszło nad portem, koniec dnia jest już bliski
 
 Czas wracać w winnicy progi, gdzie cykadowe piski.
 
