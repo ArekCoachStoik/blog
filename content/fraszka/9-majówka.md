@@ -22,7 +22,7 @@ Losy niełatwe, splecione jak warkocze
 
 Wóz tolerancji po bruku tam turkocze
 
-Białystok, to miasto, w całości jest dowodem
+Miasto Białystok, w całości było dowodem
 
 Że wiara, kuchnia, strój nie były powodem
 
