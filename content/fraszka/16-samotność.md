@@ -4,6 +4,8 @@ date: 2026-01-10T10:10:00
 description: Międzywodzie
 featured_image: /images/IMG_8833.JPEG
 ---
+![](/images/IMG_8864.JPEG)
+
 Czy warto samotnie i tak o bez pośpiechu
 
 I u siebie poszukać natury uśmiechu
@@ -35,3 +37,5 @@ Garść wrażeń i wspomnień z tej samotnej uczelni
 Naturalnie natura uśmiech mi przyniosła
 
 Niby to tylko chwila ale jak doniosła
+
+![](/images/IMG_8890.JPEG)
