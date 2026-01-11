@@ -6,9 +6,9 @@ featured_image: /images/IMG_8833.JPEG
 ---
 ![](/images/IMG_8864.JPEG)
 
-Czy warto samotnie i tak o bez pośpiechu
+Czy warto tak samotnie i to bez pośpiechu
 
-I u siebie poszukać natury uśmiechu
+ Poszukać w swojej duszy natury uśmiechu
 
 Warto - bo tylko wtedy jest najlepszy kontakt
 
