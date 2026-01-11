@@ -1,11 +1,9 @@
 ---
 title: '#16  SAMOTNOŚĆ'
-date: 2025-12-20T10:10:00
+date: 2026-01-10T10:10:00
 description: Międzywodzie
 featured_image: /images/IMG_8833.JPEG
 ---
-
-
 Czy warto samotnie i tak o bez pośpiechu
 
 I u siebie poszukać natury uśmiechu
@@ -37,5 +35,3 @@ Garść wrażeń i wspomnień z tej samotnej uczelni
 Naturalnie natura uśmiech mi przyniosła
 
 Niby to tylko chwila ale jak doniosła
-
-
