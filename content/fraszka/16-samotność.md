@@ -18,9 +18,9 @@ Ona daje radość i otwarcie na bodźce
 
 O poranku, wieczorem jak i późnej nocce
 
-Wschód słońca, księżyc w swej pełni czy morskie fale
+Wschód słońca, księżyc w pełni czy nadmorskie fale
 
-Dodają uśmiechu - nie na chwilę lecz stale
+Dodają uśmiechu - nie na chwilę - lecz stale
 
 Samotność naturalnie uczy również tego
 
