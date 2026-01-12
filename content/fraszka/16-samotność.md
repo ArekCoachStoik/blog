@@ -28,9 +28,9 @@ Samotność naturalnie uczy również tego
 
 Ile sam w sobie widzi, docenia i chwali
 
-Nie tylko pustelnicy się na tym poznali.
+Nawet i pustelnicy się na tym poznali.
 
-Ja zabieram dziś z sobą z wolińskiej pustelni
+Ja dziś zabieram z sobą z wolińskiej pustelni
 
 Garść wrażeń i wspomnień z tej samotnej uczelni
 
