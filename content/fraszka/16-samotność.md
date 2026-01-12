@@ -28,7 +28,7 @@ Samotność naturalnie uczy również tego
 
 Ile sam w sobie widzi, docenia i chwali
 
-Nawet i pustelnicy się na tym poznali.
+Nawet pustelnicy się na tym już poznali.
 
 Ja dziś zabieram z sobą z wolińskiej pustelni
 
