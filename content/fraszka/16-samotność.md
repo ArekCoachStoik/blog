@@ -30,7 +30,7 @@ Ile sam w sobie widzi, docenia i chwali
 
 Nawet pustelnicy się na tym już poznali.
 
-Ja dziś zabieram z sobą z wolińskiej pustelni
+Ja dziś z sobą zabieram z wolińskiej pustelni
 
 Garść wrażeń i wspomnień z tej samotnej uczelni
 
