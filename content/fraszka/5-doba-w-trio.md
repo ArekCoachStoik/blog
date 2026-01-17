@@ -24,9 +24,9 @@ featured_image: /images/IMG_4525.jpeg
 
  9	Wstajemy rano, szybkie śniadanie
 
-10	Areczek w aucie ciśnie zebranie
+10	Kierownik w aucie ciśnie zebranie
 
-11	Droga dość bliska, za to cudowna
+11	Droga jest krótka, za to cudowna
 
 12	Tatr naszych wielkość, bardzo wymowna
 
@@ -34,7 +34,7 @@ featured_image: /images/IMG_4525.jpeg
 
 14	Parkingu w lesie, nikt nie pamięta
 
-15	Wycieczkę w gór głąb, tu zaczynamy
+15	Wycieczkę w głąb gór, tu zaczynamy
 
 16	Uroku Karpat ,zaraz zaznamy
 
@@ -76,7 +76,7 @@ featured_image: /images/IMG_4525.jpeg
 
 36	Jak by jelenia a nie osiołka
 
-37	I to nam wleci, do wspomnień tobołka
+37	To nam też wleci, do wspomnień tobołka
 
 38	Jedno jest pewne górska przyroda
 
@@ -98,7 +98,7 @@ featured_image: /images/IMG_4525.jpeg
 
 47	Mała Szwajcaria rzekł by Kowalski
 
-48	Arek jak Harry tak Harry Potter
+48	Arcos jak Harry tak Harry Potter
 
 49	W pętli jest czasu, “smoke on the water”
 
@@ -108,7 +108,7 @@ featured_image: /images/IMG_4525.jpeg
 
 52	Wspomnienie LOTem głowę zalewa
 
-53	Oko ulotne nie jest jak mewa
+53	Oko ulotne jak morska mewa
 
 54	Tu wyostrzyło swoją optykę
 
@@ -118,9 +118,9 @@ featured_image: /images/IMG_4525.jpeg
 
 57	Przygody hej, nie do zapomnienia
 
-58	By je powtórzyć pojawia się presja.
+58	By je powtórzać pojawia się presja.
 
-59	Na koniec taka nadchodzi refleksja
+59	Stąd tu nadchodzi  taka refleksja
 
 60	Rodzina duża to moc i siła
 
