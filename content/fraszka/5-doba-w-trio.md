@@ -122,9 +122,9 @@ featured_image: /images/IMG_4525.jpeg
 
 59	Stąd tu nadchodzi  taka refleksja
 
-60	Rodzina duża to moc i siła
+60	Rodzina DUŻA to moc i siła
 
-61	Wyprawa razem zawsze jest miła
+61	Wspólna wyprawa zawsze nam miła
 
 62	Gdy wszyscy razem siebie wspieramy
 
