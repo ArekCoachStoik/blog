@@ -8,7 +8,7 @@ featured_image: /images/IMG_6349.JPEG
 
 Gdzie to lato się ukryło, nikt nie wie, ja szukam
 
-Czech tu powie, basta przestań, ja tego nie kumam
+Czech tu powie, basta przestań, ja tego nie słucham
 
 W domu, na wsi czy w ogrodzie, musi gdzieś się chować
 
