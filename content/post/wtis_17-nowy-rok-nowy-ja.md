@@ -13,7 +13,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 Nowy rok warto rozpocząć od tego aby w sposób przejrzysty i jasny dokonać naszych wyborów. Ja osobiście nie jestem zwolennikiem, aby start swojej zmiany łączyć z jakimś mitycznym/numerologicznym dniem jak 1 stycznia.  Nie mniej zdaję sobie sprawę z tego, że jest wiele osób, dla których ta data może odgrywać istotną rolę w procesie rozpoczęcia zmiany. Można i zatem ją wykorzystać po to aby rozpocząć w sposób świadomy proces "poszukiwania najlepszej wersji siebie". Dla wnikliwych czytelników mojego bloga oczywiste jest, że to poszukiwanie najlepszej wersji siebie stanowi fundament harmonijnego i szczęśliwego życia, które wymaga dobrego zbilansowania 3 głównych jego filarów czyli  [WODY, TLENU i SNU](https://wodatlenisen.site/wtis/). Jeśli w którymś z tych obszarów odczuwasz deficyt warto w sposób refleksyjny czyli  świadomy rozpocząć działanie a Nowy Rok nie jest do tego w cale potrzebny.
 
-NOWOROCZNE POSTANOWIENIA
+**NOWOROCZNE POSTANOWIENIA**
 
 Dlaczego łączenie postanowienia zmiany z jakąś datą ( np. 1 stycznia) stanowi pewne ryzyko.  Życiowym przykładem nieudanego powiązania 1 stycznia ze swoim postanowieniem są zapisy do klubów fitness. W żargonie właścicieli klubów i trenerów osoby przychodzące po 1 stycznia nazywane są "postanowieniami noworocznymi" . Jest to okres największego zatłoczenia w klubach fitness, gdzie kumulują się osoby stale dbające o swoją kondycję fizyczną wraz z "tymi nowymi". Nikt się tym chwilowym przepełnieniem  jednak mocno nie przejmuje gdyż statystyki wskazują, że 80% osób odpada w ciągu kilku miesięcy od startu. Pozostają z nimi frustracja oraz poczucie nie zrealizowanego celu - dlaczego tak jest ?
 
