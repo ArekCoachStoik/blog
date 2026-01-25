@@ -26,7 +26,10 @@ Jeśli poszukać prostej definicji znajdziemy następujący opis. Lekkoduch to 
 
 **NIE PRZEJMUJ SIĘ**
 
-"Why worry ?" pyta słynny hinduski guru. No właśnie w większości spraw jeśli spojrzymy na nie w JASNY sposób warto łapać dystans i się nie przejmować ponieważ albo nie mam wpływu
+"Than Why worry ?" pyta słynny hinduski guru Gaur Gopal Das. No właśnie w większości spraw jeśli spojrzymy na nie w JASNY sposób warto łapać dystans i się nie przejmować ponieważ albo nie mam wpływu na sytuacje wpływu i nie możemy nic zrobić albo możemy coś zrobić mając poczucie sprawczości - bo wpływu podobnie nie mamy jak w przypadku sytuacji gdy zrobić nic nie możemy. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha czyli NIE PRZEJMUJ SIĘ!
+
+![](/images/121694457_1974158092724565_4417552793154106722_n.jpg)
+
 
 **PRZEJMUJ SIĘ**
 
@@ -34,6 +37,6 @@ Czyli co warto być lekkoduchem i niczym się nie przejmować? Zdecydowanie nie 
 
 W tym roku będę kończyć każdy mój wpis życzeniem (choć najbardziej klasycznym stoickim życiem jest "Życzę Ci abyś nic nie musiał sobie życzyć").
 
-**Życzę aby jedyną rzeczą jaką będziesz się codziennie przejmować były "dobre" wybory, które podejmujesz.**
+**Życzę aby jedyną rzeczą którą będziesz się przejmować były "dobre" wybory, które podejmujesz.**
 
 **ARCOS**
