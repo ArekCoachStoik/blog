@@ -16,4 +16,8 @@ _„Podstawowe zadanie w życiu polega na tym, by odpowiednio identyfikować i o
 
 Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy co w naszym życiu jest ważne i pilne. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta jasne staje się, że nie tam powinniśmy poszukiwać odpowiedzi na pytanie co ważne i pilne. Istota i główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie wyborów, które przełożą się na świat zewnętrzny zarówno ten najbliższy nam jak i odległy. Na to jednak nie mamy już większego wpływu i nie zależy to od nas. Moment w który zrozumiemy jak kluczowe jest skupienie na podejmowaniu "dobrych" wyborów, a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, który nada Twojemu życiu prawdziwej JASNOŚCI.
 
+**DYLEMAT**
+
+W tym miejscu bardzo często pojawia się pytanie. Jak oderwać swoje myśli, troski od codziennych spraw. To właśnie skupienie się na nich wypełnia nasz każdy dzień. To one budują naszą TO DO listę spraw ważnych i pilnych. Dzieci, praca, stabilno
+
 \*\*ARCOS \*\*
