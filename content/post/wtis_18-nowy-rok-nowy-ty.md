@@ -1,6 +1,6 @@
 ---
 title: WTiS_19 - JASNOŚĆ
-date: 2026-01-22T18:26:00
+date: 2026-02-27T18:26:00
 description: WODA TLEN I SEN
 featured_image: /images/hoyoun-lee-YSBpSErLaHc-unsplash.jpg
 draft: false
@@ -16,7 +16,7 @@ _„Podstawowe zadanie w życiu polega na tym, by odpowiednio identyfikować i o
 
 **TWÓJ  WYBÓR**
 
-Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy co w naszym życiu jest ważne i pilne. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta jasne staje się, że nie tam powinniśmy poszukiwać odpowiedzi na pytanie co ważne i pilne jak również co jest dobre a co złe. Główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie "dobrych" wyborów, które nieuchronnie przełożą się na nasz świat zewnętrzny zarówno ten najbliższy nam jak i ten mocno odległy. Co się wydarzy w plątaninie zdarzeń świata zewnętrznego  już większego wpływu nie mamy i nie zależy to od nas. Moment w który zrozumiemy jak kluczowe jest skupienie na podejmowaniu "dobrych" wyborów, a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, który nada Twojemu życiu prawdziwej JASNOŚCI. 
+Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy co w naszym życiu jest ważne i pilne. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta jasne staje się, że nie tam powinniśmy poszukiwać odpowiedzi na pytanie co ważne i pilne jak również co jest dobre a co złe. Główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie "dobrych" wyborów, które nieuchronnie przełożą się na nasz świat zewnętrzny zarówno ten najbliższy nam jak i ten mocno odległy. Co się wydarzy w plątaninie zdarzeń świata zewnętrznego  już większego wpływu nie mamy i nie zależy to od nas. Moment w który zrozumiemy jak kluczowe jest skupienie na podejmowaniu "dobrych" wyborów, a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, który nada Twojemu życiu prawdziwej JASNOŚCI.
 
 ![](/images/masjid-maba-iYewajmKHjE-unsplash.jpg)
 
