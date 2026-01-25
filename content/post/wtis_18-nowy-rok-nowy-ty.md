@@ -18,6 +18,18 @@ Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy 
 
 **DYLEMAT**
 
-W tym miejscu bardzo często pojawia się pytanie. Jak oderwać swoje myśli, troski od codziennych spraw. To właśnie skupienie się na nich wypełnia nasz każdy dzień. To one budują naszą TO DO listę spraw ważnych i pilnych. Dzieci, praca, stabilno
+W tym miejscu bardzo często pojawia się pytanie. Jak oderwać swoje myśli, troski od codziennych spraw. To właśnie skupienie się na nich wypełnia nasz każdy dzień. To one budują naszą TO DO listę spraw ważnych i pilnych. Troska o najbliższych, praca, stabilność materialna to sprawy, o które każda "odpowiedzialna" osoba powinna w pierwszej kolejności zadbać. To zbudowany nawyk, który jest przez normy społeczne zdecydowanie bardziej doceniany niż życie "lekceważące" stabilność materialną czyli bycie "lekkoduchem".
 
-\*\*ARCOS \*\*
+**LEKKODUCH co to znaczy ?**
+
+Jeśli poszukać prostej definicji znajdziemy następujący opis. Lekkoduch to osoba lekkomyślna, nieodpowiedzialna, niepoważna, beztroska,** niczym się nieprzejmująca**. O ile lekkomyślność, brak odpowiedzialności czy bycie niepoważnym to cechy, których nie życzę nikomu to już na ostatniemu pogrubionemu fragmentowi definicji przyjrzałbym się z krótką refleksją. Odpowiedź sobie na pytanie - jak często zdarza Ci się w życiu radzić komuś (lub samemu sobie), aby się czymś nie przejmować? Tłumaczyć, że nie warto, że znajdzie się rozwiązanie dla sprawy która powoduje nasze zmartwienie. Że wszystko się "**jakoś"** poukłada. "Jakoś" - czyli podświadomie zdajemy sobie sprawę z tego, że nie zależy to od nas i życie przyniesie rozwiązanie. 
+
+**PRZEJMUJ SIĘ**
+
+Czyli co warto być lekkoduchem i niczym się nie przejmować? Zdecydowanie nie - o ile w kwestii spraw zewnętrznych warto wypracować w sobie umiejętność nie przejmowania się sprawami nad którymi nie mamy kontroli o tyle w kwestii naszych decyzji czyli spraw nad którymi mamy 100% kontrolę bycie lekkoduchem jest zdecydowanie nie wskazane. Tym należy się przejmować, nad tym pracować tak aby wypracować w sobie nawyk , świadomość , JASNOŚĆ umysłu, że nie ma innej przestrzeni gdzie wszystko zależy tylko od nas. Bycie stoickim mędrcem, który potrafi w pełni oddzielić świat zewnętrzny od wewnętrznego  jest bardzo trudne, często niemożliwe. Nie mniej zrozumienie i odpowiednie poukładanie swoich priorytetów czyli w pierwszej kolejności skupienie się nad sprawami od nas zależnymi pozytywnie wpłyną również na sprawy które od nas są niezależne.
+
+W tym roku będę kończyć każdy mój wpis życzeniem (choć najbardziej klasycznym stoickim życiem jest "Życzę Ci abyś nic nie musiał sobie życzyć"). 
+
+**Życzę aby jedyną rzeczą jaką będziesz się codziennie przejmować były "dobre" wybory, które podejmujesz.**
+
+**ARCOS**
