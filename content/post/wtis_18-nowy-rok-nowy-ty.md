@@ -1,6 +1,6 @@
 ---
 title: WTiS_19 - JASNOŚĆ
-date: 2026-01-20T18:26:00
+date: 2026-02-12T18:26:00
 description: WODA TLEN I SEN
 featured_image: /images/hoyoun-lee-YSBpSErLaHc-unsplash.jpg
 draft: false
