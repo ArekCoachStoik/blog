@@ -18,6 +18,10 @@ Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy 
 
 **DYLEMAT**
 
+![](/images/masjid-maba-iYewajmKHjE-unsplash.jpg)
+
+Masjid Maba na Unsplash
+
 W tym miejscu bardzo często pojawia się pytanie. Jak oderwać swoje myśli, troski od codziennych spraw. To właśnie skupienie się na nich wypełnia nasz każdy dzień. To one budują naszą TO DO listę spraw ważnych i pilnych. Troska o najbliższych, praca, stabilność materialna to sprawy, o które każda "odpowiedzialna" osoba powinna w pierwszej kolejności zadbać. To zbudowany nawyk, który jest przez normy społeczne zdecydowanie bardziej doceniany niż życie "lekceważące" stabilność materialną czyli bycie "lekkoduchem".
 
 **LEKKODUCH co to znaczy ?**
@@ -29,7 +33,6 @@ Jeśli poszukać prostej definicji znajdziemy następujący opis. Lekkoduch to 
 "Than Why worry ?" pyta słynny hinduski guru Gaur Gopal Das. No właśnie w większości spraw jeśli spojrzymy na nie w JASNY sposób warto łapać dystans i się nie przejmować ponieważ albo nie mam wpływu na sytuacje wpływu i nie możemy nic zrobić albo możemy coś zrobić mając poczucie sprawczości - bo wpływu podobnie nie mamy jak w przypadku sytuacji gdy zrobić nic nie możemy. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha czyli NIE PRZEJMUJ SIĘ!
 
 ![](/images/121694457_1974158092724565_4417552793154106722_n.jpg)
-
 
 **PRZEJMUJ SIĘ**
 
