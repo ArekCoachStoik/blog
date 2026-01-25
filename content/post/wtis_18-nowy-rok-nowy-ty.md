@@ -10,7 +10,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 ![](/images/stoicyzm.jpeg)
 
-**PREAMBUŁA**: TYM WPISEM ROZPOCZYNAM NOWĄ SERIĘ INSPIROWANĄ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na kżdy dzień roku". Tytuł do każdego kolejnego odcinka będę czerpać z tej ksiązki  podobnie jak inspirujące cytaty. Cała reszta będzie nawiązaniem do "filozofii" WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne tezy filozofii stoickiej.
+**PREAMBUŁA**: TYM WPISEM ROZPOCZYNAM NOWĄ SERIĘ INSPIROWANĄ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na każdy dzień roku". Tytuł do każdego kolejnego odcinka będę czerpać z tej ksiązki  podobnie jak inspirujące cytaty. Cała reszta będzie nawiązaniem do "filozofii" WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne tezy filozofii stoickiej.
 
 _„Podstawowe zadanie w życiu polega na tym, by odpowiednio identyfikować i odpowiednio dzielić sprawy na zewnętrzne, nad którymi nie mamy kontroli, oraz na te związane z naszymi wyborami. Gdzie więc należy szukać dobra i zła? Nie w pozostałych poza naszą kontrolą rzeczach zewnętrznych ale w sobie, w wyborach, które do nas należą [...]"   - Epiktet_
 
@@ -34,7 +34,9 @@ Odpowiedz sobie na pytanie - jak często zdarza Ci się w życiu radzić komuś 
 
 **PO CO SIĘ PRZEJMOWAĆ**
 
-"THAN WHY WORRY ?" pyta słynny hinduski guru Gaur Gopal Das. No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy w JASNY sposób warto łapać dystans i się nie przejmować. Jak wynika z poniższej mądrości nie ma takiej sytuacji w której warto się martwić. Albo nie mamy na sytuacje wpływu i nie możemy nic zrobić więc czym się przejmować  albo możemy zadziałać mając poczucie sprawczości wtedy też nie warto się przejmować tylko poczekać na efekty swoich działań. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha oraz pójść za radą hinduskiego guru czyli NICZYM SIE NIE PRZEJMOWAĆ.
+"THAN WHY WORRY ?" pyta słynny hinduski guru Gaur Gopal Das. 
+
+No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy w JASNY sposób warto łapać dystans i się nie przejmować. Jak wynika z poniższej mądrości nie ma takiej sytuacji w której warto się martwić. Albo nie mamy na sytuacje wpływu i nie możemy nic zrobić więc czym się przejmować  albo możemy zadziałać mając poczucie sprawczości wtedy też nie warto się przejmować tylko poczekać na efekty swoich działań. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha oraz pójść za radą hinduskiego guru czyli NICZYM SIE NIE PRZEJMOWAĆ.
 
 ![](/images/121694457_1974158092724565_4417552793154106722_n.jpg)
 
