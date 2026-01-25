@@ -1,6 +1,6 @@
 ---
 title: WTiS_19 - JASNOŚĆ
-date: 2026-02-12T18:26:00
+date: 2026-01-22T18:26:00
 description: WODA TLEN I SEN
 featured_image: /images/hoyoun-lee-YSBpSErLaHc-unsplash.jpg
 draft: false
@@ -28,7 +28,7 @@ W tym miejscu bardzo często pojawia się pytanie. Jak oderwać swoje myśli, tr
 
 **LEKKODUCH co to znaczy ?**
 
-Jeśli poszukać prostej definicji znajdziemy następujący opis. Lekkoduch to osoba lekkomyślna, nieodpowiedzialna, niepoważna, beztroska,** niczym się nieprzejmująca**. O ile lekkomyślność, brak odpowiedzialności czy bycie niepoważnym to cechy, których nie warto naśladować to już ostatniemu pogrubionemu fragmentowi definicji lekkoducha przyjrzałbym się z głębszą  refleksją. 
+Jeśli poszukać prostej definicji znajdziemy następujący opis. Lekkoduch to osoba lekkomyślna, nieodpowiedzialna, niepoważna, beztroska,** niczym się nieprzejmująca**. O ile lekkomyślność, brak odpowiedzialności czy bycie niepoważnym to cechy, których nie warto naśladować to już ostatniemu pogrubionemu fragmentowi definicji lekkoducha przyjrzałbym się z głębszą  refleksją.
 
 Odpowiedz sobie na pytanie - jak często zdarza Ci się w życiu radzić komuś (lub samemu sobie), aby się czymś nie przejmować? Tłumaczyć, że nie warto, że znajdzie się rozwiązanie dla sprawy która powoduje nasze zmartwienie. Że wszystko się "**jakoś"** poukłada. "Jakoś" - czyli podświadomie zdajemy sobie sprawę z tego, że nie zależy to od nas i życie przyniesie rozwiązanie.
 
