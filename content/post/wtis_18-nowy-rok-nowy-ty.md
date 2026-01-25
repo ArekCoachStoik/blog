@@ -18,11 +18,11 @@ _„Podstawowe zadanie w życiu polega na tym, by odpowiednio identyfikować i o
 
 Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy co w naszym życiu jest ważne i pilne. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta jasne staje się, że nie tam powinniśmy poszukiwać odpowiedzi na pytanie co ważne i pilne jak również co jest dobre a co złe. Główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie "dobrych" wyborów, które nieuchronnie przełożą się na nasz świat zewnętrzny zarówno ten najbliższy nam jak i ten mocno odległy. Co się wydarzy w plątaninie zdarzeń świata zewnętrznego  już większego wpływu nie mamy i nie zależy to od nas. Moment w który zrozumiemy jak kluczowe jest skupienie na podejmowaniu "dobrych" wyborów, a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, który nada Twojemu życiu prawdziwej JASNOŚCI.
 
-**DYLEMAT**
-
 ![](/images/masjid-maba-iYewajmKHjE-unsplash.jpg)
 
 Masjid Maba na Unsplash
+
+**DYLEMAT**
 
 W tym miejscu bardzo często pojawia się pytanie. Jak oderwać swoje myśli, troski od codziennych spraw. To właśnie skupienie się na nich wypełnia nasz każdy dzień. To one budują naszą listę spraw ważnych i pilnych. Troska o najbliższych, praca, stabilność materialna to sprawy, o które każda "odpowiedzialna" osoba powinna w pierwszej kolejności zadbać. To zbudowany nawyk, który jest przez normy społeczne zdecydowanie bardziej doceniany niż bycie epikurejskim lekkoduchem lekceważące sprawy materialne .
 
@@ -34,9 +34,9 @@ Odpowiedz sobie na pytanie - jak często zdarza Ci się w życiu radzić komuś 
 
 **PO CO SIĘ PRZEJMOWAĆ**
 
-"THAN WHY WORRY ?" pyta słynny hinduski guru Gaur Gopal Das. 
+"THAN WHY WORRY ?" pyta słynny hinduski guru Gaur Gopal Das.
 
-No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy w JASNY sposób warto łapać dystans i się nie przejmować. Jak wynika z poniższej mądrości nie ma takiej sytuacji w której warto się martwić. Albo nie mamy na sytuacje wpływu i nie możemy nic zrobić więc czym się przejmować  albo możemy zadziałać mając poczucie sprawczości wtedy też nie warto się przejmować tylko poczekać na efekty swoich działań. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha oraz pójść za radą hinduskiego guru czyli NICZYM SIE NIE PRZEJMOWAĆ.
+No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy na nie w JASNY sposób zrozumiemy że do większości spraw  trzeba łapać dystans i się nimi nie przejmować. Jak wynika z poniższej mądrości nie ma takiej sytuacji w której warto się martwić. Albo nie mamy na sytuacje wpływu i nie możemy nic zrobić więc czym się przejmować  albo możemy zadziałać mając poczucie sprawczości wtedy też nie warto się przejmować tylko poczekać na efekty swoich działań. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha oraz pójść za radą hinduskiego guru czyli NICZYM SIE NIE PRZEJMOWAĆ.
 
 ![](/images/121694457_1974158092724565_4417552793154106722_n.jpg)
 
