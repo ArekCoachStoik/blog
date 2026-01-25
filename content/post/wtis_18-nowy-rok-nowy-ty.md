@@ -16,7 +16,7 @@ _„Podstawowe zadanie w życiu polega na tym, by odpowiednio identyfikować i o
 
 **TWÓJ  WYBÓR**
 
-Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy co w naszym życiu jest ważne i pilne. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta jasne staje się, że nie tam powinniśmy poszukiwać odpowiedzi na pytanie co ważne i pilne jak również co jest dobre a co złe. Główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie "dobrych" wyborów, które nieuchronnie przełożą się na nasz świat zewnętrzny zarówno ten najbliższy nam jak i ten mocno odległy. Co się wydarzy w plątaninie zdarzeń świata zewnętrznego  już większego wpływu nie mamy i nie zależy to od nas. Moment w który zrozumiemy jak kluczowe jest skupienie na podejmowaniu "dobrych" wyborów, a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, który nada Twojemu życiu prawdziwej JASNOŚCI.
+Jakże trudno jest osiągną stan w którym w sposób jasny i przejrzysty wiemy co w naszym życiu jest ważne i pilne. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta jasne staje się, że nie tam powinniśmy poszukiwać odpowiedzi na pytanie co ważne i pilne jak również co jest dobre a co złe. Główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie "dobrych" wyborów, które nieuchronnie przełożą się na nasz świat zewnętrzny zarówno ten najbliższy nam jak i ten mocno odległy. Co się wydarzy w plątaninie zdarzeń świata zewnętrznego  już większego wpływu nie mamy i nie zależy to od nas. Moment w który zrozumiemy jak kluczowe jest skupienie na podejmowaniu "dobrych" wyborów, a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, który nada Twojemu życiu prawdziwej JASNOŚCI. 
 
 ![](/images/masjid-maba-iYewajmKHjE-unsplash.jpg)
 
@@ -43,6 +43,10 @@ No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy na nie w JASNY sp
 **PRZEJMUJ SIĘ**
 
 Czyli co warto być lekkoduchem i niczym się nie przejmować? Zdecydowanie nie - o ile w kwestii spraw zewnętrznych warto wypracować w sobie umiejętność nie przejmowania się sprawami nad którymi nie mamy kontroli o tyle w kwestii naszych decyzji czyli spraw nad którymi mamy 100% kontrolę bycie lekkoduchem jest zdecydowanie nie wskazane. Tym należy się przejmować, nad tym pracować tak aby wypracować w sobie nawyk , świadomość , JASNOŚĆ umysłu, że nie ma innej przestrzeni gdzie wszystko zależy tylko od nas. Bycie stoickim mędrcem, który potrafi w pełni oddzielić świat zewnętrzny od wewnętrznego  jest bardzo trudne, często niemożliwe. Nie mniej zrozumienie i odpowiednie poukładanie swoich priorytetów czyli w pierwszej kolejności skupienie się nad sprawami od nas zależnymi pozytywnie wpłyną również na sprawy które od nas są niezależne.
+
+BUDOWANIE ENERGIA DUCHOWA
+
+Umiejętna praca nad rozróżnieniem spraw od nas zależnych od niezależnych stanowi klucz w poprawnym budowaniu energii duchowej .
 
 W tym roku będę kończyć każdy mój wpis personalnym życzeniem (jednocześnie przypominając że najbardziej klasyczne stoickie życzenie brzmi - "Życzę Ci abyś nic nie musiał sobie życzyć" :-).
 
