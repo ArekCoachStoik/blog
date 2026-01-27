@@ -48,6 +48,8 @@ Czyli co warto być po prostu lekkoduchem i niczym się nie przejmować? Zdecydo
 
 Umiejętna praca nad rozróżnieniem spraw od nas zależnych od niezależnych oraz rozróżnienie dobra od zła stanowi klucz w poprawnym budowaniu energii duchowej  o którym dokładniej pisałem w tym miejscu ( [ENERGIA DUCHOWA](https://wodatlenisen.site/post/wtis06/) ). Jeśli ten obszar Cię zainteresował zachęcam do pogłębienia tego tematu w ramach "filozofii" WODA TLEN iSEN we wpisie [Rozwój duchowy](https://wodatlenisen.site/post/wtis13/)
 
+**NA DOBRY KONIEC - ŻYCZENIE**
+
 W tym roku będę kończyć każdy mój wpis personalnym życzeniem (jednocześnie przypominając że najbardziej klasyczne stoickie życzenie brzmi - "Życzę Ci abyś nic nie musiał sobie życzyć" :-).
 
 **Życzę Ci aby jedyną sprawa jaką będziesz się przejmować były Twoje wybory, w których musisz wybrać mądrze między dobrem a złem.**
