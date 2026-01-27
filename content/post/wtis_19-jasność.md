@@ -1,6 +1,6 @@
 ---
 title: WTiS_19 - JASNOŚĆ
-date: 2026-01-26T07:40:00
+date: 2026-01-27T07:40:00
 description: WODA TLEN I SEN
 featured_image: /images/hoyoun-lee-YSBpSErLaHc-unsplash.jpg
 draft: false
@@ -10,7 +10,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 ![](/images/stoicyzm.jpeg)
 
-**PREAMBUŁA**: TYM WPISEM ROZPOCZYNAM NOWĄ SERIĘ INSPIROWANĄ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na każdy dzień roku". Tytuł do każdego kolejnego odcinka będę czerpać z tej ksiązki  podobnie jak inspirujące cytaty. Cała reszta będzie nawiązaniem do "filozofii" WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne tezy filozofii stoickiej.
+**PREAMBUŁA**: TYM WPISEM ROZPOCZYNAM NOWĄ SERIĘ INSPIROWANĄ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na każdy dzień roku". Tytuł każdego kolejnego odcinka będę czerpać z tej książki  podobnie jak inspirujące cytaty od klasyków filozofii stoickiej.Pojawią się też nawiązaniem do _"filozofii" _ WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne fundamenty filozofii stoickiej. Cała seria złoży się na 12 comiesięcznych odcinków - zapraszam. ARCOS
 
 _„Podstawowe zadanie w życiu polega na tym, by odpowiednio identyfikować i odpowiednio dzielić sprawy na zewnętrzne, nad którymi nie mamy kontroli, oraz na te związane z naszymi wyborami. Gdzie więc należy szukać dobra i zła? Nie w pozostałych poza naszą kontrolą rzeczach zewnętrznych ale w sobie, w wyborach, które do nas należą [...]"   - Epiktet_
 
