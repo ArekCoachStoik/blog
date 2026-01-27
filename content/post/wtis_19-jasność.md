@@ -44,7 +44,7 @@ No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy na nie w JASNY sp
 
 Czyli co warto być po prostu lekkoduchem i niczym się nie przejmować? Zdecydowanie nie - o ile w kwestii spraw zewnętrznych warto wypracować w sobie umiejętność nie przejmowania się sprawami nad którymi nie mamy kontroli o tyle w kwestii naszych decyzji czyli spraw nad którymi mamy 100% kontrolę bycie lekkoduchem jest zdecydowanie nie wskazane. Tym należy się przejmować, nad tym pracować tak aby wypracować w sobie nawyk , świadomość , JASNOŚĆ umysłu, że nie ma innej przestrzeni gdzie wszystko zależy tylko od nas. Bycie stoickim mędrcem, który potrafi w pełni oddzielić świat zewnętrzny od wewnętrznego  jest bardzo trudne, często niemożliwe. Nie mniej zrozumienie i odpowiednie poukładanie swoich priorytetów czyli w pierwszej kolejności skupienie się nad sprawami od nas zależnymi pozytywnie wpłyną również na sprawy które od nas są niezależne.
 
-**BUDOWANIE ENERGIA DUCHOWA**
+**ENERGIA DUCHOWA i JEJ BUDOWANIE**
 
 Umiejętna praca nad rozróżnieniem spraw od nas zależnych od niezależnych stanowi klucz w poprawnym budowaniu energii duchowej  o którym dokładniej pisałem w tym miejscu ( [ENERGIA DUCHOWA](https://wodatlenisen.site/post/wtis06/) ). Zachęcam do pogłębienia tego tematu w ramach "filozofii" WODA TLEN iSEN.
 
