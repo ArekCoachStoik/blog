@@ -28,7 +28,7 @@ W tym miejscu bardzo często pojawia się pytanie. Jak oderwać swoje myśli, tr
 
 **LEKKODUCH co to znaczy ?**
 
-Jeśli poszukać prostej definicji znajdziemy następujący opis. Lekkoduch to osoba lekkomyślna, nieodpowiedzialna, niepoważna, beztroska,niczym się nieprzejmująca. O ile lekkomyślność, brak odpowiedzialności czy bycie niepoważnym to cechy, których nie warto naśladować to już ostatniemu pogrubionemu definicji lekkoducha przyjrzałbym się z głębszą  refleksją.
+Jeśli poszukać prostej definicji znajdziemy następujący opis. Lekkoduch to osoba lekkomyślna, nieodpowiedzialna, niepoważna, beztroska,niczym się nieprzejmująca. O ile lekkomyślność, brak odpowiedzialności czy bycie niepoważnym to cechy, których nie warto naśladować to już ostatniemu elementowi definicji lekkoducha (....,"niczym się nie przejmująca.") przyjrzałbym się z głębszą  refleksją.
 
 Odpowiedz sobie na pytanie - Jak często zdarza Ci się w życiu radzić komuś (lub samemu sobie), aby się czymś nie przejmować? Tłumaczyć, że nie warto, że znajdzie się rozwiązanie dla sprawy która powoduje nasze zmartwienie. Że wszystko się "**jakoś"** poukłada. "Jakoś" - czyli podświadomie zdajemy sobie sprawę z tego, że nie zależy to od nas i życie przyniesie rozwiązanie.
 
