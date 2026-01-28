@@ -10,13 +10,13 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 ![](/images/stoicyzm.jpeg)
 
-**PREAMBUŁA**: TYM WPISEM ROZPOCZYNAM NOWĄ SERIĘ INSPIROWANĄ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na każdy dzień roku". Tytuł każdego kolejnego odcinka będę czerpać z tej książki  podobnie jak inspirujące cytaty od klasyków filozofii stoickiej.Pojawią się też nawiązaniem do "filozofii"  WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne fundamenty tej filozofii. Cała seria złoży się na 12 comiesięcznych odcinków - zapraszam. ARCOS
+**PREAMBUŁA**: TYM WPISEM ROZPOCZYNAM NOWĄ SERIĘ INSPIROWANĄ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na każdy dzień roku". Tytuł każdego kolejnego odcinka będę czerpać z tej książki  podobnie jak inspirujące cytaty od klasyków filozofii stoickiej. Pojawią się też nawiązaniem do "filozofii"  WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne fundamenty stoicyzmu. Cała seria złoży się na 12 comiesięcznych odcinków - serdecznie zapraszam - ARCOS.
 
 _„Podstawowe zadanie w życiu polega na tym, by odpowiednio identyfikować i odpowiednio dzielić sprawy na zewnętrzne, nad którymi nie mamy kontroli, oraz na te związane z naszymi wyborami. Gdzie więc należy szukać dobra i zła? Nie w pozostałych poza naszą kontrolą rzeczach zewnętrznych ale w sobie, w wyborach, które do nas należą [...]"   - Epiktet_
 
 **TWÓJ  WYBÓR**
 
-Jakże trudno jest osiągnąć stan w którym w sposób JASNY i przejrzysty wiemy co podlega naszej kontroli czyli na co mamy wpływ. Tworzymy listy naszych priorytetów - zadań ważnych i pilnych. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli tego wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta staje się JASNE, że poczucie kontroli i wpływu na świat zewnętrzny jest czysto iluzoryczne. Główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie naszych wewnętrznych wyborów, które nieuchronnie przełożą się na nasz świat zewnętrzny. Musimy pamiętać, że na to co się wydarzy w plątaninie zdarzeń świata zewnętrznego  już większego wpływu nie mamy i od nas to już nie  zależy. Moment w który zrozumiemy jak kluczowe jest skupienie się na podejmowaniu "dobrych" wewnętrznych wyborów (czyli wyboru między dobrem a złem), a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, i nada Twojemu życiu prawdziwej JASNOŚCI.
+Jakże trudno jest osiągnąć stan w którym w sposób JASNY i przejrzysty wiemy co podlega naszej kontroli czyli na co mamy realny wpływ. Tworzymy listy naszych priorytetów - zadań ważnych i pilnych. Zazwyczaj nasze myśli kierujemy wtedy w stronę osób nam najbliższych oraz spraw materialnych czyli tego wszystkiego co nazwali byśmy światem zewnętrznym. Jeśli dokładnie przeanalizujemy powyższą myśl Epikteta staje się JASNE, że poczucie kontroli i wpływu na świat zewnętrzny jest czysto iluzoryczne. Główne zadanie jakie powinniśmy stawiać przed sobą to kontrolowanie oraz świadome podejmowanie naszych wewnętrznych wyborów, które nieuchronnie przełożą się na nasz świat zewnętrzny. Musimy pamiętać, że na to co się wydarzy w plątaninie zdarzeń świata zewnętrznego  już większego wpływu nie mamy i od nas to już nie  zależy. Moment w który zrozumiemy jak kluczowe jest skupienie się na podejmowaniu "dobrych" wewnętrznych wyborów (czyli wyboru między dobrem a złem), a nie przejmowanie się otaczającą nas rzeczywistością będzie swoistym olśnieniem, i nada Twojemu życiu prawdziwej JASNOŚCI.
 
 ![](/images/masjid-maba-iYewajmKHjE-unsplash.jpg)
 
@@ -36,7 +36,7 @@ Odpowiedz sobie na pytanie: Jak często zdarza Ci się w życiu radzić komuś (
 
 "THAN WHY WORRY ?" - pyta słynny hinduski guru Gaur Gopal Das.
 
-No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy na nie w JASNY sposób zrozumiemy że do większości spraw  trzeba łapać dystans i się nimi nie przejmować. Jak wynika z poniższej mądrości nie ma takiej sytuacji w której warto się martwić. Albo nie mamy na sytuacje wpływu i nie możemy nic zrobić więc czym się przejmować  albo możemy zadziałać mając poczucie sprawczości wtedy też nie warto się przejmować tylko poczekać na efekty swoich działań. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha oraz pójść za radą hinduskiego guru czyli NICZYM SIE NIE PRZEJMOWAĆ.
+No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy na nie w JASNY sposób zrozumiemy że do większości spraw  trzeba łapać dystans i się nimi nie przejmować. Jak wynika z poniższej mądrości nie ma takiej sytuacji w której warto się martwić. Albo nie mamy na sytuacje wpływu i nie możemy nic zrobić więc czym się przejmować  albo możemy zadziałać mając poczucie sprawczości wtedy też nie warto się przejmować tylko poczekać na efekty swoich działań. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha oraz pójść za radą hinduskiego guru czyli  [NICZYM SIĘ NIE PRZEJMOWAĆ](youtube.com/watch?v=9YRjX3A_8cM&themeRefresh=1).
 
 ![](/images/121694457_1974158092724565_4417552793154106722_n.jpg)
 
@@ -46,7 +46,7 @@ Czyli co warto być po prostu lekkoduchem i niczym się nie przejmować? Zdecydo
 
 **ENERGIA DUCHOWA i JEJ BUDOWANIE**
 
-Istotę i role ENERGII ENERGII DUCHOWEJ w kontekście "filozofii" WODA TLEN iSEN znajdziesz [TUTAJ](https://wodatlenisen.site/post/wtis06/). W dużym uproszczeniu umiejętność JASNEGO odzielenia spraw od nas zależnych od niezależnych oraz rozróżnienie dobra od zła stanowi klucz do BUDOWANIA ENERGII DUCHOWEJ. Jeśli jesteś zainteresowany pogłębieniem tego tematu zachęcam do odwiedzenia wpisu [WTiS_13_Rozwój duchowy](https://wodatlenisen.site/post/wtis13/), gdzie znajdziesz sporo dodatkowych informacji i wskazówek. 
+Istotę i role ENERGII ENERGII DUCHOWEJ w kontekście "filozofii" WODA TLEN iSEN znajdziesz [TUTAJ](https://wodatlenisen.site/post/wtis06/). W dużym uproszczeniu umiejętność JASNEGO odzielenia spraw od nas zależnych od niezależnych oraz rozróżnienie dobra od zła stanowi klucz do BUDOWANIA ENERGII DUCHOWEJ. Jeśli jesteś zainteresowany pogłębieniem tego tematu zachęcam do odwiedzenia wpisu [WTiS_13_Rozwój duchowy](https://wodatlenisen.site/post/wtis13/), gdzie znajdziesz sporo dodatkowych informacji i wskazówek.
 
 **NA DOBRY KONIEC - ŻYCZENIE**
 
