@@ -7,7 +7,7 @@ featured_image: /images/IMG-5011.jpg
 
 ![](/images/IMG-8980.jpg)
 
-Wars pędzący do Sawy, pociąga tu swym urokiem
+WARS pędzący do SAWY, pociąga tu swym urokiem
 
 Centralny Dworzec zatrzyma, jego tuż przed zmrokiem
 
@@ -17,7 +17,7 @@ Z tarasów pokrytych złotem, to miasto również słynie
 
 .
 
-Wars z Sawą suną już Wspólnie, drogą do MDMu
+WARS z SAWĄ suną już Wspólnie, drogą do MDMu
 
 W Koszyku znika czapla? - Żurawia spytaj nie emu
 
@@ -41,9 +41,9 @@ W orbicie słońca mozaika przywróci blask nam dawny
 
 By Wars i Sawa odkryli, Warszawy los zabawny
 
-Raz coś chwalą potem ganią by na nowo podziwiać
+Raz coś chwalą, potem ganią, by na nowo podziwiać
 
-Tylko tu w mieście Syren potrafią tak nawydziwiać.
+Tylko tu w mieście Syren, potrafią tak nawydziwiać.
 
 .
 
@@ -51,7 +51,7 @@ Tylko tu w mieście Syren potrafią tak nawydziwiać.
 
 W białym klocku wstawioną, wypełniającą nam lukę
 
-W defiladowym placu z kultowym pałacem na czele
+W defiladowym placu z pałacem kultowym na czele
 
 Który podarowali nam dawno, rosyjscy “przyjaciele”
 
@@ -59,7 +59,7 @@ Który podarowali nam dawno, rosyjscy “przyjaciele”
 
 SAWA i WARS z JUNIOREM, zostaną tutaj z nami
 
-Z krajobrazu Warszawy będą zawsze oni znani
+Z krajobrazie Warszawy, będą zawsze rozpoznani
 
 Skoczą czasem , tak rodzinnie, na spacer po swym mieście
 
