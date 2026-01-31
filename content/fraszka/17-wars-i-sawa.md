@@ -37,7 +37,7 @@ Grafitti straszy z murów, “artyści” cóż byli słabi
 
 .
 
-"W orbicie słońca" mozaika przywróci blask nam dawny
+"W orbicie słońca" mozaika, przywróci blask nam dawny
 
 By WARS i SAWA odkryli, Warszawy los zabawny
 
