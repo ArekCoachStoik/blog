@@ -1,6 +1,6 @@
 ---
 title: '#17 WARS I SAWA'
-date: 2026-01-10T10:10:00
+date: 2026-01-09T10:10:00
 description: Warszawa
 featured_image: /images/IMG-5011.jpg
 ---
