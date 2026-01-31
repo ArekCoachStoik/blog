@@ -9,7 +9,7 @@ featured_image: /images/IMG-5011.jpg
 
 Wars pędzący do Sawy, pociąga tu swym urokiem
 
-Centralny Dworzec zatrzyma, oboje tuż przed zmrokiem
+Centralny Dworzec zatrzyma, jego tuż przed zmrokiem
 
 Godzina Miss Kimchi teraz, koreański czas płynie
 
