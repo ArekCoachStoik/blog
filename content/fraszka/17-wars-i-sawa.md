@@ -61,10 +61,10 @@ SAWA i WARS z JUNIOREM, zostaną tutaj z nami
 
 Z krajobrazu Warszawy będą zawsze oni znani
 
-Czasem skoczą tak rodzinnie, na spacer po swym mieście
+Skoczą czasem , tak rodzinnie, na spacer po swym mieście
 
 Może wtedy odnajdą to, czego szukają - wreszcie !
 
 .
 
-![](/images/IMG-9009.jpg)
+![](/images/IMG-9009%20Large.jpeg)
