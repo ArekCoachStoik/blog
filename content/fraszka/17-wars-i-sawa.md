@@ -2,41 +2,57 @@
 title: '#17 WARS I SAWA'
 date: 2026-01-10T10:10:00
 description: Warszawa
-featured_image: /images/IMG_8833.JPEG
+featured_image: /images/IMG-5011.jpg
 ---
 
-![](/images/IMG_8864.JPEG)
+![](/images/IMG-8980.jpg)
 
-Czy warto tak samotnie i to bez pośpiechu
+Wars pędzący do Sawy, pociąga tu swym urokiem
 
- Poszukać w swojej duszy natury uśmiechu
+Centralny Dworzec zatrzyma, oboje tuż przed zmrokiem
 
-Warto - bo tylko wtedy jest najlepszy kontakt
+Godzina Miss Kimchi teraz, koreański czas płynie
 
-Gdy z naturą podpiszesz niezależny kontrakt
+Z tarasów pokrytych złotem, to miasto również słynie
 
-Ona daje radość i otwarcie na bodźce
+Wars z Sawą suną już Wspólnie, drogą do MDMu
 
-O poranku, wieczorem jak i późnej nocce
+W Koszyku znika czapla? - Żurawia spytaj nie emu
 
-Wschód słońca, księżyc w pełni czy nadmorskie fale
+CHorzy schronią się w domu, przyjaznych sióstr Felicjanek
 
-Dodają uśmiechu - nie na chwilę - lecz stale
+Plac Konstytucji urzeka i w wieczór i w poranek
 
-Samotność naturalnie uczy również tego
+Za rogiem rzeźba na płasko - osiedla to jest duma
 
-Że człowiek człowiekowi da tyle dobrego
+Olbrzymy kierują tramwaj, w Kościele będzie suma
 
-Ile sam w sobie widzi, docenia i chwali
+Zbawiciel choć jest w remoncie paryżem z Charlotte wabi
 
-Nawet pustelnicy się na tym już poznali.
+Grafitti straszy z murów, “artyści” cóż byli słabi
 
-Ja dziś z sobą zabieram z wolińskiej pustelni
+W orbicie słońca mozaika przywróci blask nam dawny
 
-Garść wrażeń i wspomnień z tej samotnej uczelni
+By Wars i Sawa odkryli, Warszawy los zabawny
 
-Naturalnie natura uśmiech mi przyniosła
+Raz coś chwalą potem ganią by na nowo podziwiać
 
-Niby to tylko chwila ale jak doniosła
+Tylko tu w mieście Syren potrafią tak nawydziwiać.
 
-![](/images/IMG_8890.JPEG)
+Łącząc nowe i stare zaś JUNIOR patrzy na sztukę
+
+W białym klocku wstawioną, wypełniającą nam lukę
+
+W defiladowym placu z kultowym pałacem na czele
+
+Który podarowali nam dawno rosyjscy “przyjaciele”
+
+SAWA i WARS z JUNIOREM, zostaną tutaj z nami
+
+Z Warszawy krajobrazu będą oni zawsze znani
+
+Czasem skoczą tak rodzinnie, na spacer po swym mieście
+
+Może wtedy odnajdą to, czego szukają - wreszcie !
+
+![](/images/IMG-9009.jpg)
