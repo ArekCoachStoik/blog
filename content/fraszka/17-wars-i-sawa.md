@@ -31,7 +31,7 @@ Za rogiem rzeźba na płasko - osiedla to jest duma
 
 Olbrzymy kierują tramwaj, w Kościele będzie suma
 
-Zbawiciel choć jest w remoncie paryżem z Charlotte wabi
+Zbawiciel choć jest w remoncie, Paryżem z Charlotte wabi
 
 Grafitti straszy z murów, “artyści” cóż byli słabi
 
