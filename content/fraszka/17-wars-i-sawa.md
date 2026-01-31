@@ -15,6 +15,8 @@ Godzina Miss Kimchi teraz, koreański czas płynie
 
 Z tarasów pokrytych złotem, to miasto również słynie
 
+.
+
 Wars z Sawą suną już Wspólnie, drogą do MDMu
 
 W Koszyku znika czapla? - Żurawia spytaj nie emu
@@ -22,6 +24,8 @@ W Koszyku znika czapla? - Żurawia spytaj nie emu
 CHorzy schronią się w domu, przyjaznych sióstr Felicjanek
 
 Plac Konstytucji urzeka i w wieczór i w poranek
+
+.
 
 Za rogiem rzeźba na płasko - osiedla to jest duma
 
@@ -31,6 +35,8 @@ Zbawiciel choć jest w remoncie paryżem z Charlotte wabi
 
 Grafitti straszy z murów, “artyści” cóż byli słabi
 
+.
+
 W orbicie słońca mozaika przywróci blask nam dawny
 
 By Wars i Sawa odkryli, Warszawy los zabawny
@@ -38,6 +44,8 @@ By Wars i Sawa odkryli, Warszawy los zabawny
 Raz coś chwalą potem ganią by na nowo podziwiać
 
 Tylko tu w mieście Syren potrafią tak nawydziwiać.
+
+.
 
 Łącząc nowe i stare zaś JUNIOR patrzy na sztukę
 
