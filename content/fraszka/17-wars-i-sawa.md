@@ -53,7 +53,7 @@ W białym klocku wstawioną, wypełniającą nam lukę
 
 W defiladowym placu z kultowym pałacem na czele
 
-Który podarowali nam dawno rosyjscy “przyjaciele”
+Który podarowali nam dawno, rosyjscy “przyjaciele”
 
 SAWA i WARS z JUNIOREM, zostaną tutaj z nami
 
