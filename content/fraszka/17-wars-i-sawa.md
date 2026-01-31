@@ -11,9 +11,9 @@ WARS pędzący do SAWY, pociąga tu swym urokiem
 
 Centralny Dworzec zatrzyma, jego tuż przed zmrokiem
 
-Choć SAWA to nie Miss Kimchi, koreański czas płynie
+SAWA to nie Miss Kimchi, a koreański czas minie
 
-Z tarasów pokrytych złotem, to miasto również słynie
+W tarasach pokrytych złotem, z których to miasto słynie
 
 .
 
