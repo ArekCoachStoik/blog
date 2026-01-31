@@ -37,9 +37,9 @@ Grafitti straszy z murów, “artyści” cóż byli słabi
 
 .
 
-W orbicie słońca mozaika przywróci blask nam dawny
+"W orbicie słońca" mozaika przywróci blask nam dawny
 
-By Wars i Sawa odkryli, Warszawy los zabawny
+By WARS i SAWA odkryli, Warszawy los zabawny
 
 Raz coś chwalą, potem ganią, by na nowo podziwiać
 
@@ -51,7 +51,7 @@ Tylko tu w mieście Syren, potrafią tak nawydziwiać.
 
 W białym klocku wstawioną, wypełniającą nam lukę
 
-W defiladowym placu z pałacem kultowym na czele
+W defiladowym placu z pałacem kultowym, na czele
 
 Który podarowali nam dawno, rosyjscy “przyjaciele”
 
@@ -59,7 +59,7 @@ Który podarowali nam dawno, rosyjscy “przyjaciele”
 
 SAWA i WARS z JUNIOREM, zostaną tutaj z nami
 
-Z krajobrazie Warszawy, będą zawsze rozpoznani
+W krajobrazie Warszawy, będą zawsze rozpoznani
 
 Skoczą czasem , tak rodzinnie, na spacer po swym mieście
 
