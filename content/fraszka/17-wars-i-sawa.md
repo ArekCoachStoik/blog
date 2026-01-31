@@ -53,6 +53,6 @@ Z Warszawy krajobrazu będą oni zawsze znani
 
 Czasem skoczą tak rodzinnie, na spacer po swym mieście
 
-Może wtedy odnajdą to, czego szukają - wreszcie ! 
+Może wtedy odnajdą to, czego szukają - wreszcie !
 
 ![](/images/IMG-9009.jpg)
