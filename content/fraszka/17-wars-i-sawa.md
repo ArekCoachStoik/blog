@@ -9,7 +9,7 @@ featured_image: /images/IMG-5011.jpg
 
 WARS pędzący do SAWY, pociąga tu swym urokiem
 
-Centralny Dworzec zatrzyma, jego tuż przed zmrokiem
+Centralny Dworzec połączy, oboje, tuż przed zmrokiem
 
 SAWA to nie Miss Kimchi, a koreański czas minie
 
