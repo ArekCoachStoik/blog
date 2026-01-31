@@ -55,6 +55,8 @@ W defiladowym placu z kultowym pałacem na czele
 
 Który podarowali nam dawno, rosyjscy “przyjaciele”
 
+.
+
 SAWA i WARS z JUNIOREM, zostaną tutaj z nami
 
 Z Warszawy krajobrazu będą oni zawsze znani
@@ -62,5 +64,7 @@ Z Warszawy krajobrazu będą oni zawsze znani
 Czasem skoczą tak rodzinnie, na spacer po swym mieście
 
 Może wtedy odnajdą to, czego szukają - wreszcie !
+
+.
 
 ![](/images/IMG-9009.jpg)
