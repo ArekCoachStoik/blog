@@ -59,7 +59,7 @@ Który podarowali nam dawno, rosyjscy “przyjaciele”
 
 SAWA i WARS z JUNIOREM, zostaną tutaj z nami
 
-Z Warszawy krajobrazu będą oni zawsze znani
+Z krajobrazu Warszawy będą zawsze oni znani
 
 Czasem skoczą tak rodzinnie, na spacer po swym mieście
 
