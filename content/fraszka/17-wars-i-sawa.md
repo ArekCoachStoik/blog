@@ -17,7 +17,7 @@ W tarasach pokrytych złotem, z których to miasto słynie
 
 .
 
-WARS z SAWĄ suną już Wspólnie, drogą do MDMu
+Stąd WARS z SAWĄ suną, Wspólnie, trasą do MDMu
 
 W Koszyku znika czapla? - Żurawia spytaj nie emu
 
