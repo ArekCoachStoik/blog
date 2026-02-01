@@ -7,9 +7,9 @@ featured_image: /images/IMG-5011.jpg
 
 ![](/images/IMG-8980.jpg)
 
-WARS pędzący do SAWY, pociąga tu swym urokiem
+Dziś Warsem pędzi SAWA , pociąga też swym urokiem
 
-Centralny Dworzec połączy, oboje, tuż przed zmrokiem
+Centralny Dworzec połączy, zaś parę, tuż przed zmrokiem
 
 SAWA to nie Miss Kimchi, a koreański czas minie
 
