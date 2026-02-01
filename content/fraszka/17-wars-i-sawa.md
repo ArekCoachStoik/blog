@@ -7,13 +7,13 @@ featured_image: /images/IMG-5011.jpg
 
 ![](/images/IMG-8980.jpg)
 
-1.Warsem pędzi nam SAWA , pociąga też swym urokiem
+1. Warsem pędzi nam SAWA , pociąga też swym urokiem
 
-2.Centralny Dworzec połączy, dziś parę, tuż przed zmrokiem
+2. Centralny Dworzec połączy, dziś parę, tuż przed zmrokiem
 
-3.SAWA  to nie Miss Kimchi, a koreański czas minie
+3. SAWA  to nie Miss Kimchi, a koreański czas minie
 
-4.W tarasach pokrytych złotem, z których to miasto słynie
+4. W tarasach pokrytych złotem, z których to miasto słynie
 
 .
 
@@ -79,7 +79,7 @@ LEGENDA
 
 4 - Złote Tarasy - galeria handlowa
 
-4 - 7 Fragement inspirowany częsciowo utworem Taco Hemingwaya "Tramwaje" z płyty"Latarnie dawno zgasły", nawiazanie do ulic Wspolna, Koszykowa, Żurawia, Hoża, 
+4 - 7 Fragement inspirowany częsciowo utworem Taco Hemingwaya "Tramwaje" z płyty"Latarnie dawno zgasły", nawiazanie do ulic Wspolna, Koszykowa, Żurawia, Hoża,
 
 6 - Zakon Siostr Felicjanek prowadzi dom opieki przy MDM
 
@@ -97,6 +97,6 @@ LEGENDA
 
 16 - JUNIOR to stary dom handlowy, ktory znajduje sie zaraz na przeciw Muzeum Sztuki Nowoczsenej w kształcie białego sześcianu
 
-18 - Chodzi o Pałac Kultury i Nauki 
+18 - Chodzi o Pałac Kultury i Nauki
 
 20 - SAWA , WARS to również domy towarowe nie tylko legendarni założyciele WARSZAWY z JUNIOREM
