@@ -11,7 +11,7 @@ Warsem pędzi nam SAWA , pociąga też swym urokiem
 
 Centralny Dworzec połączy, dziś parę, tuż przed zmrokiem
 
-SAWA jest jak Miss Kimchi, lecz koreański czas minie
+SAWA  to nie Miss Kimchi, a koreański czas minie
 
 W tarasach pokrytych złotem, z których to miasto słynie
 
