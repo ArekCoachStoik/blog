@@ -8,11 +8,8 @@ featured_image: /images/IMG-5011.jpg
 ![](/images/IMG-8980.jpg)
 
 1. Warsem pędzi nam SAWA , pociąga też swym urokiem
-
 2. Centralny Dworzec połączy, dziś parę, tuż przed zmrokiem
-
 3. SAWA  to nie Miss Kimchi, a koreański czas minie
-
 4. W tarasach pokrytych złotem, z których to miasto słynie
 
 .
@@ -99,4 +96,4 @@ LEGENDA
 
 18 - Chodzi o Pałac Kultury i Nauki
 
-20 - SAWA , WARS to również domy towarowe nie tylko legendarni założyciele WARSZAWY z JUNIOREM
+20 - SAWA , WARS to również domy towarowe nie tylko legendarni założyciele WARSZAWY
