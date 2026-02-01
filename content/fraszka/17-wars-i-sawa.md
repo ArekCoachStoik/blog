@@ -7,7 +7,7 @@ featured_image: /images/IMG-5011.jpg
 
 ![](/images/IMG-8980.jpg)
 
-1.Warsem pędzi nam SAWA , pociąga też swym urokiem 
+1.Warsem pędzi nam SAWA , pociąga też swym urokiem
 
 2.Centralny Dworzec połączy, dziś parę, tuż przed zmrokiem
 
@@ -73,6 +73,30 @@ LEGENDA
 
 1-23 - Wspomnienie wyczieczki po warszawskim MDM
 
-1 Wars - nazwa wagonu gastronomicznego PKP
+1 - Wars - nazwa wagonu gastronomicznego PKP
 
-2
+3 - Miss Kimchi - nazwa koreańskiej restauracji
+
+4 - Złote Tarasy - galeria handlowa
+
+4 - 7 Fragement inspirowany częsciowo utworem Taco Hemingwaya "Tramwaje" z płyty"Latarnie dawno zgasły", nawiazanie do ulic Wspolna, Koszykowa, Żurawia, Hoża, 
+
+6 - Zakon Siostr Felicjanek prowadzi dom opieki przy MDM
+
+8 - Rzeźba "Otwarcie MDM" - powyżej
+
+9 - Olbrzymy to rzeźby na ulicy Marszałkowskiej na odcinku do placu Zbawiciela
+
+10 - Kościół pw. Zabwiciela jest pieknie widoczny z baruw stylu francuskim Charlotte
+
+11 - Okolice placu Zbawiciela sa poniszoncze przez brzydkie graffiti
+
+12 -  "W orbicie słońca" to lokal w którym znajduje się piękna mozajaka autorstwa Heleny i Lecha Grześkiewiczów
+
+14 - MDM, mozaiki, rzeźby, byly przedmiotem dumy, potem symbolem komunizmu, ponownie wracaja do łask i sa doceniane
+
+16 - JUNIOR to stary dom handlowy, ktory znajduje sie zaraz na przeciw Muzeum Sztuki Nowoczsenej w kształcie białego sześcianu
+
+18 - Chodzi o Pałac Kultury i Nauki 
+
+20 - SAWA , WARS to również domy towarowe nie tylko legendarni założyciele WARSZAWY z JUNIOREM
