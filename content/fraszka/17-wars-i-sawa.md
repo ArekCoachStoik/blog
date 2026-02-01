@@ -7,9 +7,9 @@ featured_image: /images/IMG-5011.jpg
 
 ![](/images/IMG-8980.jpg)
 
-1.Warsem pędzi nam SAWA , pociąga też swym urokiem
+1.Warsem pędzi nam SAWA , pociąg pociąga urokiem
 
-2.Centralny Dworzec połączy, dziś parę, tuż przed zmrokiem
+2.Centralny Dworzec połączy parę,  zaraz przed zmrokiem
 
 3.SAWA  to nie Miss Kimchi, a koreański czas minie
 
