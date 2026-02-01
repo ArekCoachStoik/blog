@@ -65,6 +65,4 @@ Skoczą czasem , tak rodzinnie, na spacer po swym mieście
 
 Może wtedy odnajdą to, czego szukają - wreszcie !
 
-.
-
 ![](/images/IMG-9009%20Large.jpeg)
