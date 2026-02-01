@@ -7,11 +7,11 @@ featured_image: /images/IMG-5011.jpg
 
 ![](/images/IMG-8980.jpg)
 
-Dziś Warsem pędzi SAWA , pociąga też swym urokiem
+Warsem pędzi nam SAWA , pociąga też swym urokiem
 
-Centralny Dworzec połączy, zaś parę, tuż przed zmrokiem
+Centralny Dworzec połączy, dziś parę, tuż przed zmrokiem
 
-SAWA to nie Miss Kimchi, a koreański czas minie
+SAWA jest jak Miss Kimchi, lecz koreański czas minie
 
 W tarasach pokrytych złotem, z których to miasto słynie
 
