@@ -33,7 +33,7 @@ featured_image: /images/IMG-5011.jpg
 
 11.Zbawiciel choć jest w remoncie, Paryżem z Charlotte wabi
 
-12.Grafitti straszy z murów, “artyści” cóż byli słabi
+12.Grafitti straszy z murów, “artyści” cóż - byli słabi
 
 .
 
