@@ -17,7 +17,7 @@ featured_image: /images/IMG-5011.jpg
 
 .
 
-5.Stąd WARS z SAWĄ suną, Wspólnie, trasą do MDMu
+5.Stąd WARS z SAWĄ już suną, tak Wspólnie do MDMu
 
 6.W Koszyku znika czapla? - Żurawia spytaj nie emu
 
