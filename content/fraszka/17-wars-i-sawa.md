@@ -59,7 +59,7 @@ featured_image: /images/IMG-5011.jpg
 
 21.SAWA i WARS z JUNIOREM, zostaną tutaj z nami
 
-22.W krajobrazie Warszawy, zawsze będą  rozpoznani
+22.W krajobrazie Warszawy, zawsze będą , rozpoznani
 
 23.Skoczą czasem , tak rodzinnie, na spacer po swym mieście
 
