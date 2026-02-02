@@ -7,7 +7,7 @@ featured_image: /images/IMG-5011.jpg
 
 ![](/images/IMG-8980.jpg)
 
-1.Warsem pędzi nam SAWA , pociąg pociąga urokiem
+1.Warsem pędzi dziś SAWA , pociąg pociąga urokiem
 
 2.Centralny Dworzec połączy,  parę zaraz przed zmrokiem
 
