@@ -83,20 +83,20 @@ LEGENDA
 
 6 - Zakon Siostr Felicjanek prowadzi dom opieki przy MDM
 
-8 - Rzeźba "Otwarcie MDM" - powyżej
+7 - Rzeźba "Otwarcie MDM" - powyżej
 
-9 - Olbrzymy to rzeźby na ulicy Marszałkowskiej na odcinku do placu Zbawiciela
+10 - Olbrzymy to rzeźby na ulicy Marszałkowskiej na odcinku do placu Zbawiciela
 
-10 - Kościół pw. Zabwiciela jest pieknie widoczny z baruw stylu francuskim Charlotte
+11 - Kościół pw. Zabwiciela jest pieknie widoczny z baruw stylu francuskim Charlotte
 
-11 - Okolice placu Zbawiciela sa poniszoncze przez brzydkie graffiti
+12 - Okolice placu Zbawiciela sa poniszoncze przez brzydkie graffiti
 
-12 -  "W orbicie słońca" to lokal w którym znajduje się piękna mozajaka autorstwa Heleny i Lecha Grześkiewiczów
+13 -  "W orbicie słońca" to lokal w którym znajduje się piękna mozajaka autorstwa Heleny i Lecha Grześkiewiczów
 
-14 - MDM, mozaiki, rzeźby, byly przedmiotem dumy, potem symbolem komunizmu, ponownie wracaja do łask i sa doceniane
+15 - MDM, mozaiki, rzeźby, byly przedmiotem dumy, potem symbolem komunizmu, ponownie wracaja do łask i sa doceniane
 
-16 - JUNIOR to stary dom handlowy, ktory znajduje sie zaraz na przeciw Muzeum Sztuki Nowoczsenej w kształcie białego sześcianu
+17 - JUNIOR to stary dom handlowy, ktory znajduje sie zaraz na przeciw Muzeum Sztuki Nowoczsenej w kształcie białego sześcianu
 
-18 - Chodzi o Pałac Kultury i Nauki
+19 - Plac Defilad przed Pałac Kultury i Nauki
 
-20 - SAWA , WARS to również domy towarowe nie tylko legendarni założyciele WARSZAWY
+21 - SAWA , WARS to również domy towarowe nie tylko legendarni założyciele WARSZAWY
