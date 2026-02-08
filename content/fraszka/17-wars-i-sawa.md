@@ -87,7 +87,7 @@ LEGENDA
 
 10 - Olbrzymy to rzeźby na ulicy Marszałkowskiej na odcinku do placu Zbawiciela
 
-11 - Kościół pw. Zabwiciela jest pieknie widoczny z baruw stylu francuskim Charlotte
+11 - Kościół pw. Zabwiciela jest pieknie widoczny z baru w stylu francuskim Charlotte
 
 12 - Okolice placu Zbawiciela sa poniszoncze przez brzydkie graffiti
 
@@ -95,8 +95,8 @@ LEGENDA
 
 15 - MDM, mozaiki, rzeźby, byly przedmiotem dumy, potem symbolem komunizmu, ponownie wracaja do łask i sa doceniane
 
-17 - JUNIOR to stary dom handlowy, ktory znajduje sie zaraz na przeciw Muzeum Sztuki Nowoczsenej w kształcie białego sześcianu
+17 - JUNIOR to jeden z trzech domów towarowych tzw "ściany wschodniej", który znajduje się zaraz na przeciw nowo wybudowanego Muzeum Sztuki Nowoczesnej, które jest w kształcie białego sześcianu.
 
 19 - Plac Defilad przed Pałac Kultury i Nauki
 
-21 - SAWA , WARS to również domy towarowe nie tylko legendarni założyciele WARSZAWY
+21 - SAWA , WARS to również domy towarowe w tzw "ścianie wschodniej" nie tylko legendarni założyciele WARSZAWY
