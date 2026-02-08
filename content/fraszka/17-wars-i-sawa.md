@@ -19,7 +19,7 @@ featured_image: /images/IMG-5011.jpg
 
 5.Stąd WARS z SAWĄ już suną, tak Wspólnie do MDMu
 
-6.W Koszyku znika czapla? - Żurawia spytaj nie emu
+6.W Koszu znika czapla? Jan spytał Żurawia - nie emu
 
 7.CHorzy schronią się w domu, przyjaznych sióstr Felicjanek
 
@@ -79,21 +79,23 @@ LEGENDA
 
 4 - Złote Tarasy - galeria handlowa
 
-5 - 8 Fragement inspirowany częsciowo utworem Taco Hemingwaya "Tramwaje" z płyty"Latarnie dawno zgasły", nawiazanie do ulic Wspolna, Koszykowa, Żurawia, Hoża,
+5 - 8 Fragment inspirowany częsciowo utworem Taco Hemingwaya "Tramwaje" z płyty"Latarnie dawno zgasły", nawiazanie do ulic Wspolna, Koszykowa, Żurawia, Hoża,
 
-6 - Zakon Siostr Felicjanek prowadzi dom opieki przy MDM
+6 - dodatkowe nawiązanie do wiersza Jana Brzechwy Żuraw i Czapla
 
-7 - Rzeźba "Otwarcie MDM" - powyżej
+ 7 - Zakon Sióstr Felicjanek prowadzi dom opieki przy MDM
+
+9 - Rzeźba "Otwarcie MDM" - powyżej
 
 10 - Olbrzymy to rzeźby na ulicy Marszałkowskiej na odcinku do placu Zbawiciela
 
-11 - Kościół pw. Zabwiciela jest pieknie widoczny z baru w stylu francuskim Charlotte
+11 - Kościół pw. Zbawiciela jest pięknie widoczny z baru w stylu francuskim Charlotte
 
-12 - Okolice placu Zbawiciela sa poniszoncze przez brzydkie graffiti
+12 - Okolice placu Zbawiciela są poniszczone przez brzydkie graffiti
 
 13 -  "W orbicie słońca" to lokal w którym znajduje się piękna mozajaka autorstwa Heleny i Lecha Grześkiewiczów
 
-15 - MDM, mozaiki, rzeźby, byly przedmiotem dumy, potem symbolem komunizmu, ponownie wracaja do łask i sa doceniane
+15 - MDM, mozaiki, rzeźby, były przedmiotem dumy, potem symbolem komunizmu, ponownie wracaja do łask i sa doceniane
 
 17 - JUNIOR to jeden z trzech domów towarowych tzw "ściany wschodniej", który znajduje się zaraz na przeciw nowo wybudowanego Muzeum Sztuki Nowoczesnej, które jest w kształcie białego sześcianu.
 
