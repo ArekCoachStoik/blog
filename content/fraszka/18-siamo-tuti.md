@@ -7,9 +7,9 @@ featured_image: /images/IMG_9116.JPEG
 
 ![](/images/IMG_9177.JPEG)
 
-Włoskie ferie przed nami, tam też wiosny szukamy
+Włoskie ferie przed nami, tamże wiosny szukamy
 
-Odwiedzimy Sycylię, ponownie ją poznamy
+Odwiedzamy Sycylię, a trochę już ją znamy
 
 Z pięknych miast i i miasteczek, świetnej aprowizacji
 
@@ -71,9 +71,17 @@ Szlak dalej nas prowadzi w barokowe miasteczka,
 
 Noto, Modica i Ragusa jak piękna bajeczka,
 
+Tu gelati, tam canolo jak i aranczino 
+
+Poezja to jest smakow jak bardzo dobre wino
+
 To nie jest jednak koniec śródziemnej tej przygody
 
 Tonnary Marzamemmi arabskiej są urody
+
+Tuńczyki zapuszkowane albo w barwnych słojach
+
+Co tu się kiedyś działo zawarte w starych zwojach
 
 .
 
@@ -89,7 +97,7 @@ Ale środa popiołem przypomni przy postnej strawie
 
 Że czas radości przeplata się z ucztą duchową
 
-I jest to bardzo praktyczne a  a nie kogoś zmową
+I jest to bardzo praktyczne a  a nie czyjąś zmową
 
 Gdyż w życiu jak na linie bilans się bardzo liczy
 
@@ -109,11 +117,21 @@ Choć kryte kurzem miasta do wnętrza ich zajrzymy
 
 Zmrok blisko czas szukać kolejnego noclegu
 
-Dziś u  stop wulkanu Etny i jej szczytów zbiegu
+Dziś u stop wulkanu Etny i jej szczytów zbiegu
 
 Widok na morze epicki, morza skały kuszą
 
 Zamek w Aci piękny, wspomnienia powrócić muszą
+
+.
+
+Cooking class plany sprawnie rozmyła włoska maniana
+
+To jednak nie problem, orchietta kupiona z rana
+
+Siamo tuti cuoco , kuchnia ta jest dla każdego
+
+Dla człeka starszego jak również tego młodego
 
 .
 
