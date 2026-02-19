@@ -17,7 +17,7 @@ Włosi mają swój przepis smakowitych wakacji
 
 .
 
-Szlak przez góry prowadzi w Agrigento ląduje
+Szlak przez góry prowadzi w Agrigentoląduje
 
 Tak jak Turek na skale z wapnia całej nocuje
 
