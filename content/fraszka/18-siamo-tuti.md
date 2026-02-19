@@ -9,7 +9,7 @@ featured_image: /images/IMG_9116.JPEG
 
 Włoskie ferie przed nami, tam też wiosny szukamy
 
-Odwiedzimy Sycylię, którą trochę już znamy
+Odwiedzimy Sycylię, ponownie ją poznamy
 
 Z pięknych miast i i miasteczek, świetnej aprowizacji
 
