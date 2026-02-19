@@ -71,7 +71,9 @@ Szlak dalej nas prowadzi w barokowe miasteczka,
 
 Noto, Modica i Ragusa jak piękna bajeczka,
 
-Tu gelati, tam canolo jak i aranczino 
+Tu gelati, tam canolo jak i aranczino
+
+.
 
 Poezja to jest smakow jak bardzo dobre wino
 
