@@ -121,15 +121,15 @@ Zmrok blisko czas szukać kolejnego noclegu
 
 Dziś u stop wulkanu Etny i jej szczytów zbiegu
 
-Widok na morze epicki, morza skały kuszą
+A widoki epickie, Cyklopa skały kuszą
 
-Zamek w Aci piękny, wspomnienia powrócić muszą
+Zamek w Aci, w tle morze, wspomnienia wrócić muszą
 
 .
 
-Cooking class plany sprawnie rozmyła włoska maniana
+Cooking class plany sprawnie rozmywa "włoska" maniana
 
-To jednak nie problem, orchietta kupiona z rana
+Jest orchietta, pistacje, potrawa poskładana
 
 Siamo tuti cuoco , kuchnia ta jest dla każdego
 
