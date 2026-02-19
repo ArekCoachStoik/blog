@@ -1,7 +1,7 @@
 ---
-title: '#18 SIAMO TUTI'
+title: '#18 SIAMO TUTI .....'
 date: 2026-01-28T10:10:00
-description: Warszawa
+description: Sicily
 featured_image: /images/IMG_9116.JPEG
 ---
 
