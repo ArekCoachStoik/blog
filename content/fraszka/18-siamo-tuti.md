@@ -77,7 +77,7 @@ Tonnary Marzamemmi arabskiej są urody
 
 .
 
-Stąd rzut kamieniem chyba na karnawał wesoły
+Stąd rzut kamieniem raptem na karnawał wesoły
 
 Dorośli oraz dzieci biegną z avolskiej szkoły
 
@@ -103,7 +103,7 @@ Kolejny magnes zawiśnie na podróżników kącie.
 
 Zanim to rzymskie i greckie teatry ujrzymy
 
-Choć kryte kurzem miasta do wnętrza zajrzymy
+Choć kryte kurzem miasta do wnętrza ich zajrzymy
 
 .
 
@@ -117,13 +117,13 @@ Zamek w Aci piękny, wspomnienia powrócić muszą
 
 .
 
-Leniwe dzień za nami szkoda do domu wracać
+Leniwy dzień za nami szkoda do domu wracać
 
-Nas Pallermo kusi tam się będziemy zatracać
+Nas koniec Pallermo tam się będziemy zatracać
 
-W pałacach, ulicach, brudzie jest coś wspaniałego
+W pałacach, ulicach, brudzie jest coś niezwykłego
 
-Na Sycylii nas spotkało zaś wiele miłego.
+A na Sycylii Cię spotka zawsze coś miłego.
 
 .
 
