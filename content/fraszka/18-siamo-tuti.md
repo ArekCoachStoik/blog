@@ -29,7 +29,7 @@ Za to Sal8 w mieście swym dostatkiem zanęci
 
 Nie przepychem, ilością ale potraw jakością
 
-Gdyż tu kucharz do strawy samo podchodzi z miłością
+Gdyż tu kucharz do strawy sam podchodzi z miłością
 
 Zanim start uczty dla ciała, historia nas otoczy
 
@@ -63,7 +63,7 @@ Duchy twórców mozaiek mogą nas tu nawiedzić
 
 Ruszajmy da Syrakuz uroki miasta poznać
 
-Może i Archimedesa gdzieś da się tutaj spotkać.
+Może i Archimedesa się gdzieś da tutaj spotkać.
 
 .
 
@@ -81,15 +81,15 @@ Stąd rzut kamieniem chyba na karnawał wesoły
 
 Dorośli oraz dzieci biegną z avolskiej szkoły
 
-Uśmiechom, radości i żartom końca nie ma prawie
+Uśmiechom, radości i tańcom końca nie ma prawie
 
 Ale środa popiołem przypomni przy postnej strawie
 
 .
 
-Że czas radości przeplata zadumęucztą duchową
+Że czas radości przeplata się z ucztą duchową
 
-I jest to bardzo praktyczne a  a nie czyjąś zmową
+I jest to bardzo praktyczne a  a nie kogoś zmową
 
 Gdyż w życiu jak na linie bilans się bardzo liczy
 
@@ -103,9 +103,9 @@ Kolejny magnes zawiśnie na podróżników kącie.
 
 Zanim to rzymskie i greckie teatry ujrzymy
 
-.
-
 Choć kryte kurzem miasta do wnętrza zajrzymy
+
+.
 
 Zmrok blisko czas szukać kolejnego noclegu
 
