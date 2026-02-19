@@ -1,13 +1,11 @@
 ---
 title: '#18 SIAMO TUTI .....'
 date: 2026-02-18T10:10:00
-description: Sicily
+description: Sicily 15-21.02
 featured_image: /images/IMG_9116.JPEG
 ---
 
 ![](/images/IMG_9177.JPEG)
-
-15-17/02 WE ARE ALL … ?
 
 Włoskie ferie przed nami, tam też wiosny szukamy
 
