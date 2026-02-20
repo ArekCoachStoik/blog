@@ -7,29 +7,29 @@ featured_image: /images/IMG_9116.JPEG
 
 ![](/images/IMG_9177.JPEG)
 
-Włoskie ferie przed nami, tamże wiosny szukamy
+Włoskie ferie przed nami, tam wiosny poszukamy
 
-Sycylię odwiedzamy, a trochę już ją znamy
+Sycylię wybieramy, a trochę już ją znamy
 
 Z pięknych miast i i miasteczek, świetnej aprowizacji
 
-Włosi mają swój przepis smakowitych wakacji
+Włosi mają swój przepis, smakowitych wakacji
 
 .
 
-Szlak przez góry prowadzi w Agrigentoląduje
+Szlak przez góry prowadzi, w Agrigento ląduje
 
-Tak jak Turek na skale z wapnia całej nocuje
+Tak jak Turek na skale z wapnia całej, nocuje
 
-Choć chustka na głowie nas piractwo nie kręci
+Choć chustka na głowie, nas piractwo nie kręci
 
-Za to Sal8 w mieście swym dostatkiem zanęci
+Za to Sal8 w mieście, swym dostatkiem zanęci
 
 .
 
 Nie przepychem, ilością ale potraw jakością
 
-Gdyż tu kucharz do strawy sam podchodzi z miłością
+Gdyż tutaj kucharz swe strawy, przyprawia miłością
 
 Zanim start uczty dla ciała, historia nas otoczy
 
@@ -63,7 +63,7 @@ Duchy twórców mozaiek mogą nas tu nawiedzić
 
 Ruszajmy da Syrakuz uroki miasta poznać
 
-Może i Archimedesa się gdzieś da tutaj spotkać.
+Może nawet Archimedesa się gdzieś da tu spotkać.
 
 .
 
@@ -71,7 +71,7 @@ Szlak dalej nas prowadzi w barokowe miasteczka,
 
 Noto, Modica i Ragusa jak piękna bajeczka,
 
-Tu gelati, tam canolo jak i aranczino
+Tu gelati, tam canolo, smaczne aranczino
 
 Poezja to jest smakow jak bardzo dobre wino
 
@@ -91,29 +91,29 @@ Stąd rzut kamieniem raptem na karnawał wesoły
 
 Dorośli oraz dzieci biegną z avolskiej szkoły
 
-Uśmiechom, radości i tańcom końca nie ma prawie
+Uśmiechom, radości, tańcom końca nie ma prawie
 
-Ale środa popiołem przypomni przy postnej strawie
+Lecz środa przypomni, popiołem przy postnej strawie
 
 .
 
 Że czas radości przeplata się z ucztą duchową
 
-I jest to bardzo praktyczne a  a nie czyjąś zmową
+I jest to bardzo praktyczne, a nie czyjąś zmową
 
-Gdyż w życiu jak na linie bilans się bardzo liczy
+Gdyż w życiu jak na linie, bilans się bardzo liczy
 
-Jak sami nie poćwiczymy to ktoś nas przećwiczy.
+Jak sami nie poćwiczymy, to ktoś nas przećwiczy.
 
 .
 
 Dość tej ortodoksji - Katania na horyzoncie,
 
-Kolejny magnes zawiśnie na podróżników kącie.
+Kolejny magnes zawiśnie, na podróżników kącie.
 
 Zanim to rzymskie i greckie teatry ujrzymy
 
-Choć kryte kurzem miasta do wnętrza ich zajrzymy
+Choć kryte kurzem miasta, do wnętrza ich zajrzymy
 
 .
 
@@ -133,17 +133,17 @@ Jest orchietta, pistacje, potrawa poskładana
 
 Siamo tuti cuoco , kuchnia ta jest dla każdego
 
-Dla człeka starszego jak również tego młodego
+Dla człeka starszego jak również i młodego
 
 .
 
 Leniwy dzień za nami szkoda do domu wracać
 
-Nas koniec Pallermo tam się będziemy zatracać
+Nas koniec Pallermo - tam się będziemy zatracać
 
 W pałacach, ulicach, brudzie jest coś niezwykłego
 
-A na Sycylii Cię spotka zawsze coś miłego.
+Na Sycylii Cię spotka - zawsze coś przemiłego.
 
 .
 
