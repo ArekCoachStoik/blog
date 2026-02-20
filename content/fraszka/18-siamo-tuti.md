@@ -141,7 +141,7 @@ Leniwy dzień za nami szkoda do domu wracać
 
 Nas koniec Pallermo - tam się będziemy zatracać
 
-W pałacach, ulicach, brudzie jest coś niezwykłego
+W pałacach, ulicach, brudzie coś jest niezwykłego
 
 Na Sycylii Cię spotka - zawsze coś przemiłego.
 
