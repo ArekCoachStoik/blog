@@ -29,7 +29,7 @@ Za to Sal8 w mieście, swym dostatkiem zanęci
 
 Nie przepychem, ilością ale potraw jakością
 
-Gdyż tutaj kucharz swe strawy, przyprawia miłością
+Gdyż kucharz tutaj swe strawy, przyprawia miłością
 
 Zanim start uczty dla ciała, historia nas otoczy
 
@@ -61,7 +61,7 @@ A na dowód tego Villę Romana czas zwiedzić
 
 Duchy twórców mozaiek mogą nas tu nawiedzić
 
-Ruszajmy da Syrakuz uroki miasta poznać
+Ruszajmy do Syrakuz uroki miasta poznać
 
 Może nawet Archimedesa się gdzieś da tu spotkać.
 
@@ -83,17 +83,17 @@ Tonnary Marzamemmi arabskiej są urody
 
 Tuńczyki zapuszkowane albo w barwnych słojach
 
-Co tu się kiedyś działo zawarte w starych zwojach
+Co tu się kiedyś działo - zawarte w starych zwojach
 
 .
 
-Stąd rzut kamieniem raptem na karnawał wesoły
+Stąd rzut raptem kamieniem na karnawał wesoły
 
 Dorośli oraz dzieci biegną z avolskiej szkoły
 
-Uśmiechom, radości, tańcom końca nie ma prawie
+Uśmiechom, radości, tańcom nie ma końca prawie
 
-Lecz środa przypomni, popiołem przy postnej strawie
+Lecz środa przypomni, popiołem - przy postnej strawie
 
 .
 
