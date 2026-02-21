@@ -141,9 +141,19 @@ Leniwy dzień za nami, szkoda do domu wracać
 
 Nas koniec Pallermo, tam się będziemy zatracać
 
-W pałacach, kościołach, rynkach - jest coś niezwykłego
+Mozaiki w Cappelli i mauretanskie katedry
 
-Na tej wyspie nas spotyka - zawsze coś miłego.
+Kapucynów katakumby dają sercu werwy
+
+.
+
+Zanim lotem przeskoczymy  na kontynet stary
+
+Siostry swymi wypiekami robią czary mary
+
+W pałacach, kościołach, rynkach - coś jest niezwykłego
+
+Na tej wyspie zawsze  przeżyjesz coś przemiłego.
 
 .
 
