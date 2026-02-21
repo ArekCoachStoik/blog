@@ -137,13 +137,13 @@ Dla człeka starszego jak również i młodego
 
 .
 
-Leniwy dzień za nami szkoda do domu wracać
+Leniwy dzień za nami, szkoda do domu wracać
 
-Nas koniec Pallermo - tam się będziemy zatracać
+Nas koniec Pallermo, tam się będziemy zatracać
 
-W pałacach, ulicach, brudzie coś jest niezwykłego
+W pałacach, kościołach, rynkach - jest coś niezwykłego
 
-Na Sycylii Cię spotka - zawsze coś przemiłego.
+Na tej wyspie nas spotyka - zawsze coś miłego.
 
 .
 
