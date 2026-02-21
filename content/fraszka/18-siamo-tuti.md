@@ -7,7 +7,7 @@ featured_image: /images/IMG_9116.JPEG
 
 ![](/images/IMG_9177.JPEG)
 
-Włoskie ferie przed nami, my tam wiosny szukamy
+Włoskie ferie przed nami, tam też wiosny szukamy
 
 Sycylię zwiedzamy, a trochę już ją znamy
 
