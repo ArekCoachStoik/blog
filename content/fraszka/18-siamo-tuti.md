@@ -7,9 +7,9 @@ featured_image: /images/IMG_9116.JPEG
 
 ![](/images/IMG_9177.JPEG)
 
-Włoskie ferie przed nami, tam też wiosny szukamy
+Włoskie ferie przed nami, my tam wiosny szukamy
 
-Sycylię odwiedzamy, trochę już ją znamy
+Wybór padł na Sycylię,  bo trochę już ją znamy
 
 Z pięknych miast i i miasteczek, świetnej aprowizacji
 
