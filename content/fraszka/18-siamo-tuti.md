@@ -162,3 +162,5 @@ Na tej wyspie zawsze  przeżyjesz coś przemiłego.
 **MAPA PODRÓŻY**
 
 **.**
+
+![](/images/sycylia_trasa.jpeg)
