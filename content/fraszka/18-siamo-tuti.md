@@ -157,7 +157,7 @@ Na tej wyspie zawsze  przeżyjesz coś przemiłego.
 
 .
 
-![](/images/Image%2022-02-2026%20at%2012.25.jpg)
+![](/images/Image%2022-02-2026%20at%2012.25.jpeg)
 
 **.**
 
@@ -165,4 +165,4 @@ Na tej wyspie zawsze  przeżyjesz coś przemiłego.
 
 **.**
 
-![](/images/sycylia_trasa.jpg)
+![](/images/sycylia_trasa.jpeg)
