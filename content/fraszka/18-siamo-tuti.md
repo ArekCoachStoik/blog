@@ -1,6 +1,6 @@
 ---
 title: '#18 SIAMO TUTI .....'
-date: 2026-02-18T10:10:00
+date: 2026-02-21T10:10:00
 description: Sicily 15-21.02
 featured_image: /images/IMG_9116.JPEG
 ---
