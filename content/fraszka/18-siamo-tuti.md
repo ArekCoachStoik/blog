@@ -157,4 +157,4 @@ Na tej wyspie zawsze  przeżyjesz coś przemiłego.
 
 .
 
-![](/images/IMG_9374.JPEG)
+![](/images/IMG_9374.JPEG).
