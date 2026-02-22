@@ -155,14 +155,10 @@ W pałacach, kościołach, rynkach - coś jest niezwykłego
 
 Na tej wyspie zawsze  przeżyjesz coś przemiłego.
 
-.
-
-![](/images/Image%2022-02-2026%20at%2012.25.jpeg)
+![](/images/IMG_9374.JPEG)
 
 **.**
 
 **MAPA PODRÓŻY**
 
 **.**
-
-![](/images/sycylia_trasa.jpeg)
