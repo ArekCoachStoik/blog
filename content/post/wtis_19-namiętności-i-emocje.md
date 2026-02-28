@@ -38,7 +38,7 @@ Odpowiedz sobie na pytanie - Jak często zdarza Ci się w życiu radzić komuś 
 
 No właśnie na wszystkie sprawy zewnętrzne  jeśli spojrzymy na nie w JASNY sposób zrozumiemy że do większości spraw  trzeba łapać dystans i się nimi nie przejmować. Jak wynika z poniższej mądrości nie ma takiej sytuacji w której warto się martwić. Albo nie mamy na sytuacje wpływu i nie możemy nic zrobić więc czym się przejmować  albo możemy zadziałać mając poczucie sprawczości wtedy też nie warto się przejmować tylko poczekać na efekty swoich działań. Tak w przypadku spraw zewnętrznych warto przyjąć jedną z cech lekkoducha oraz pójść za radą hinduskiego guru czyli NICZYM SIE NIE PRZEJMOWAĆ.
 
-![](/images/121694457_1974158092724565_4417552793154106722_n.jpg)
+![](/images/jerry-wang-wjwmug0yvHM-unsplash%20Small.jpeg)
 
 **PRZEJMUJ SIĘ**
 
