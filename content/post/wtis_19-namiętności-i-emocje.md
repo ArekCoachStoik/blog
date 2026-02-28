@@ -1,6 +1,6 @@
 ---
 title: WTiS_19 - NAMIĘTNOŚCI I EMOCJE
-date: 2026-01-23T07:40:00
+date: 2026-02-27T07:40:00
 description: WODA TLEN I SEN
 featured_image: /images/jerry-wang-wjwmug0yvHM-unsplash.jpg
 draft: false
