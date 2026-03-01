@@ -20,7 +20,9 @@ Mniej znaczy więcej - ta fraza idealnie pasuje do przedstawionej myśli Epiktet
 
 **ZAPANOWAĆ NAD SOBĄ**
 
-Umiar to jedna z 4 najważniejszych cnot stoickich która w zapanowaniu nad samym sobą odgrywa kluczową rolę. Pozwolę sobie poniżej zacytować jedną z moich ulubionych myśli Epikteta z Enchiridiona, która jest wskazówką jak powinno wyglądać nasze życie w kontekście zapanowania nad nadmiarem i emocjami. Oto on:
+![](/images/Screen%20Shot%202025-12-13%20at%2007.52.48.png)
+
+Umiar (ang. TEMPERANCE)  to jedna z 4 najważniejszych cnot stoickich która w zapanowaniu nad samym sobą odgrywa kluczową rolę. Pozwolę sobie poniżej zacytować jedną z moich ulubionych myśli Epikteta z Enchiridiona, która jest wskazówką jak powinno wyglądać nasze życie w kontekście zapanowania nad nadmiarem i emocjami. Oto on:
 
 "_Pamiętaj, że w życiu powinieneś zachowywać się tak jak na uczcie. Gdy jakaś potrawa podawana jest z rąk do rąk i dociera do ciebie, sięgnij po nią i grzecznie nałóż sobie swoją porcję. Następnie pozwól, by potrawa przeszła dalej, nie zachowując jej tylko dla siebie. Jeśli jeszcze do ciebie nie dotarła, nie wybiegaj pragnieniami wprzód, cierpliwie poczekaj, aż pojawi się przed tobą. Przyjmij podobne podejście wobec dzieci, żony, bogactwa i statusu, a z czasem zasłużysz na to, by ucztować z bogami_"
 
@@ -29,7 +31,7 @@ Jest to wielka nauka zarówno dobrych manier ale również wdzięczności, ciesz
 **CIESZ SIĘ Z TEGO CO MASZ.**
 
 Praktyka wdzięczności to najważniejsza umiejętność jaką trzeba opanować aby cieszyć się z tego co się ma. Paradoksalnie ilość rzeczy za które powinniśmy być wdzięczni każdego dnia jest nieograniczona. Hedonistyczna adaptacja czyli zjawisko szybkie przyzwyczajanie się do status quo powoduje, że mamy wrażenie że w naszym życiu nie ma zbyt wiele, rzeczy za które powinniśmy być wdzięczni co sprawi, że poczujemy radość z tego co aktualnie posiadamy.
- 
+
 **Życzę Ci abyś miał pełną kontrolę nad swoimi emocjam i namiętnościami i nie kreowały one nadmiernych potrzeb w Twoim życiu.**
 
 **ARCOS**
