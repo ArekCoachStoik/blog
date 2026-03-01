@@ -4,6 +4,7 @@ date: 2025-11-05T10:10:00
 description: Holbox-Tulum
 featured_image: /images/IMG_8368 2.jpeg
 ---
+
 ![](/images/IMG_8340.JPEG)
 
 Teraz czas rajskich plaż, czy w Meksyku je mają ?
@@ -67,3 +68,11 @@ Meksyk nareszcie poznaliśmy jako tako
 To donosi Arcos - sin gringo pero Polaco
 
 ![](/images/IMG_8294.JPEG)
+
+.
+
+MAPA PODRÓŻY
+
+.
+
+![](/images/Image%2001-03-2026%20at%2015.14.jpg)
