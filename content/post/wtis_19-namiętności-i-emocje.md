@@ -30,8 +30,12 @@ Jest to wielka nauka zarówno dobrych manier ale również wdzięczności, ciesz
 
 **CIESZ SIĘ Z TEGO CO MASZ.**
 
-Praktyka wdzięczności to najważniejsza umiejętność jaką trzeba opanować aby cieszyć się z tego co się ma. Paradoksalnie ilość rzeczy za które powinniśmy być wdzięczni każdego dnia jest nieograniczona. Hedonistyczna adaptacja czyli zjawisko szybkie przyzwyczajanie się do status quo powoduje, że mamy wrażenie że w naszym życiu nie ma zbyt wiele, rzeczy za które powinniśmy być wdzięczni co sprawi, że poczujemy radość z tego co aktualnie posiadamy.
+![](/images/nick-fewings-3Zji01G_ptM-unsplash.jpg)
 
-**Życzę Ci abyś miał pełną kontrolę nad swoimi emocjam i namiętnościami i nie kreowały one nadmiernych potrzeb w Twoim życiu.**
+Nick Fewings z Unsplash
+
+Praktyka wdzięczności to najważniejsza umiejętność jaką trzeba opanować aby cieszyć się z tego co się ma. Paradoksalnie ilość rzeczy za które powinniśmy być wdzięczni każdego dnia jest niemal nieograniczona. Hedoniczna adaptacja czyli zjawisko szybkie przyzwyczajanie się do status quo powoduje, że mamy wrażenie że w naszym życiu nie ma zbyt wiele, rzeczy za które powinniśmy być wdzięczni co sprawi, że poczujemy radość z tego co aktualnie posiadamy. Łatwo jest zapomnieć cytując klasyka o "ciepłej wodzie w kranie" wydaje się ona oczywista jak powietrze. W niektórych krajach ludzie nie mają dostępu do wody pitnej a co dopiero do podgrzewanej - czy nie warto zatem być wdzięczny nawet za to ? To za co powinniśmy być wdzięczni najbardziej gdyż przekłada się bezpośrednio na nasz dobrostan i poczucie szczęścia to silne i zdrowe relacje z innymi ludźmi. Budujmy i doceniajmy je każdego dnia gdyż na podstawie badań z zakresu psychologii i ekonomii behawioralnej sława i pieniądze tylko do pewnego poziomu wpływają na poziom naszego szczęścia bardzo szybko poprzez adaptacje, porównywanie się do innych czy inflacji kosztów życia stają się źródłem nieszczęścia a brak umiaru i namiętne gonienie za uciekającym "królikiem" doprowadza do poczucia wypadnie, porażki czy odosobnienia. Odosobnienie czy osamotnienie wynika z poświęcenia relacji z innymi na rzecz gonitwy za dobrami materialnymi, sławą czy chwilowym poklaskiem. Ciesz się z tego co masz, bądź za to wdzięcznym,  buduj relacje z innymi namiętnie i bez umiaru - choć może tutaj się zagalopowałem gdyż umiar przydaje się w każdej życiowej sprawie.
+
+**Życzę Ci abyś miał pełną kontrolę nad swoimi emocjam i namiętnościami i nie kreowały one nadmiernych potrzeb w Twoim życiu, a wdzięczność za to co posiadacza a szczególnie wartościowe relacje wypełniała każdy Twój dzień.**
 
 **ARCOS**
