@@ -22,6 +22,10 @@ _„Gdy dziecko wkłada rączkę do wąskiego słoja ze smakołykami, nie może 
 
 **LESS IS MORE**
 
+![](/images/kaptured-by-kasia-1KDXAcyd7H0-unsplash.jpg)
+
+Kaptured by Kasia z Unsplash
+
 Mniej znaczy więcej - ta fraza idealnie pasuje do przedstawionej myśli Epikteta. Jest to udowodniona behawioralna skłonność człowieka do lepszego funkcjonowania w uproszczonym zamiast złożonym środowisku. Niestety natura człowieka skłania nas dzięki silnym namiętnościom i emocjom do ciągłego zatracania tej wrodzonej skłonności na rzecz konsumpcjonizmu, materializmu oraz zaspakajaniu własnych potrzeb. Stajemy się jak dziecko, które przez swoją zachłanność doprowadza do frustracji i braku zadowolenia z tego co się ma. Żyjemy w świecie ekonomii nadmiaru, w której z jednej strony mamy dostęp do nieograniczonych ilości informacji, dóbr cyfrowych czy produktów słabej jakości a jednocześnie zmagamy się z brakiem czasu oraz stabilności zarówno materialnej jak i emocjonalnej. Dochodzi do pewnego paradoksu kiedy nasza naturalna skłonność do upraszczania jest wykorzystywana przez korporacje do zwiększania zakupów i posiadania jeszcze więcej. Psychologia zakupów to dziedzina, który wykorzystuje wiedzę dotyczącą naszych funkcji poznawczych w celu ułatwiania i zwiększania naszych zakupów. Jedną ze strategii jest właśnie Less is more dzięki której przestrzeń zakupowa wręcz sama pomaga nam podjąć decyzję. Jeśli do tego dołożymy element emocjonalny w postacie wykreowania potrzeby namiętnie skorzystamy z przedstawionej tak propozycji. Stąd zapanowanie nad naszym namiętnościami i emocjami stanowi tak ważny element w zapanowaniu nad samym sobą.
 
 **ZAPANOWAĆ NAD SOBĄ**
