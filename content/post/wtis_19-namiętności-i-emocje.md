@@ -8,11 +8,17 @@ draft: false
 
 DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpisów mocno zachęcam aby rozpocząć od [TU ZACZNIJ](https://wodatlenisen.site/about/) a następni zapraszam do przeczytania wszystkich wpisów na blogu zaczynając od [WTiS - WODA_01](https://wodatlenisen.site/post/wtis01/). Gorąco do tego zachęcam - ARCOS.
 
-![](/images/stoicyzm.jpeg)
+**PREAMBUŁA**: _TO KOLEJNY WPIS Z SERII INSPIROWANEJ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na każdy dzień roku". Tytuł do każdego kolejnego odcinka będę czerpać z tej książki  podobnie jak inspirujące cytaty. Cała reszta będzie nawiązaniem do "filozofii" WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne tezy filozofii stoickiej._
 
-**PREAMBUŁA**: TO KOLEJNY WPIS Z SERII INSPIROWANEJ KSIĄŻKĄ RYANA HOLIDAYA "Stoicyzm na każdy dzień roku". Tytuł do każdego kolejnego odcinka będę czerpać z tej książki  podobnie jak inspirujące cytaty. Cała reszta będzie nawiązaniem do "filozofii" WODA TLEN i SEN, która jak zapewne udało Ci się zauważyć jest w wielu miejscach oparta o główne tezy filozofii stoickiej.
+.
+
+.
 
 _„Gdy dziecko wkłada rączkę do wąskiego słoja ze smakołykami, nie może wyciągnąć pełnej piąstki i zaczyna płakać. Wyrzuć kilka smakołyków a wyciągniesz rękę! Opanuj swe pragnienia. Nie pożądaj tak wielu rzeczy a otrzymasz to co potrzebujesz"   - Epiktet_
+
+.
+
+.
 
 **LESS IS MORE**
 
