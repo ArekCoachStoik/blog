@@ -24,9 +24,11 @@ _„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie
 
 Kaptured by Kasia z Unsplash
 
-Świadomość nazywana często obiegowo "kontaktem z rzeczywistością" to bardzo ważna umiejętność niestety często zaniedbywana i niedoceniana. Warto nazywać rzeczy po imieniu wtedy nasza 
+Świadomość nazywana często obiegowo "kontaktem z rzeczywistością" to bardzo ważna umiejętność niestety często zaniedbywana i niedoceniana. Dlatego warto nazywać rzeczy po imieniu bo wtedy nasza świadomość rośnie. Gdy ulegamy  sterotypom, obiegowym opiniom zamiast faktom czy wykorzystujemy skróty myślowe bardzo często w nieświadomy sposób podejmujemy działania lub decyzji a to prosta droga do nie przemyślanych,  krótkowzroczny i często błędnych decyzji.
 
-**ZAPANOWAĆ NAD SOBĄ**
+Je
+
+**JAK BUDOWAĆ ŚWIADOMOŚĆ**
 
 ![](/images/Screen%20Shot%202025-12-13%20at%2007.52.48.png)
 
