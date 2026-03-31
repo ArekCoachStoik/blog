@@ -2,7 +2,7 @@
 title: WTiS_20 - ŚWIADOMOŚĆ
 date: 2026-02-27T07:40:00
 description: WODA TLEN I SEN
-featured_image: /images/markus-spiske-w3H80xSDPhw-unsplash.jpg
+featured_image: /images/breno-jesus-Akp8qcrCk0s-unsplash.jpg
 draft: false
 ---
 
@@ -14,19 +14,17 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-_„Gdy dziecko wkłada rączkę do wąskiego słoja ze smakołykami, nie może wyciągnąć pełnej piąstki i zaczyna płakać. Wyrzuć kilka smakołyków a wyciągniesz rękę! Opanuj swe pragnienia. Nie pożądaj tak wielu rzeczy a otrzymasz to co potrzebujesz"   - Epiktet_
+_„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią" \*_  
+
+\*cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi (i spopularyzowany przez film "Podziemny krąg"
 
 .
 
-.
-
-**LESS IS MORE**
-
-![](/images/kaptured-by-kasia-1KDXAcyd7H0-unsplash.jpg)
+**CO TO ZNACZY BYĆ SWIADOMYM**
 
 Kaptured by Kasia z Unsplash
 
-Mniej znaczy więcej - ta fraza idealnie pasuje do przedstawionej myśli Epikteta. Jest to udowodniona behawioralna skłonność człowieka do lepszego funkcjonowania w uproszczonym zamiast złożonym środowisku. Niestety natura człowieka skłania nas dzięki silnym namiętnościom i emocjom do ciągłego zatracania tej wrodzonej skłonności na rzecz konsumpcjonizmu, materializmu oraz zaspakajaniu własnych potrzeb. Stajemy się jak dziecko, które przez swoją zachłanność doprowadza do frustracji i braku zadowolenia z tego co się ma. Żyjemy w świecie ekonomii nadmiaru, w której z jednej strony mamy dostęp do nieograniczonych ilości informacji, dóbr cyfrowych czy produktów słabej jakości a jednocześnie zmagamy się z brakiem czasu oraz stabilności zarówno materialnej jak i emocjonalnej. Dochodzi do pewnego paradoksu kiedy nasza naturalna skłonność do upraszczania jest wykorzystywana przez korporacje do zwiększania zakupów i posiadania jeszcze więcej. Psychologia zakupów to dziedzina, który wykorzystuje wiedzę dotyczącą naszych funkcji poznawczych w celu ułatwiania i zwiększania naszych zakupów. Jedną ze strategii jest właśnie Less is more dzięki której przestrzeń zakupowa wręcz sama pomaga nam podjąć decyzję. Jeśli do tego dołożymy element emocjonalny w postacie wykreowania potrzeby namiętnie skorzystamy z przedstawionej tak propozycji. Stąd zapanowanie nad naszym namiętnościami i emocjami stanowi tak ważny element w zapanowaniu nad samym sobą.
+XXXXXX
 
 **ZAPANOWAĆ NAD SOBĄ**
 
