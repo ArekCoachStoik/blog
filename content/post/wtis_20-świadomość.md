@@ -1,6 +1,6 @@
 ---
 title: WTiS_20 - ŚWIADOMOŚĆ
-date: 2026-02-27T07:40:00
+date: 2026-03-31T06:44:00
 description: WODA TLEN I SEN
 featured_image: /images/breno-jesus-Akp8qcrCk0s-unsplash.jpg
 draft: false
@@ -14,7 +14,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-_„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią" \*_  
+_„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią" \*_
 
 \*cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi (i spopularyzowany przez film "Podziemny krąg"
 
