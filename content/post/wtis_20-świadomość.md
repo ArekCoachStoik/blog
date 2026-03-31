@@ -12,11 +12,9 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-.
-
 _„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią" \*_
 
-\*cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi oraz spopularyzowany przez film "Podziemny krąg"
+                               \*cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi oraz spopularyzowany przez film "Podziemny krąg"
 
 .
 
@@ -30,7 +28,7 @@ Je
 
 **JAK BUDOWAĆ ŚWIADOMOŚĆ**
 
-**Praca nad świadomością zaczyna się od zbudowania prawidłowej samo oceny. Aby tak się stało konieczne jest włożenie odpowiedniego wysiłku w zrozumienie tego kim jesteśmy naszych zalet ale również wad. Bez tego nie ma szans na zbudowanie prawidłowej świadomości gdyż natura człowiek jest tak zbudowana aby naturalnie uwypuklać swoje zalety ukrywają swoje wady. Najważniejszym obszarem nad którym warto się pochylić jest zrozumienie w jaki sposób reagujemy pod wpływem emocji a szczególnie tych silnych emocji. Na ile tracimy kontrole i nie podejmujemy świadomych decyzji. Ta wiedza pozwoli dużo szybciej zbudować naszą samoświadomość.  Innym ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest wolność. Dobre rozeznania jakiego typu "zniewolenia" są naszą codziennością. Złe nawyki, czas poświęcany na rzeczy blache czy wszelkiej maści uzależnienia pozwolą już w sposób bardziej świadomy  podejmować nasze decyzje.**
+Praca nad świadomością zaczyna się od zbudowania prawidłowej samo oceny. Aby tak się stało konieczne jest włożenie odpowiedniego wysiłku w zrozumienie tego kim jesteśmy naszych zalet ale również wad. Bez tego nie ma szans na zbudowanie prawidłowej świadomości gdyż natura człowiek jest tak zbudowana aby naturalnie uwypuklać swoje zalety ukrywają swoje wady. Najważniejszym obszarem nad którym warto się pochylić jest zrozumienie w jaki sposób reagujemy pod wpływem emocji a szczególnie tych silnych emocji. Na ile tracimy kontrole i nie podejmujemy świadomych decyzji. Ta wiedza pozwoli dużo szybciej zbudować naszą samoświadomość.  Innym ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest wolność. Dobre rozeznania jakiego typu "zniewolenia" są naszą codziennością. Złe nawyki, czas poświęcany na rzeczy blache czy wszelkiej maści uzależnienia pozwolą już w sposób bardziej świadomy  podejmować nasze decyzje.
 
 ![](/images/Screen%20Shot%202025-12-13%20at%2007.52.48.png)
 
