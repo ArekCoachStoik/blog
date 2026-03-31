@@ -1,6 +1,6 @@
 ---
 title: WTiS_20 - ŚWIADOMOŚĆ
-date: 2026-03-31T06:44:00
+date: 2026-05-06T06:44:00
 description: WODA TLEN I SEN
 featured_image: /images/breno-jesus-Akp8qcrCk0s-unsplash.jpg
 draft: false
