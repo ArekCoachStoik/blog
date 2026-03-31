@@ -30,6 +30,8 @@ Je
 
 **JAK BUDOWAĆ ŚWIADOMOŚĆ**
 
+**Praca nad świadomością zaczyna się od zbudowania prawidłowej samo oceny. Aby tak się stało konieczne jest włożenie odpowiedniego wysiłku w zrozumienie tego kim jesteśmy naszych zalet ale również wad. Bez tego nie ma szans na zbudowanie prawidłowej świadomości gdyż natura człowiek jest tak zbudowana aby naturalnie uwypuklać swoje zalety ukrywają swoje wady. Najważniejszym obszarem nad którym warto się pochylić jest zrozumienie w jaki sposób reagujemy pod wpływem emocji a szczególnie tych silnych emocji. Na ile tracimy kontrole i nie podejmujemy świadomych decyzji. Ta wiedza pozwoli dużo szybciej zbudować naszą samoświadomość.  Innym ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest wolność. Dobre rozeznania jakiego typu "zniewolenia" są naszą codziennością. Złe nawyki, czas poświęcany na rzeczy blache czy wszelkiej maści uzależnienia pozwolą już w sposób bardziej świadomy  podejmować nasze decyzje.**
+
 ![](/images/Screen%20Shot%202025-12-13%20at%2007.52.48.png)
 
 Umiar (ang. TEMPERANCE)  to jedna z 4 najważniejszych cnot stoickich która w zapanowaniu nad samym sobą odgrywa kluczową rolę. Pozwolę sobie poniżej zacytować jedną z moich ulubionych myśli Epikteta z Enchiridiona, która jest wskazówką jak powinno wyglądać nasze życie w kontekście zapanowania nad nadmiarem i emocjami. Oto ona:
