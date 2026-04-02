@@ -22,13 +22,15 @@ _„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie
 
 Kaptured by Kasia z Unsplash
 
-Świadomość nazywana często obiegowo "kontaktem z rzeczywistością" to bardzo ważna umiejętność niestety często zaniedbywana i niedoceniana. Dlatego warto nazywać rzeczy po imieniu bo wtedy nasza świadomość rośnie. Gdy ulegamy  sterotypom, obiegowym opiniom zamiast faktom czy wykorzystujemy skróty myślowe bardzo często w nieświadomy sposób podejmujemy działania lub decyzji a to prosta droga do nie przemyślanych,  krótkowzroczny i często błędnych decyzji.
+Świadomość to stan psychiczny w którym zdajemy sobie sprawę z własnych procesów myślowych emocji oraz bodźców zewnętrznych. Jest to swoisty kontakt ze sobą i otaczającą nas rzeczywistością. Stan w którym refleksyjnie potrafimy ocenić nasze działanie. Często porównuje się ten stan do bycia przytomny w odróżnieniu od braku przytomności czyli braku świadomości. W tym miejscu warto doprecyzować, że bardzo często będąc w pełni przytomnym - w fizycznym rozumieniu tego słowa -  nie jesteśmy świadomi tego jakie siły i przekonania rządzą naszą głową. Ulegamy  stereotypom, obiegowym opiniom zamiast faktom lub wykorzystujemy skróty myślowe (heurystyki). Konsekwencją takiego postępowania, które ma wszystkie znamiona braku pełnej świadomości są nieprzemyślane, krótkowzroczne i często błędne decyzje. Dlatego znalezienie sposobu aby budować swoją świadomość - a może na początku zbudować w sobie świadomość jak bardzo nie jesteśmy świadomi - powinno odgrywać w naszym życiu istotne znaczenie.
 
-Je
+**JAK PRACOWAĆ NAD ŚWIADOMOŚCIĄ**
 
-**JAK BUDOWAĆ ŚWIADOMOŚĆ**
+Pracę nad świadomością należy zacząć od zbudowania prawidłowej **samo oceny**. Aby tego dokonać konieczne jest włożenie odpowiedniego wysiłku w zrozumienie tego kim jesteśmy naszych - zalet jak i również wad. W tym celu najważniejszym obszarem nad którym warto się pochylić jest zrozumienie w jaki sposób reagujemy pod wpływem emocji, szczególnie tych silnych. Na ile tracimy kontrole, działamy na "autopilocie" i nie podejmujemy świadomych decyzji. Drugim kluczowym obszarem wartym dobrego zrozumienia są nasze wartości. Są to moralne zasady, którymi się kierujemy - często nieświadomie - podejmując istotne a czasem zwykłe decyzje. Zrozumienie jak reagujemy w emocjach i jakie zasady moralne nami kierują to podstawowa wiedza do tego aby pogłębiać naszą samoświadomość i wyciągać się z niewoli nieświadomości. Ale czy jest możliwe jest ot abyśmy mogli być tego nieświadomi ?
 
-Praca nad świadomością zaczyna się od zbudowania prawidłowej samo oceny. Aby tak się stało konieczne jest włożenie odpowiedniego wysiłku w zrozumienie tego kim jesteśmy naszych zalet ale również wad. Bez tego nie ma szans na zbudowanie prawidłowej świadomości gdyż natura człowiek jest tak zbudowana aby naturalnie uwypuklać swoje zalety ukrywają swoje wady. Najważniejszym obszarem nad którym warto się pochylić jest zrozumienie w jaki sposób reagujemy pod wpływem emocji a szczególnie tych silnych emocji. Na ile tracimy kontrole i nie podejmujemy świadomych decyzji. Ta wiedza pozwoli dużo szybciej zbudować naszą samoświadomość.  Innym ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest wolność. Dobre rozeznania jakiego typu "zniewolenia" są naszą codziennością. Złe nawyki, czas poświęcany na rzeczy blache czy wszelkiej maści uzależnienia pozwolą już w sposób bardziej świadomy  podejmować nasze decyzje.
+NIEŚWIADOME ZNIEWOLENIE 
+
+Innym ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest **wolność,** a może nawet bardzie jej brak. Dobre rozeznania jakiego typu "zniewolenia" są naszą codziennością. Złe nawyki, czas poświęcany na rzeczy blache czy wszelkiej maści uzależnienia pozwolą już w sposób bardziej świadomy pracować nad naszą świadomością.
 
 ![](/images/Screen%20Shot%202025-12-13%20at%2007.52.48.png)
 
