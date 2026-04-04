@@ -1,6 +1,6 @@
 ---
 title: WTiS_20 - ŚWIADOMOŚĆ
-date: 2026-05-06T06:44:00
+date: 2026-03-31T06:44:00
 description: WODA TLEN I SEN
 featured_image: /images/luemen-rutkowski-EKa3EPL37Dc-unsplash.jpg
 draft: false
@@ -18,7 +18,7 @@ _„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie
 
 .
 
-**CO TO ZNACZY BYĆ SWIADOMYM**
+**CO TO ZNACZY BYĆ** Ś**WIADOMYM**
 
 ![](/images/google-deepmind-6Y4EzfSP5Tc-unsplash.jpg)
 
@@ -30,9 +30,17 @@ przemyślane, krótkowzroczne i często błędne decyzje. Dlatego znalezienie sp
 
 **JAK PRACOWAĆ NAD ŚWIADOMOŚCIĄ**
 
+![](/images/josh-sorenson-wx_dsDpDdbE-unsplash.jpg)
+
+Josh Sorenson na Unsplash
+
 Pracę nad świadomością należy zacząć od zbudowania prawidłowej **samo oceny**. Aby tego dokonać konieczne jest włożenie odpowiedniego wysiłku w zrozumienie tego kim jesteśmy naszych - zalet jak i również wad. W tym celu najważniejszym obszarem nad którym warto się pochylić jest zrozumienie w jaki sposób reagujemy pod wpływem emocji, szczególnie tych silnych. Na ile tracimy kontrole, działamy na "autopilocie" i nie podejmujemy świadomych decyzji. Drugim kluczowym obszarem wartym dobrego zrozumienia są nasze wartości. Są to moralne zasady, którymi się kierujemy - często nieświadomie - podejmując istotne a czasem zwykłe decyzje. Zrozumienie jak reagujemy w emocjach i jakie zasady moralne nami kierują to podstawowa wiedza do tego aby pogłębiać naszą samoświadomość i wyciągać się z niewoli nieświadomości. Ale czy jest możliwe jest ot abyśmy mogli być tego nieświadomi ?
 
 **NIEŚWIADOME ZNIEWOLENIE**
+
+![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)
+
+Markus Spike na Unsplash
 
 Innym ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest **wolność** a dokładniej nawet zrozumienie jak bardzo nie jesteśmy wolni. Zacznijmy od dobrego rozeznania jakiego typu "zniewolenia" są naszą codziennością. Jak często nasze złe nawyki, czas poświęcany na rzeczy błahe czy wszelkiej maści uzależnienia traktujemy jako naturalną część życia? Nieświadomie albo sami siebie  oszukując brniemy w nie dalej. To swoiste "nieświadome" zniewolenie gdyż prawdziwa wolność nie oznacza swobody robienia co chcemy tylko świadomego robienia tego co jest dobre dla nas i naszego otoczenia. Podsumowując, z praktycznego punktu widzenia, bycie wolnym można utożsamiać z umiejętnością dokonywania świadomych, przemyślanych wyborów, które prowadzą do pożądanych rezultatów i budują poczucie odpowiedzialności za własne życie. Wydobądź się niewoli swojego umysłu a staniesz się bardziej świadomym człowiekiem. Czy warto wybrać "czerwoną pigułkę"?
 
