@@ -14,7 +14,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 _„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią" \*_
 
-                               \*cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi oraz spopularyzowany przez film "Podziemny krąg"
+cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi oraz spopularyzowany przez film "Podziemny krąg"
 
 .
 
