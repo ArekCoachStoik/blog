@@ -34,14 +34,12 @@ Innym ważnym punktem odniesienia który pozwala rozwijać naszą świadomość 
 
 **CZY WOLISZ POZNAĆ PRAWDĘ CZY ŻYĆ W BEZPIECZNEJ NIEŚWIADOMOŚCI**
 
-Wszyscy fani filmu "Matrix" Braci Wachowskich zdaje sobie sprawę iż nawiązuje do słynnej sceny w której Morfeusz proponuje Neo wybór pozostania w błogiej nieświadomości czy swoiste przebudzenie i poznanie prawdy - czasami bardzo trudnej. Każdy z nas kto przez chwilę w sposób refleksyjny spojrzy na swoje życie staje przez chwilę przed takim wyborem. Tutaj największą pułapkę zakłada na nas nasz władny mózg - który ze względu na swoją budowę i ciągłe poszukiwanie oszczędzania energii jest mocno leniwy i automatycznie wybiera prostszą drogę czyli "niebieską pigułkę nieświadomości". Więcej o tym jak działania nasza głowa znajdziesz [TUTAJ -> WTIS_10 Rozwój osobisty](https://wodatlenisen.site/post/wtis10/)
+Wszyscy fani filmu "Matrix" braci Wachowskich zdają sobie sprawę iż nawiązuje do słynnej sceny w której Morfeusz proponuje Neo wybór pozostania w błogiej nieświadomości czy swoiste przebudzenie i poznanie prawdy - czasami bardzo trudnej. Każdy z nas kto przez chwilę w sposób refleksyjny spojrzy na swoje życie staje przez chwilę przed takim wyborem. Tutaj największą pułapkę zakłada na nas nasz władny mózg - który ze względu na swoją budowę i ciągłe poszukiwanie oszczędzania energii jest mocno leniwy i automatycznie wybiera prostszą drogę czyli "niebieską pigułkę nieświadomości". Więcej o tym jak działania nasza głowa znajdziesz [TUTAJ -> WTIS_10 Rozwój osobisty](https://wodatlenisen.site/post/wtis10/). Nawiązując do początkowego cytatu z tego wpisu osoba świadoma nie podejmuje tak nieracjonalnych decyzji jak konsumpcjonizm ponad miarę aby zaimponować komuś kogo nie darzy się sympatią. Czy napewno - każdy z nas ma w swoim otoczeniu kogoś kto tak postępuje a bardzo często sami tak robimy. Do tego nasz umysł jest geniuszem racjonalizacji i wyjaśni nam, że w sumie to postępujemy słusznie a dopaminowy "narkotyk" zakupów wprowadzi nas w błogi stan. Czyż nie wartoś się wyrwać z tego "matrixa" ?
 
-**CIESZ SIĘ Z TEGO CO MASZ.**
+**CO SIĘ DZIEJE W ŚWIECIE PRAWDY**
 
-![](/images/nick-fewings-3Zji01G_ptM-unsplash.jpg)
+Dzieje się magia. Bycie osobą w pełni świadomą swoich decyzji z jednej strony pozwala nam pracować nad tym aby stawać się lepszym człowiekiem. Dążenie do najwyższego dobra już w filozofii antycznej stanowiło sens życia. Osoba świadoma nabiera sensu  życia , sensu którego bardzo często nieświadomie szukamy. Będą świadomym odnalezienie go jest dużo prostsze a stąd już tylko krok do harmonijnego i spokojnego życia. Jak ja je rozumiem możesz dokładniej się dowiedzieć na kartach tego bloga zaczynając od zakładki [WTIS ( Woda Tlen iSen)](https://wodatlenisen.site/wtis/). A. na koniec jak zawsze życzenia.
 
-Nick Fewings z Unsplash
-
-**W tym okresie świąt Wielkanocnych życzę Ci abyś w sposób świadomy przeżył ten czas. Jeśli mają one dla ciebie charakter religijny włóż wysiłek i pogłęb zrozumienie jaka jest ich istota je**
+**W okresie świąt Wielkanocnych życzę Ci abyś w sposób świadomy przeżył ten czas. Jeśli mają one dla ciebie charakter religijny włóż wysiłek i pogłęb zrozumienie jaka jest ich istota**. **Jeśli mają dla Ciebie charakter spotkania rodzinnego nie sprowadź ich do biesiadowania przy stole ale świadomie rozbuduj rodzinne relacje.** 
 
 **ARCOS**
