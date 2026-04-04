@@ -12,7 +12,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-**_„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią"_** 
+**_„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią"_**
 
  _-  cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi oraz spopularyzowany przez film "Podziemny krąg"_
 
@@ -24,7 +24,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 Google-deepmind z Unsplash
 
-Świadomość to stan psychiczny w którym zdajemy sobie sprawę z własnych procesów myślowych, emocji oraz bodźców zewnętrznych. Jest to swoisty kontakt ze sobą i otaczającą nas rzeczywistością. Stan w którym refleksyjnie potrafimy ocenić nasze działanie. Często porównuje się ten stan do bycia przytomny w odróżnieniu od braku przytomności czyli braku świadomości. 
+Świadomość to stan psychiczny w którym zdajemy sobie sprawę z własnych procesów myślowych, emocji oraz bodźców zewnętrznych. Jest to swoisty kontakt ze sobą i otaczającą nas rzeczywistością. Stan w którym refleksyjnie potrafimy ocenić nasze działanie. Często porównuje się ten stan do bycia przytomny w odróżnieniu od braku przytomności czyli braku świadomości.
 
 W tym miejscu warto doprecyzować, że bardzo często będąc w pełni przytomnym - w fizycznym rozumieniu tego słowa -  nie jesteśmy świadomi tego jakie siły i przekonania rządzą naszą głową. Ulegamy  stereotypom, obiegowym opiniom zamiast faktom lub wykorzystujemy skróty myślowe (heurystyki) oddając się w całości automatycznemu "Systemowi 1" - autopilotowi naszej głowy. Piszę szerzej o tym [TUTAJ -> WTIS_08 - Kondycja fizyczna](https://wodatlenisen.site/post/wtis08/). Konsekwencją takiego postępowania - które ma wszystkie znamiona braku pełnej świadomości - są nieprzemyślane, krótkowzroczne i często błędne decyzje. Dlatego znalezienie sposobu aby budować swoją świadomość - a może na początku zbudować w sobie świadomość jak bardzo nie jesteśmy świadomi - powinno odgrywać w naszym życiu istotne znaczenie.
 
@@ -42,7 +42,7 @@ Pracę nad świadomością należy zacząć od zbudowania prawidłowej **samo oc
 
 Markus Spike na Unsplash
 
-Jak najbardziej tak. Ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest **wolność** a dokładniej nawet zrozumienie jak bardzo nie jesteśmy wolni. Zacznijmy od dobrego rozeznania jakiego typu "zniewolenia" są naszą codziennością. Jak często nasze złe nawyki, czas poświęcany na rzeczy błahe czy wszelkiej maści uzależnienia traktujemy jako naturalną część życia? Nieświadomie albo sami siebie  oszukując brniemy w nie dalej. To swoiste "nieświadome" zniewolenie gdyż prawdziwa wolność nie oznacza swobody robienia co chcemy tylko świadomego robienia tego co jest dobre dla nas i naszego otoczenia. Podsumowując, z praktycznego punktu widzenia, bycie wolnym można utożsamiać z umiejętnością dokonywania świadomych, przemyślanych wyborów, które prowadzą do pożądanych rezultatów i budują poczucie odpowiedzialności za własne życie. Wydobądź się niewoli swojego umysłu a staniesz się bardziej świadomym człowiekiem. Czy warto wybrać "czerwoną pigułkę"?
+Jak najbardziej tak. Ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest **wolność** a dokładniej zrozumienie jak bardzo nie jesteśmy wolni. Zacznijmy od dobrego rozeznania jakiego typu "zniewolenia" są naszą codziennością. Jak często nasze złe nawyki, czas poświęcany na rzeczy błahe czy wszelkiej maści uzależnienia traktujemy jako naturalną część życia? Nieświadomie albo sami siebie  oszukując brniemy w nie dalej. To swoiste "nieświadome" zniewolenie gdyż prawdziwa wolność nie oznacza swobody robienia co chcemy tylko świadomego robienia tego co jest dobre dla nas i naszego otoczenia. Podsumowując, z praktycznego punktu widzenia, bycie wolnym można utożsamiać z umiejętnością dokonywania świadomych, przemyślanych wyborów, które prowadzą do pożądanych rezultatów i budują poczucie odpowiedzialności za własne życie. Wydobądź się niewoli swojego umysłu a staniesz się bardziej świadomym człowiekiem. Czy warto wybrać "czerwoną pigułkę"?
 
 **CZY WOLISZ POZNAĆ PRAWDĘ CZY ŻYĆ W BEZPIECZNEJ NIEŚWIADOMOŚCI**
 
@@ -50,7 +50,7 @@ Jak najbardziej tak. Ważnym punktem odniesienia który pozwala rozwijać naszą
 
 Markus Kammermann na Unsplash
 
-Wszyscy fani filmu "Matrix" braci Wachowskich zdają sobie sprawę iż nawiązuje do słynnej sceny w której Morfeusz proponuje Neo wybór pozostania w błogiej nieświadomości czy swoiste przebudzenie i poznanie prawdy - czasami bardzo trudnej. Każdy z nas kto przez chwilę w sposób refleksyjny spojrzy na swoje życie staje przez chwilę przed takim wyborem. Tutaj największą pułapkę zakłada na nas nasz własny mózg - który ze względu na swoją budowę i ciągłe poszukiwanie oszczędzania energii jest mocno leniwy i automatycznie wybiera prostszą drogę czyli "niebieską pigułkę nieświadomości". Więcej o tym jak działa nasza głowa znajdziesz [TUTAJ -> WTIS_10 Rozwój osobisty](https://wodatlenisen.site/post/wtis10/). Nawiązując do początkowego cytatu z tego wpisu osoba świadoma nie podejmuje tak nieracjonalnych decyzji jak konsumpcjonizm ponad miarę aby zaimponować komuś kogo nie darzy się sympatią. Czy napewno - każdy z nas ma w swoim otoczeniu kogoś kto tak postępuje a bardzo często sami tak robimy. Do tego nasz umysł jest geniuszem racjonalizacji i wyjaśni nam, że w sumie to postępujemy słusznie a dopaminowy "narkotyk" zakupów wprowadzi nas w błogi stan. Czyż nie wartoś się wyrwać z tego "matrixa" ?
+Wszyscy fani filmu "Matrix" braci Wachowskich zdają sobie sprawę iż nawiązuje do słynnej sceny w której Morfeusz proponuje Neo wybór pozostania w błogiej nieświadomości lub swoiste przebudzenie i poznanie prawdy - czasami bardzo trudnej. Każdy z nas kto przez chwilę w sposób refleksyjny spojrzy na swoje życie staje przez chwilę przed takim wyborem. Tutaj największą pułapkę zakłada na nas nasz własny mózg - który ze względu na swoją budowę i ciągłe poszukiwanie oszczędzania energii jest mocno leniwy i automatycznie wybiera prostszą drogę czyli "niebieską pigułkę nieświadomości". Więcej o tym jak działa nasza głowa znajdziesz [TUTAJ -> WTIS_10 Rozwój osobisty](https://wodatlenisen.site/post/wtis10/). Nawiązując do początkowego cytatu z tego wpisu osoba świadoma nie podejmuje tak nieracjonalnych decyzji jak konsumpcjonizm ponad miarę aby zaimponować komuś kogo nie darzy się sympatią. Czy napewno - każdy z nas ma w swoim otoczeniu kogoś kto tak postępuje a bardzo często sami tak robimy. Do tego nasz umysł jest geniuszem racjonalizacji i wyjaśni nam, że w sumie to postępujemy słusznie a dopaminowy "narkotyk" zakupów wprowadzi nas w błogi stan. Czyż nie wartoś się wyrwać z tego "matrixa" ?
 
 **CO SIĘ DZIEJE W ŚWIECIE PRAWDY**
 
@@ -65,5 +65,7 @@ A na koniec jak zawsze życzenia.
 **.**
 
 **W okresie świąt Wielkanocnych życzę Ci abyś w sposób świadomy przeżył ten czas. Jeśli mają one dla ciebie charakter religijny włóż wysiłek i pogłęb zrozumienie jaka jest ich istota**. **Jeśli mają dla Ciebie charakter spotkania rodzinnego nie sprowadź ich do biesiadowania przy stole ale świadomie rozbuduj rodzinne relacje.**
+
+**ŚWIADOMYCH ŚWIĄT !**
 
 **ARCOS**
