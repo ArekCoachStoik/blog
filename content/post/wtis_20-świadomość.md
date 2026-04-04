@@ -20,9 +20,9 @@ _„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie
 
 **CO TO ZNACZY BYĆ SWIADOMYM**
 
+![](/images/google-deepmind-6Y4EzfSP5Tc-unsplash.jpg)
 
-
-Kaptured by Kasia z Unsplash
+Google-deepmind z Unsplash
 
 Świadomość to stan psychiczny w którym zdajemy sobie sprawę z własnych procesów myślowych emocji oraz bodźców zewnętrznych. Jest to swoisty kontakt ze sobą i otaczającą nas rzeczywistością. Stan w którym refleksyjnie potrafimy ocenić nasze działanie. Często porównuje się ten stan do bycia przytomny w odróżnieniu od braku przytomności czyli braku świadomości. W tym miejscu warto doprecyzować, że bardzo często będąc w pełni przytomnym - w fizycznym rozumieniu tego słowa -  nie jesteśmy świadomi tego jakie siły i przekonania rządzą naszą głową. Ulegamy  stereotypom, obiegowym opiniom zamiast faktom lub wykorzystujemy skróty myślowe (heurystyki) oddając się w całości automatycznemu "Systemowi 1" - autopilocie naszej głowy. Jeśli jesteś zainteresowany pogłębienie tego tematu piszę szerzej o tym [TUTAJ -> WTIS_08 - Kondycja fizyczna](https://wodatlenisen.site/post/wtis08/). Konsekwencją takiego postępowania - które ma wszystkie znamiona braku pełnej świadomości - są nie
 
@@ -50,7 +50,7 @@ Wszyscy fani filmu "Matrix" braci Wachowskich zdają sobie sprawę iż nawiązuj
 
 Breno Jesus na Unsplash
 
-Dzieje się magia. Bycie osobą w pełni świadomą swoich decyzji z jednej strony pozwala nam pracować nad tym aby stawać się lepszym człowiekiem. Dążenie do najwyższego dobra już w filozofii antycznej stanowiło sens życia. Osoba świadoma nabiera sensu  życia , sensu którego bardzo często nieświadomie szukamy. Będą świadomym odnalezienie go jest dużo prostsze a stąd już tylko krok do harmonijnego i spokojnego życia. Jeśli szukasz pomocnej dłoni i sposobu jak tam dojść zachęcam do dokładniejsze zapoznania się z założeniami mojej _"filozofii"_ **WODA TLEN iSEN** , które znajdziesz na kartach tego bloga zaczynając od zakładki [WTIS ( Woda Tlen iSen)](https://wodatlenisen.site/wtis/). 
+Dzieje się magia. Bycie osobą w pełni świadomą swoich decyzji z jednej strony pozwala nam pracować nad tym aby stawać się lepszym człowiekiem. Dążenie do najwyższego dobra już w filozofii antycznej stanowiło sens życia. Osoba świadoma nabiera sensu  życia , sensu którego bardzo często nieświadomie szukamy. Będą świadomym odnalezienie go jest dużo prostsze a stąd już tylko krok do harmonijnego i spokojnego życia. Jeśli szukasz pomocnej dłoni i sposobu jak tam dojść zachęcam do dokładniejsze zapoznania się z założeniami mojej _"filozofii"_ **WODA TLEN iSEN** , które znajdziesz na kartach tego bloga zaczynając od zakładki [WTIS ( Woda Tlen iSen)](https://wodatlenisen.site/wtis/).
 
 A. na koniec jak zawsze życzenia.
 
