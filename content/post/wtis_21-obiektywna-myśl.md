@@ -12,29 +12,34 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-**_„Ludzie kupują rzeczy, których nie potrzebują, za pieniądze, których nie mają, żeby zaimponować ludziom, których nie lubią"_**
+„Jeżeli myślisz, że możesz coś zrobić, lub myślisz, że nie możesz, masz rację” – Henry Ford
 
- _-  cytat, często przypisywany George'owi Fooshee lub Willowi Rogersowi oraz spopularyzowany przez film "Podziemny krąg"_
-
-.
-
-**CO TO ZNACZY BYĆ** Ś**WIADOMYM**
+.**SIŁA MYŚLI**
 
 ![](/images/google-deepmind-6Y4EzfSP5Tc-unsplash.jpg)
 
 Google-deepmind z Unsplash
 
-Świadomość to stan psychiczny w którym zdajemy sobie sprawę z własnych procesów myślowych, emocji oraz bodźców zewnętrznych. Jest to swoisty kontakt ze sobą i otaczającą nas rzeczywistością. Stan w którym refleksyjnie potrafimy ocenić nasze działanie. Często porównuje się ten stan do bycia przytomny w odróżnieniu od braku przytomności czyli braku świadomości.
+W kontekście siły na pierwszą myśl wysuwa się najczęściej siła fizyczna. Wkładamy wiele pracy w to aby nasze ciało miało odpowiednią energię do działania. Zdrowe odżywianie, wysiłek fizyczny czy odpoczynek to sprawdzone sposoby na to aby nasz organizm miał odpowiednio tuż siły fizycznej. W mojej "filozofii" WODA TLEN iSEN poświęcam sporo uwagi temu zagadnieniu - możesz o tym poczytać choćby [TUTAJ](https://wodatlenisen.site/post/wtis04/)
 
-W tym miejscu warto doprecyzować, że bardzo często będąc w pełni przytomnym - w fizycznym rozumieniu tego słowa -  nie jesteśmy świadomi tego jakie siły i przekonania rządzą naszą głową. Ulegamy  stereotypom, obiegowym opiniom zamiast faktom lub wykorzystujemy skróty myślowe (heurystyki) oddając się w całości automatycznemu "Systemowi 1" - autopilotowi naszej głowy. Piszę szerzej o tym [TUTAJ -> WTIS_08 - Kondycja fizyczna](https://wodatlenisen.site/post/wtis08/). Konsekwencją takiego postępowania - które ma wszystkie znamiona braku pełnej świadomości - są nieprzemyślane, krótkowzroczne i często błędne decyzje. Dlatego znalezienie sposobu aby budować swoją świadomość - a może na początku zbudować w sobie świadomość jak bardzo nie jesteśmy świadomi - powinno odgrywać w naszym życiu istotne znaczenie.
+Pomimo, że praca nad naszą siłą fizyczną wydaje się być zjawiskiem naturalnym, cyklicznym, który dzieje się trochę samoistnie jest inna ważna siła, która jest swoistą iskrą w silniku naszego życia. Jest to  siła umysłu, która przywołując cytat Henrego Forda może motywować nas do bardziej aktywnego działania bądź kierować nad do wygodnego fotela codzienności, demotywować poprzez brak wiary do bardziej aktywnego życia w każdym możliwym obszarze. 
 
-**JAK PRACOWAĆ NAD ŚWIADOMOŚCIĄ**
+Siła naszych myśli jest swoistym trenenerem, który w każdym obszarze naszego życia fizycznego, intelektualnego lub duchowego daje energię do budowania, działania i regeneracji. Dodatków warto przypomnieć, że zgodnie z filozofią stoicką jest to jedyna rzecz nad którą mamy 100% kontrolę wszystko inne jest mniej lub bardziej zależne od zjawisk lub osób trzecich, których oddziaływanie na nas od nas niezależny.
+
+**MYŚL OBIEKTYWNA CZYLI JAKA**
 
 ![](/images/josh-sorenson-wx_dsDpDdbE-unsplash.jpg)
 
 Josh Sorenson na Unsplash
 
-Pracę nad świadomością należy zacząć od zbudowania prawidłowej **samo oceny**. Aby tego dokonać konieczne jest włożenie odpowiedniego wysiłku w zrozumienie tego kim jesteśmy - naszych zalet jak i również wad. W tym celu najważniejszym obszarem nad którym warto się pochylić jest zrozumienie w jaki sposób reagujemy pod wpływem emocji, szczególnie tych silnych. Na ile tracimy kontrole, działamy na "autopilocie" i nie podejmujemy świadomych decyzji. Dodatkowo kluczowym obszarem wartym dobrego zrozumienia są nasze wartości. Są to moralne zasady, którymi się kierujemy - często nieświadomie - podejmując istotne a czasem zwykłe decyzje. Zrozumienie jak reagujemy w emocjach i jakie zasady moralne nami kierują to podstawowa wiedza do tego aby pogłębiać naszą samoświadomość i wyciągać się z niewoli nieświadomości. Ale czy możliwe jest to abyśmy mogli być tak mocno nieświadomi ?
+Myśl obiektywna to myśl refleksyjna. Pozbawiona emocji, dobrze przemyślana i nie kierująca się naszymi uprzedzeniami (z ang. bias - błędy poznawcze). Do tego biorąca pod uwagę przeróżne heurystyki "skróty myślowe", które są głównym źródłem naszego nieobiektywnego myślenia.
+
+Wydaje się że do obiektywnego myślenia warto pamiętać  o wyżej wymienionych wskazówkach i mamy to. Nic bardzie mylnego. W obecnych czasach kiedy wszystko dzieje się szybko nasz umysł wypracował bardzo silny mechanizm autopilota czyli podświadomego, automatycznego działania. Parafrazując myśl o trenerze, nasz główny gracz (umysł) nie czeka na podpowiedzi trenera tylko działa automatycznie zgodnie z wyuczonymi wzorcami. Jeśli chciałbyś pogłębić ten temat odsyłam do mojego bloga [WTiS_08](https://wodatlenisen.site/post/wtis08/) gdzie wskazuje na prace noblisty Daniela Kahnemanna w tym obszarze.
+
+Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu miejętności aby pomiędzy bodźcem a nasza reakcją wypracować przestrzeń na refleksje. Tak powstała myśl ma pełne znamiona myśli obiektywnej, w pełni od nas zależnej i dającej nadzieje na skuteczne a przede wszystkim "dobre" działanie.
+
+
+
 
 **NIEŚWIADOME ZNIEWOLENIE**
 
