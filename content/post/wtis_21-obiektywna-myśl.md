@@ -40,7 +40,8 @@ Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiej
 
 **OBIEKTYWNA MYŚL CZYLI RACJONALNE DZIAŁANIE**
 
-![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. Z definicji racjonalizm to działanie pod wpływem obiektywnego myślenia. Przyczyna i skutek poddany refleksyjnemu myśleniu. Ponownie wydaje się to być oczywiste i zadając przeciętnej osobie pytanie o to czy działa racjonalnie bardzo rzadko uzyskamy negującą odpowiedź. Czy tak faktycznie jest.  Ten interesujący sposób zgłębił Dan Arieli w książce
+![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. Z definicji racjonalizm to działanie pod wpływem obiektywnego myślenia. Przyczyna i skutek poddany refleksyjnemu myśleniu. Ponownie wydaje się to być oczywiste i zadając przeciętnej osobie pytanie o to czy działa racjonalnie bardzo rzadko uzyskamy negującą odpowiedź. Czemu tak jest skoro w rzeczywistości jesteśmy bardzo często nieracjonalni. Ten interesujący temat zgłębił Dan Arieli w książce "Potem irracjonalności"w której wskazuje że jesteśmy bardziej nieracjonalni niż nam się wydaje, robimy to w systematycznie  i do tego w przewidywalny sposób. Sama systematyczność wskazuje na to, że warto pracować regularnie nad obiektywnym myśleniem, gdyż błędy poznawcze często kierują nas na manowce. Przewidywalność jest równie niebezpieczna ponieważ wykorzystywana jest prze ekonomię behawioralna w celu kreowania naszych potrzeb - kierując nas na prostą drogę konsumpcjonizmu. 
+
 
 **.**
 
