@@ -38,7 +38,7 @@ Myśl obiektywna to myśl refleksyjna. Pozbawiona emocji, dobrze przemyślana i 
 
 Wydaje się że do obiektywnego myślenia warto pamiętać  o wyżej wymienionych wskazówkach i mamy to. Nic bardziej mylnego. W obecnych czasach kiedy wszystko dzieje się szybko - nasz umysł wypracował bardzo silny mechanizm autopilota czyli podświadomego, automatycznego działania. Parafrazując myśl o trenerze, nasz główny gracz (umysł) nie czeka na podpowiedzi trenera tylko działa automatycznie zgodnie z wyuczonymi wzorcami. Jeśli chciałbyś pogłębić ten temat odsyłam do mojego bloga [WTiS_08](https://wodatlenisen.site/post/wtis08/) gdzie wskazuje na prace noblisty Daniela Kahnemanna w tym obszarze.
 
-Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiejętności aby pomiędzy bodźcem a naszą reakcją wypracować przestrzeń na refleksje czyli coaching od naszego wewnętrznego trenera.  Jak na rasowego coacha przystało chodzi o zadanie sobie pytań aby wydobyć refleksyjną myśl (jak jakby ją urodzić - zgodnie z [metodą Sokratesa](https://wodatlenisen.site/post/wtis13/)). Tak "urodzona"myśl ma pełne znamiona myśli obiektywnej, w pełni od nas zależnej i dającej nadzieje na skuteczne a przede wszystkim "dobre" działanie.
+Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiejętności aby pomiędzy bodźcem a naszą reakcją wykreować przestrzeń na refleksje czyli coaching od naszego wewnętrznego trenera.  Jak na rasowego coacha przystało chodzi o zadanie sobie pytań aby wydobyć refleksyjną myśl (jak jakby ją urodzić - zgodnie z [metodą Sokratesa](https://wodatlenisen.site/post/wtis13/)). Tak "urodzona"myśl ma pełne znamiona myśli obiektywnej, w pełni od nas zależnej i dającej nadzieje na skuteczne a przede wszystkim "dobre" działanie.
 
 **OBIEKTYWNA MYŚL CZYLI RACJONALNE DZIAŁANIE**
 
@@ -54,7 +54,7 @@ Na koniec przytoczę słowa Epikteta które świetnie obrazują istotę drogi do
 
 .
 
-"Jeśli ktoś potrafi mi udowodnić i wykazać, że błędnie myślę lub czyniyęchętnie się zmienię, ponieważ szukam prawdy, a ta nigdy nikomu nie zaszkodziła. Szkodzi sobie ten kto trwa w kłamstwie i ignorancji."
+"Jeśli ktoś potrafi mi udowodnić i wykazać, że błędnie myślę lub czynię chętnie się zmienię, ponieważ szukam prawdy, a ta nigdy nikomu nie zaszkodziła. Szkodzi sobie ten kto trwa w kłamstwie i ignorancji."
 
 .
 
