@@ -36,11 +36,11 @@ Myśl obiektywna to myśl refleksyjna. Pozbawiona emocji, dobrze przemyślana i 
 
 Wydaje się że do obiektywnego myślenia warto pamiętać  o wyżej wymienionych wskazówkach i mamy to. Nic bardziej mylnego. W obecnych czasach kiedy wszystko dzieje się szybko - nasz umysł wypracował bardzo silny mechanizm autopilota czyli podświadomego, automatycznego działania. Parafrazując myśl o trenerze, nasz główny gracz (umysł) nie czeka na podpowiedzi trenera tylko działa automatycznie zgodnie z wyuczonymi wzorcami. Jeśli chciałbyś pogłębić ten temat odsyłam do mojego bloga [WTiS_08](https://wodatlenisen.site/post/wtis08/) gdzie wskazuje na prace noblisty Daniela Kahnemanna w tym obszarze.
 
-Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiejętności aby pomiędzy bodźcem a naszą reakcją wypracować przestrzeń na refleksje czyli coaching od naszego wewnętrznego trenera.  Jak na rasowego coacha przystało chodzi o zadanie sobie pytań aby wydobyć refleksyjną myśl (urodzić - zgodnie z [metodą Sokratesa](https://wodatlenisen.site/post/wtis13/)). Tak powstała myśl ma pełne znamiona myśli obiektywnej, w pełni od nas zależnej i dającej nadzieje na skuteczne a przede wszystkim "dobre" działanie.
+Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiejętności aby pomiędzy bodźcem a naszą reakcją wypracować przestrzeń na refleksje czyli coaching od naszego wewnętrznego trenera.  Jak na rasowego coacha przystało chodzi o zadanie sobie pytań aby wydobyć refleksyjną myśl (jak by ją urodzić - zgodnie z [metodą Sokratesa](https://wodatlenisen.site/post/wtis13/)). Tak powstała myśl ma pełne znamiona myśli obiektywnej, w pełni od nas zależnej i dającej nadzieje na skuteczne a przede wszystkim "dobre" działanie.
 
 **OBIEKTYWNA MYŚL CZYLI RACJONALNE DZIAŁANIE**
 
-![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. 
+![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. Z definicji racjonalizm to działanie pod wpływem obiektywnego myślenia. Przyczyna i skutek poddany refleksyjnemu myśleniu. Ponownie wydaje się to być oczywiste i zadając przeciętnej osobie pytanie o to czy działa racjonalnie bardzo rzadko uzyskamy negującą odpowiedź. Czy tak faktycznie jest.  Ten interesujący sposób zgłębił Dan Arieli w książce
 
 **.**
 
