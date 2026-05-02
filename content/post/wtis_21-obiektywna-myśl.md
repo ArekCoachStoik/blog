@@ -38,33 +38,9 @@ Wydaje się że do obiektywnego myślenia warto pamiętać  o wyżej wymienionyc
 
 Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiejętności aby pomiędzy bodźcem a naszą reakcją wypracować przestrzeń na refleksje czyli coaching od naszego wewnętrznego trenera.  Jak na rasowego coacha przystało chodzi o zadanie sobie pytań aby wydobyć refleksyjną myśl (urodzić - zgodnie z [metodą Sokratesa](https://wodatlenisen.site/post/wtis13/)). Tak powstała myśl ma pełne znamiona myśli obiektywnej, w pełni od nas zależnej i dającej nadzieje na skuteczne a przede wszystkim "dobre" działanie.
 
-**NIEŚWIADOME ZNIEWOLENIE**
+**OBIEKTYWNA MYŚL CZYLI RACJONALNE DZIAŁANIE**
 
-![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)
-
-Markus Spike na Unsplash
-
-Obiektywne myślenie to pierwszy krok do dzynienienia dobra. Czy możliwe jest jednak abyśmy byli przekonani o tym, że nasze działania oparte są o wg nas "w pełni" świadome a jednak efekt naszych działań i jest daleki od ideału "bycia dobry". Najczęściej taka sytuacja jest konsekwencją tego, że nie jesteśmy świadomi naszego podporządkowania, często zniewolenia on innych osób, rzeczy, zjawisk. Jest to bardzo powszechne zjawisko i oznacza, że nasze myśli nie są obiektywne, gdyż są uzależnione od kogoś, czegoś i nie mamy nad 100% kontroli. Dlatego bardzo ważnym punktem odniesienia który pozwala rozwijać naszą świadomość jest **wolność** a dokładniej zrozumienie jak bardzo nie jesteśmy wolni. 
-
-Zacznijmy od dobrego rozeznania jakiego typu "zniewolenia" są naszą codziennością. Jak często nasze złe nawyki, czas poświęcany na rzeczy błahe czy wszelkiej maści uzależnienia traktujemy jako naturalną część życia? Nieświadomie albo sami siebie  oszukując brniemy w nie dalej. To swoiste "nieświadome" zniewolenie gdyż prawdziwa wolność nie oznacza swobody robienia co chcemy tylko świadomego robienia tego co jest dobre dla nas i naszego otoczenia. Podsumowując, z praktycznego punktu widzenia, bycie wolnym można utożsamiać z umiejętnością dokonywania świadomych, przemyślanych wyborów, które prowadzą do pożądanych rezultatów i budują poczucie odpowiedzialności za własne życie. Wydobądź się niewoli swojego umysłu a staniesz się bardziej świadomym człowiekiem. Czy warto wybrać "czerwoną pigułkę"?
-
-**CZY WOLISZ POZNAĆ PRAWDĘ CZY ŻYĆ W BEZPIECZNEJ NIEŚWIADOMOŚCI**
-
-![](/images/markus-kammermann-pnPwc-Pffuk-unsplash.jpg)
-
-Markus Kammermann na Unsplash
-
-Wszyscy fani filmu "Matrix" braci Wachowskich zdają sobie sprawę iż nawiązuje do słynnej sceny w której Morfeusz proponuje Neo wybór pozostania w błogiej nieświadomości lub swoiste przebudzenie i poznanie prawdy - czasami bardzo trudnej. Każdy z nas kto przez chwilę w sposób refleksyjny spojrzy na swoje życie staje przez chwilę przed takim wyborem. Tutaj największą pułapkę zakłada na nas nasz własny mózg - który ze względu na swoją budowę i ciągłe poszukiwanie oszczędzania energii jest mocno leniwy i automatycznie wybiera prostszą drogę czyli "niebieską pigułkę nieświadomości". Więcej o tym jak działa nasza głowa znajdziesz [TUTAJ -> WTIS_10 Rozwój osobisty](https://wodatlenisen.site/post/wtis10/). Nawiązując do początkowego cytatu z tego wpisu osoba świadoma nie podejmuje tak nieracjonalnych decyzji jak konsumpcjonizm ponad miarę aby zaimponować komuś kogo nie darzy się sympatią. Czy napewno - każdy z nas ma w swoim otoczeniu kogoś kto tak postępuje a bardzo często sami tak robimy. Do tego nasz umysł jest geniuszem racjonalizacji i wyjaśni nam, że w sumie to postępujemy słusznie a dopaminowy "narkotyk" zakupów wprowadzi nas w błogi stan. Czyż nie wartoś się wyrwać z tego "matrixa" ?
-
-**CO SIĘ DZIEJE W ŚWIECIE PRAWDY**
-
-![](/images/breno-jesus-Akp8qcrCk0s-unsplash.jpg)
-
-Breno Jesus na Unsplash
-
-Dzieje się magia. Bycie osobą w pełni świadomą swoich decyzji z jednej strony pozwala nam pracować nad tym aby stawać się lepszym człowiekiem. Dążenie do najwyższego dobra już w filozofii antycznej stanowiło sens życia. Osoba świadoma nabiera sensu  życia , sensu którego bardzo często nieświadomie szukamy. Będą świadomym odnalezienie go jest dużo prostsze a stąd już tylko krok do harmonijnego i spokojnego życia. Jeśli szukasz pomocnej dłoni i sposobu jak tam dojść zachęcam do dokładniejsze zapoznania się z założeniami mojej _"filozofii"_ **WODA TLEN iSEN** , które znajdziesz na kartach tego bloga zaczynając od zakładki [WTIS ( Woda Tlen iSen)](https://wodatlenisen.site/wtis/).
-
-A na koniec jak zawsze życzenia.
+![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. 
 
 **.**
 
