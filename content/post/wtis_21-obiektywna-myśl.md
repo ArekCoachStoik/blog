@@ -1,6 +1,6 @@
 ---
 title: WTiS_21 - OBIEKTYWNA MYŚL
-date: 2026-03-31T06:44:00
+date: 2026-04-30T06:44:00
 description: WODA TLEN I SEN
 featured_image: /images/tachina-lee--wjk_SSqCE4-unsplash (1).jpg
 draft: false
