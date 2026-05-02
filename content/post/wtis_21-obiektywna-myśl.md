@@ -2,7 +2,7 @@
 title: WTiS_21 - OBIEKTYWNA MYŚL
 date: 2026-03-31T06:44:00
 description: WODA TLEN I SEN
-featured_image: /images/luemen-rutkowski-EKa3EPL37Dc-unsplash.jpg
+featured_image: /images/tachina-lee--wjk_SSqCE4-unsplash (1).jpg
 draft: false
 ---
 
@@ -16,9 +16,9 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .**SIŁA MYŚLI**
 
-![](/images/google-deepmind-6Y4EzfSP5Tc-unsplash.jpg)
+![](/images/jose-jesus-valencia-alvarez-fKzG6tSpvQs-unsplash.jpg)
 
-Google-deepmind z Unsplash
+Jose Jesus Valencia Alvarez z Unsplash
 
 W kontekście siły na pierwszą myśl wysuwa się najczęściej siła fizyczna. Wkładamy wiele pracy w to aby nasze ciało miało odpowiednią energię do działania. Zdrowe odżywianie, wysiłek fizyczny czy odpoczynek to sprawdzone sposoby na to aby nasz organizm miał odpowiednio tuż siły fizycznej. W mojej "filozofii" WODA TLEN iSEN poświęcam sporo uwagi temu zagadnieniu - możesz o tym poczytać choćby [TUTAJ](https://wodatlenisen.site/post/wtis04/)
 
@@ -28,9 +28,9 @@ Siła naszych myśli jest swoistym trenenerem, który w każdym obszarze naszego
 
 **MYŚL OBIEKTYWNA CZYLI JAKA**
 
-![](/images/josh-sorenson-wx_dsDpDdbE-unsplash.jpg)
+![](/images/devin-avery-VBBs_SWsdwU-unsplash.jpg)
 
-Josh Sorenson na Unsplash
+Devin Avery na Unsplash
 
 Myśl obiektywna to myśl refleksyjna. Pozbawiona emocji, dobrze przemyślana i nie kierująca się naszymi uprzedzeniami (z ang. biasem - błędami poznawczymi). Myśl biorąca pod pod uwagę przeróżne wyuczone heurystyki "skróty myślowe", które są głównym źródłem naszego nieobiektywnego, mocno schematycznego myślenia.
 
@@ -40,7 +40,9 @@ Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiej
 
 **OBIEKTYWNA MYŚL CZYLI RACJONALNE DZIAŁANIE**
 
-![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. Z definicji racjonalizm to działanie pod wpływem obiektywnego myślenia. Przyczyna i skutek poddany refleksyjnemu myśleniu. Ponownie wydaje się to być oczywiste i zadając przeciętnej osobie pytanie o to czy działa racjonalnie bardzo rzadko uzyskamy negującą odpowiedź. Czemu tak jest skoro w rzeczywistości jesteśmy bardzo często nieracjonalni. Ten interesujący temat zgłębił Dan Arieli w książce "Potem irracjonalności"w której wskazuje że jesteśmy bardziej nieracjonalni niż nam się wydaje, robimy to w systematycznie  i do tego w przewidywalny sposób. Sama systematyczność wskazuje na to, że warto pracować regularnie nad obiektywnym myśleniem, gdyż błędy poznawcze często kierują nas na manowce. Przewidywalność jest równie niebezpieczna ponieważ wykorzystywana jest prze ekonomię behawioralna w celu kreowania naszych potrzeb - kierując nas na prostą drogę konsumpcjonizmu.
+![](/images/vitaly-gariev-lbOaKbGNcrk-unsplash.jpg) Vitaly Gariev na Unsplash
+
+O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. Z definicji racjonalizm to działanie pod wpływem obiektywnego myślenia. Przyczyna i skutek poddany refleksyjnemu myśleniu. Ponownie wydaje się to być oczywiste i zadając przeciętnej osobie pytanie o to czy działa racjonalnie bardzo rzadko uzyskamy negującą odpowiedź. Czemu tak jest skoro w rzeczywistości jesteśmy bardzo często nieracjonalni. Ten interesujący temat zgłębił Dan Arieli w książce "Potęga irracjonalności"w której wskazuje że jesteśmy bardziej nieracjonalni niż nam się wydaje, robimy to w systematycznie  i do tego w przewidywalny sposób. Sama systematyczność wskazuje na to, że warto pracować regularnie nad obiektywnym myśleniem, gdyż błędy poznawcze często kierują nas na manowce. Przewidywalność jest równie niebezpieczna ponieważ wykorzystywana jest prze ekonomię behawioralna w celu kreowania naszych potrzeb - kierując nas na prostą drogę konsumpcjonizmu.
 
 **OBIEKTYWAN MYŚL TO DROGA DO PRAWDY**
 
