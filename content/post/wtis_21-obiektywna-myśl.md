@@ -42,14 +42,18 @@ Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiej
 
 ![](/images/markus-spiske-iar-afB0QQw-unsplash.jpg)O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. Z definicji racjonalizm to działanie pod wpływem obiektywnego myślenia. Przyczyna i skutek poddany refleksyjnemu myśleniu. Ponownie wydaje się to być oczywiste i zadając przeciętnej osobie pytanie o to czy działa racjonalnie bardzo rzadko uzyskamy negującą odpowiedź. Czemu tak jest skoro w rzeczywistości jesteśmy bardzo często nieracjonalni. Ten interesujący temat zgłębił Dan Arieli w książce "Potem irracjonalności"w której wskazuje że jesteśmy bardziej nieracjonalni niż nam się wydaje, robimy to w systematycznie  i do tego w przewidywalny sposób. Sama systematyczność wskazuje na to, że warto pracować regularnie nad obiektywnym myśleniem, gdyż błędy poznawcze często kierują nas na manowce. Przewidywalność jest równie niebezpieczna ponieważ wykorzystywana jest prze ekonomię behawioralna w celu kreowania naszych potrzeb - kierując nas na prostą drogę konsumpcjonizmu.
 
-OBIEKTYWAN MYŚL TO DROGA DO PRAWDY
+**OBIEKTYWAN MYŚL TO DROGA DO PRAWDY**
 
-Ignorowanie powyższych zjawisko, oszukiwanie się, że nas to nie dotyczy to prosta droga to kłamstwa zamiast prawdy. Warto zaakceptować, że nie jesteśmy doskonali, że mamy prawo do pomyłek i nie ma w tym nic złego. Na koniec przytoczę słowa Epikteta które świetnie obrazują istotę drogi do prawdy 
+Ignorowanie powyższych zjawisko, oszukiwanie się, że nas to nie dotyczy to prosta droga to kłamstwa zamiast prawdy. Warto zaakceptować, że nie jesteśmy doskonali, że mamy prawo do pomyłek i nie ma w tym nic złego. Na koniec przytoczę słowa Epikteta które świetnie obrazują istotę drogi do prawdy i zgodę dla siebie do popełniania pomyłek
+
+"Jeśli ktoś potrafi mi udowodnić i wykazać, że błędnie myślę lub czyniyęchętnie się zmienię, ponieważ szukam prawdy, a ta nigdy nikomu nie zaszkodziła. Szkodzi sobie ten kto trwa w kłamstwie i ignorancji."
+
+Jak zawsze na koniec życzenia.
 
 **.**
 
-**W okresie świąt Wielkanocnych życzę Ci abyś w sposób świadomy przeżył ten czas. Jeśli mają one dla ciebie charakter religijny włóż wysiłek i pogłęb zrozumienie jaka jest ich istota**. **Jeśli mają dla Ciebie charakter spotkania rodzinnego nie sprowadź ich do biesiadowania przy stole ale świadomie rozbuduj rodzinne relacje.**
+**W okresie długiego weekendu majowego życzę Ci abyś w sposób refleksyjny podejmował swoje decyzje na bazie obiektywnej myśli, która dzięki racjonalnym działaniom poprowadzą Cię do prawdy.** 
 
-**ŚWIADOMYCH ŚWIĄT !**
+**UDANEJ MAJÓWKI !**
 
 **ARCOS**
