@@ -7,6 +7,8 @@ featured_image: /images/dziwna.jpg
 
 ![](/images/IMG-9934.JPG)
 
+.
+
 Kiedy Juliusz z odwagą Rubikon przekroczył 
 
 A w wodach rzeki szaty swe piękne zamoczył
@@ -37,13 +39,15 @@ Buty stare, dość zdarte nigdy nie zawodzą
 
 .
 
-Bardzo dziwne, jak Dziwna dziś do morza wpada.
+Bardzo dziwne, jak Dziwna dziś do morza wpada
 
 Koryto stare znika, jak natury wada  
 
 Człowiek walczy z naturą a ona z człowiekiem
 
 Morze bije o plaże i tak wiek za wiekiem 
+
+.
 
 Dziwne czas przekroczyć most tu zwodzony czeka
 
@@ -71,7 +75,9 @@ Smaga z lewa i z prawa aż miniemy Dziwne
 
 Droga znana a pomost majaczy w oddali
 
-Rubikon Dziwny dwa razy żeśmy przetrwali
+Rubikon Dziwny zatem został pokonany
+
+.
 
 ![](/images/IMG-9920.JPG)
 
