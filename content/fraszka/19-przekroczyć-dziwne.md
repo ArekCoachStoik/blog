@@ -79,6 +79,6 @@ Rubikon Dziwny dwa razy żeśmy przetrwali
 
 **MAPA PODRÓŻY**
 
-**.**
+![](/images/Image%2017-05-2026%20at%2014.26.jpg)
 
-![](/images/sycylia_trasa.jpeg)
+**.**
