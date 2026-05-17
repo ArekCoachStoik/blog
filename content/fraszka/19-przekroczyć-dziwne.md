@@ -2,10 +2,10 @@
 title: '#19 PRZEKROCZYĆ DZIWNE'
 date: 2026-05-16T14:06:00
 description: Wolin 16.05
-featured_image: /images/dziwna.jpg
+featured_image: /images/IMG-9934.JPG
 ---
 
-![](/images/IMG-9934.JPG)
+![](/images/dziwna.jpg)
 
 .
 
