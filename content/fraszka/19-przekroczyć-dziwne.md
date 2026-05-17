@@ -9,7 +9,7 @@ featured_image: /images/dziwna.jpg
 
 Kiedy Juliusz z odwagą Rubikon przekroczył 
 
-A w wodach rzeki swe piękne  szaty zamoczył
+A w wodach rzeki szaty swe piękne zamoczył
 
 Odwrotu nie miał i drogę otworzył na Rzym
 
@@ -19,11 +19,11 @@ Tak to się rozpoczął na lata Cezara prym
 
 Ponoć wszystkie drogi nas do Rzymu prowadzą
 
-Galii, Prus,Pomorza szlaki chętnych gromadzą.
+Galii, Prus, Pomorza szlaki chętnych gromadzą
 
 Warto przed podróżą swój Rubikon przekroczyć
 
-Z wyspy Wolin przez Dziwnę - most- nie da się zmoczyć
+Z wyspy Wolin przez Dziwnę - nie dam się zaskoczyć
 
 .
 
