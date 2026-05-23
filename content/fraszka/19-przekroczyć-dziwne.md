@@ -11,11 +11,11 @@ featured_image: /images/IMG-9934.JPG
 
 Kiedy Juliusz z odwagą Rubikon przekroczył 
 
-A w wodach rzeki szaty swe piękne zamoczył
+A w wodach tej rzeki szaty swoje zamoczył
 
 Odwrotu nie miał i drogę otworzył na Rzym
 
-Tak to się rozpoczął na lata Cezara prym
+Tak się to rozpoczął na lata Cezara prym
 
 .
 
@@ -25,7 +25,7 @@ Galii, Prus, Pomorza szlaki chętnych gromadzą
 
 Warto przed podróżą swój Rubikon przekroczyć
 
-Z wyspy Wolin przez Dziwnę - nie dam się zaskoczyć
+Z wyspy Wolin przez Dziwnę - nie dać się zaskoczyć
 
 .
 
@@ -35,7 +35,7 @@ Trasa plażą prowadzi, wiatr wspiera wycieczkę
 
 Krok za krokiem a kijki z pomocą przychodzą
 
-Buty stare, dość zdarte nigdy nie zawodzą
+Buty stare, dość zdarte - nigdy nie zawodzą
 
 .
 
@@ -49,11 +49,11 @@ Morze bije o plaże i tak wiek za wiekiem 
 
 .
 
-Dziwne czas przekroczyć most tu zwodzony czeka
+Dziwne czas przekroczyć - most tu zwodzony czeka
 
-Jest on dziś potrzebny, żaglówki tworzy rzeka
+Jest on dziś potrzebny, kolejki tworzy rzeka
 
-Z Dziwnowa prosta droga plażą do Dziwnówka
+Z Dziwnowa droga prosta -plażą do Dziwnówka
 
 Wiatr marsz wspomaga wnet rozwiązana sznurówka
 
@@ -61,7 +61,7 @@ Wiatr marsz wspomaga wnet rozwiązana sznurówka
 
 Dzięki temu jest chwila odpocząć na piasku
 
-I posłuchać ptaków śpiewu w sosnowym lasku
+I posłuchać śpiewu ptaków w sosnowym lasku
 
 Szkwał z oddali słychać, to połowa podróży
 
@@ -75,7 +75,7 @@ Smaga z lewa i z prawa aż miniemy Dziwne
 
 Droga znana a pomost majaczy w oddali
 
-Rubikon Dziwny zatem został pokonany
+Rubikon Dziwny został zatem pokonany
 
 .
 
