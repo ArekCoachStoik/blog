@@ -75,7 +75,7 @@ Smaga z lewa i z prawa aż miniemy Dziwne
 
 Droga znana a pomost majaczy w oddali
 
-Rubikon Dziwny został zatem pokonany
+Rubikon Dziwny został zatem, pokonany.
 
 .
 
