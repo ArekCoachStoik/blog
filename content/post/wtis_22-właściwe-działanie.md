@@ -20,7 +20,11 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 Aby zobrazować właściwe dziłanie przedstawię poniżej pewną anegdotę.
 
-Wyobraź sobie że jesteś w sklepie na zakupach. Jak zawsze trochę się spieszysz dochodzisz do kasy i widzisz długą kolejkę. Zaczynasz się niecierpliwić ale wyjścia nie  ma. Czekasz w kolejce przed i za tobą zrobił się już całkiem niezły korek. Narasta  zniecierpliwienie i frustracja. Co chwila ktoś kogoś delikatnie popycha z nadzieją że kolejka przyspieszy. Nareszcie Twoja kolej. Wykładasz produkty na taśmę, robi się niezła piramida. Kasjer po którym widać już zmęczeni prosi wszystkich o układanie towaru i rozdzielania tak aby przyspieszyć proces skanowania. Nikt się za bardzo tym nie przejmuje. Nadchodzi Twoja kolej zakupy jeden po drugim wpadają do Twoich toreb. 
+Wyobraź sobie że jesteś w sklepie na zakupach. Jak zawsze trochę się spieszysz dochodzisz do kasy i widzisz długą kolejkę. Zaczynasz się niecierpliwić ale wyjścia nie  ma. Czekasz w kolejce przed i za tobą zrobił się już całkiem niezły korek. Narasta  zniecierpliwienie i frustracja. Co chwila ktoś kogoś delikatnie popycha z nadzieją że kolejka przyspieszy. Nareszcie Twoja kolej. Wykładasz produkty na taśmę, robi się niezła piramida. Kasjer po którym widać już zmęczeni prosi wszystkich o układanie towaru i rozdzielania tak aby przyspieszyć proces skanowania. Nikt się za bardzo tym nie przejmuje. Nadchodzi Twoja kolej zakupy jeden po drugim wpadają do Twoich toreb. Nadchodzi czas płacenia. Wyciągasz banknot 200 zł. Kasjer sprawnie wydaje resztę. Patrzysz na przekazywane Ci pieniądze i pojawia się myśle, że masz wydane za dużo ......... ? 
+
+W tej chwili kolejny klient wypych Cię już po za strefę kas. Odchodzisz ale myśl, że kasjer się pomylił nie daje Ci spokoju. Zatrzymujesz się na parkingu, wyciągasz paragon i resztę i faktycznie masz o 100 zł za dużo. Patrzysz przez oszkloną ścianę na kasę i kłębiący się tam tłum. W pierwszej chwili uważasz że dobrze tak tym dyskontom, nie dość że zarabiają na nas krocie to jeszcze nie potrafią dobrze zorganizować strefy kas. Po chwili przychodzi jednak myśl, że przecież to ten zmęczony kasjer przy rozliczaniu dnia będzie miał problem. Nie wykluczone że będzie musiał pokryć te 100 zł ze swoich pieniędzy. Ponowny rzut oka na sklep. Ilość klientów przy kasie jeszcze rośnie, patrzysz na zegarek - jesteś już spóźniony. Jednak wracasz. Podchodzisz do kasy. Czekasz cierpliwie aż skończy się obsługa klienta, którego zakupy nie zmieściły się do dwóch wózków sklepowych. To się nazywa konsumpcjonizm przez duże K. Nareszcie ułamek przerwy. Łapiesz go jak zadanie matematyczne i wciskasz się pomiędzy kolejnego klienta ku zdziwieniu kasjera i oburzeniu tamtego. Mówisz. Przepraszam ale wydał mi Pan za dużo  o 100 zł proszę o to różnica. Na twarzy kasjera pojawia się wdzięczność na twarzy klienta uśmieszek zdziwienia. 
+
+POSTĄPIŁEŚ WŁAŚCIWIE - ale czy napewno ?
 
 ![](/images/jose-jesus-valencia-alvarez-fKzG6tSpvQs-unsplash.jpg)
 
@@ -43,7 +47,6 @@ Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiej
 ![](/images/vitaly-gariev-lbOaKbGNcrk-unsplash.jpg) Vitaly Gariev na Unsplash
 
 **OBIEKTYWAN MYŚL TO DROGA DO PRAWDY**
-
 
 Ignorowanie powyższych zjawisk, oszukiwanie się, że nas to nie dotyczy to prosta droga do kłamstwa zamiast prawdy. Warto zaakceptować, że nie jesteśmy doskonali, że mamy prawo do pomyłek i nie ma w tym nic złego. 
 
