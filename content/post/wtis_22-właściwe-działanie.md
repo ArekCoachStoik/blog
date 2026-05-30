@@ -12,23 +12,17 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-„Jeżeli myślisz, że możesz coś zrobić, lub myślisz, że nie możesz, masz rację” – Henry Ford
+„Jakie jest twe powołanie? Być dobrym człowiekiem” – Henry Ford
 
 .
 
-**SIŁA MYŚLI**
+**WŁAŚCIWE DZIAŁANIE CZYLI JAKIE**
 
 ![](/images/jose-jesus-valencia-alvarez-fKzG6tSpvQs-unsplash.jpg)
 
 Jose Jesus Valencia Alvarez z Unsplash
 
-W kontekście siły na pierwszą myśl wysuwa się najczęściej siła fizyczna. Wkładamy wiele pracy w to aby nasze ciało miało odpowiednią energię do działania. Zdrowe odżywianie, wysiłek fizyczny czy odpoczynek to sprawdzone sposoby na to aby nasz organizm miał odpowiednio dużo siły fizycznej. W mojej "filozofii" WODA TLEN iSEN poświęcam sporo uwagi temu zagadnieniu - możesz o tym poczytać choćby [TUTAJ](https://wodatlenisen.site/post/wtis04/)
-
-Pomimo, że praca nad naszą siłą fizyczną wydaje się być zjawiskiem naturalnym, cyklicznym, który dzieje się trochę samoistnie jest inna ważna siła, która jest swoistą iskrą w silniku naszego życia. Jest to  siła umysłu, która powinna motywować nas do bardziej aktywnego działania zamiast kierować do wygodnego fotela codzienności. 
-
-Siła naszych myśli jest swoistym trenenerem, który w każdym obszarze naszego życia fizycznego, intelektualnego lub duchowego daje energię do budowania, działania i regeneracji. Dodatków warto przypomnieć, że zgodnie z filozofią stoicką jest to jedyna rzecz nad którą mamy 100% kontrolę wszystko inne jest mniej lub bardziej zależne od zjawisk lub osób trzecich.
-
-**MYŚL OBIEKTYWNA CZYLI JAKA**
+**AUTOMATYZM W DZIAŁANIU WŁAŚCIWYM**
 
 ![](/images/devin-avery-VBBs_SWsdwU-unsplash.jpg)
 
@@ -40,7 +34,7 @@ Wydaje się że do obiektywnego myślenia warto pamiętać  o wyżej wymienionyc
 
 Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiejętności aby pomiędzy bodźcem a naszą reakcją wykreować przestrzeń na refleksje czyli coaching od naszego wewnętrznego trenera.  Jak na rasowego coacha przystało chodzi o zadanie sobie pytań aby wydobyć refleksyjną myśl (jak jakby ją urodzić - zgodnie z [metodą Sokratesa](https://wodatlenisen.site/post/wtis13/)). Tak "urodzona"myśl ma pełne znamiona myśli obiektywnej, w pełni od nas zależnej i dającej nadzieje na skuteczne a przede wszystkim "dobre" działanie.
 
-**OBIEKTYWNA MYŚL CZYLI RACJONALNE DZIAŁANIE**
+**BYCIE DOBRYM**
 
 ![](/images/vitaly-gariev-lbOaKbGNcrk-unsplash.jpg) Vitaly Gariev na Unsplash
 
