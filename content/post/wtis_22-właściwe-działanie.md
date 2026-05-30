@@ -1,6 +1,6 @@
 ---
 title: WTiS_22 - WŁAŚCIWE DZIALANIE
-date: 2026-04-30T06:44:00
+date: 2026-04-29T06:44:00
 description: WODA TLEN I SEN
 featured_image: /images/tachina-lee--wjk_SSqCE4-unsplash (1).jpg
 draft: false
