@@ -12,7 +12,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-„Jakie jest twe powołanie? Być dobrym człowiekiem” – Henry Ford
+„Jakie jest twe powołanie? Być dobrym człowiekiem” – Epitet
 
 .
 
@@ -26,7 +26,7 @@ _W tej chwili kolejny klient wypych Cię już po za strefę kas. Odchodzisz ale 
 
 POSTĄPIŁEŚ WŁAŚCIWIE - ale czy napewno ?
 
-
+Zdjecie
 
 Jose Jesus Valencia Alvarez z Unsplash
 
@@ -40,13 +40,11 @@ Automatyzm w działaniu bez chwili refleksji jest bardzo trudny. Podobnie jak w 
 
 .
 
-**WŁAŚCIWE DZIAŁNIE CZYLI BYCIE DOBRYM**
-
 ![](/images/vitaly-gariev-lbOaKbGNcrk-unsplash.jpg) Vitaly Gariev na Unsplash
 
-**OBIEKTYWAN MYŚL TO DROGA DO PRAWDY**
+**WŁAŚCIWE DZIAŁNIE CZYLI BYCIE DOBRYM**
 
-Ignorowanie powyższych zjawisk, oszukiwanie się, że nas to nie dotyczy to prosta droga do kłamstwa zamiast prawdy. Warto zaakceptować, że nie jesteśmy doskonali, że mamy prawo do pomyłek i nie ma w tym nic złego. 
+Na ten temat znajdzie bardzo żo informacji na moim blog w części dotyczącej energii duchowej. W dużym uproszczeniu według stoików bycie dobry to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza w powyższy przykładzie. Potrzeba mądrości aby uświadomić sobie jakie są konsekwencje naszego działania, sprawiedliwości w stosunku do drugiego człowieka, odwagi by skonfrontować się z innymi naszą mądrością i umiar w szukaniu skrótów na bogacenie się. Kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, działa również w każdej innej. 
 
 Na koniec przytoczę słowa Epikteta które świetnie obrazują istotę drogi do prawdy i zgodę dla siebie do popełniania pomyłek
 
