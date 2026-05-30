@@ -18,6 +18,10 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 **WŁAŚCIWE DZIAŁANIE CZYLI JAKIE**
 
+Aby zobrazować właściwe dziłanie przedstawię poniżej pewną anegdotę.
+
+Wyobraź sobie że jesteś w sklepie na zakupach. Jak zawsze trochę się spieszysz dochodzisz do kasy i widzisz długą kolejkę. Zaczynasz się niecierpliwić ale wyjścia nie  ma. Czekasz w kolejce przed i za tobą zrobił się już całkiem niezły korek. Narasta  zniecierpliwienie i frustracja. Co chwila ktoś kogoś delikatnie popycha z nadzieją że kolejka przyspieszy. Nareszcie Twoja kolej. Wykładasz produkty na taśmę, robi się niezła piramida. Kasjer po którym widać już zmęczeni prosi wszystkich o układanie towaru i rozdzielania tak aby przyspieszyć proces skanowania. Nikt się za bardzo tym nie przejmuje. Nadchodzi Twoja kolej zakupy jeden po drugim wpadają do Twoich toreb. 
+
 ![](/images/jose-jesus-valencia-alvarez-fKzG6tSpvQs-unsplash.jpg)
 
 Jose Jesus Valencia Alvarez z Unsplash
@@ -38,9 +42,8 @@ Podstawowa trudność w obiektywnym myśleniu polega zatem na wypracowaniu umiej
 
 ![](/images/vitaly-gariev-lbOaKbGNcrk-unsplash.jpg) Vitaly Gariev na Unsplash
 
-O ile obiektywizm kojarzy się z myśleniem to do dobrego działania niezbędny jest racjonalizm. Z definicji racjonalizm to działanie pod wpływem obiektywnego myślenia. Przyczyna i skutek poddany refleksyjnemu myśleniu. Ponownie wydaje się to być oczywiste i zadając przeciętnej osobie pytanie o to czy działa racjonalnie bardzo rzadko uzyskamy negującą odpowiedź. Czemu tak jest skoro w rzeczywistości jesteśmy bardzo często nieracjonalni. Ten interesujący temat zgłębił Dan Arieli w książce "Potęga irracjonalności"w której wskazuje że jesteśmy bardziej nieracjonalni niż nam się wydaje, robimy to systematycznie  i do tego w przewidywalny sposób. Sama systematyczność wskazuje na to, że warto pracować regularnie nad obiektywnym myśleniem, gdyż błędy poznawcze często kierują nas na manowce. Przewidywalność jest równie niebezpieczna ponieważ wykorzystywana jest prze ekonomię behawioralna w celu kreowania naszych potrzeb - kierując nas na prostą drogę konsumpcjonizmu.
-
 **OBIEKTYWAN MYŚL TO DROGA DO PRAWDY**
+
 
 Ignorowanie powyższych zjawisk, oszukiwanie się, że nas to nie dotyczy to prosta droga do kłamstwa zamiast prawdy. Warto zaakceptować, że nie jesteśmy doskonali, że mamy prawo do pomyłek i nie ma w tym nic złego. 
 
