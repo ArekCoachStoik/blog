@@ -40,11 +40,11 @@ Automatyzm w działaniu bez chwili refleksji jest bardzo trudny. Podobnie jak w 
 
 .
 
-![](/images/vitaly-gariev-lbOaKbGNcrk-unsplash.jpg) Vitaly Gariev na Unsplash
+![](/images/Image%2013-12-2025%20at%2007.54.jpg) Vitaly Gariev na Unsplash
 
 **WŁAŚCIWE DZIAŁNIE CZYLI BYCIE DOBRYM**
 
-Na ten temat znajdzie bardzo dużo informacji na moim blog w części dotyczącej energii duchowej ([WTiS_13](https://wodatlenisen.site/post/wtis13/)). W dużym uproszczeniu według stoików bycie dobry to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza w powyższy przykładzie. Potrzeba **mądrości** aby uświadomić sobie jakie są konsekwencje naszego działania (manko dla kasjera), **sprawiedliwości** w stosunku do drugiego człowieka (niesprawiedliwa strata), **odwagi** by skonfrontować się z innymi(pomyślą że jestem naiwny miałem 100zł w kieszeni)  i **umiaru** (wykorzystanie okazji).Jak widać kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, działa również w każdej innej. 
+Na ten temat znajdzie bardzo dużo informacji na moim blog w części dotyczącej energii duchowej ([WTiS_13](https://wodatlenisen.site/post/wtis13/)). W dużym uproszczeniu według stoików bycie dobry to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza w powyższy przykładzie. Potrzeba **mądrości** (wiadom) aby uświadomić sobie jakie są konsekwencje naszego działania (manko dla kasjera), **sprawiedliwości** (justice) w stosunku do drugiego człowieka (niesprawiedliwa strata), **odwag**i (couarage) by skonfrontować się z innymi(pomyślą że jestem naiwny miałem 100zł w kieszeni)  i **umiaru** (temeperance)  w maksymalnym wykorzystywaniu okazji.Jak widać kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, działa również w każdej innej. 
 
 Jak zawsze na koniec życzenia.
 
