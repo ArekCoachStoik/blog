@@ -2,7 +2,7 @@
 title: WTiS_22 - WŁAŚCIWE DZIAŁANIE
 date: 2026-05-29T06:44:00
 description: WODA TLEN I SEN
-featured_image: /images/tachina-lee--wjk_SSqCE4-unsplash (1).jpg
+featured_image: /images/josh-berendes-DUqBabkb_WE-unsplash.jpg
 draft: false
 ---
 
@@ -26,9 +26,9 @@ _W tej chwili kolejny klient wypych Cię już po za strefę kas. Odchodzisz ale 
 
 POSTĄPIŁEŚ WŁAŚCIWIE - ale czy napewno ?
 
-Zdjecie
+![](/images/usman-yousaf--AQ-P_R25aI-unsplash.jpg)
 
-Jose Jesus Valencia Alvarez z Unsplash
+Usman Yousaf z Unsplash
 
 **AUTOMATYZM W DZIAŁANIU WŁAŚCIWYM**
 
