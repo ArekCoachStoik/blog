@@ -44,7 +44,7 @@ Automatyzm w działaniu bez chwili refleksji jest bardzo trudny. Podobnie jak w 
 
 **WŁAŚCIWE DZIAŁNIE CZYLI BYCIE DOBRYM**
 
-Na ten temat znajdzie bardzo dużo informacji na moim blog w części dotyczącej energii duchowej ([WTiS_13](https://wodatlenisen.site/post/wtis13/)). W dużym uproszczeniu według stoików bycie dobry to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza w powyższy przykładzie. Potrzeba **mądrości** (wiadom) aby uświadomić sobie jakie są konsekwencje naszego działania (manko dla kasjera), **sprawiedliwości** (justice) w stosunku do drugiego człowieka (niesprawiedliwa strata), **odwag**i (couarage) by skonfrontować się z innymi(pomyślą że jestem naiwny miałem 100zł w kieszeni)  i **umiaru** (temeperance)  w maksymalnym wykorzystywaniu okazji.Jak widać kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, działa również w każdej innej. 
+Na ten temat znajdzie bardzo dużo informacji na moim blog w części dotyczącej energii duchowej ([WTiS_13](https://wodatlenisen.site/post/wtis13/)). W dużym uproszczeniu według stoików bycie dobry to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza widać również w powyższym przykładzie. Potrzebujesz **mądrości** (wisdom) aby uświadomić sobie jakie są konsekwencje podjętego działania (manko dla kasjera), **sprawiedliwości** (justice) w stosunku do drugiego człowieka (niesprawiedliwa strata), **odwagi** (couarage) by skonfrontować się z innymi gdy pomyślą że jestem naiwny oddając 100zł  i **umiaru** (temeperance)  w maksymalnym wykorzystywaniu okazji za wszelką cenę. Jak widać kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, jeśli go zastosujesz zadziała również w każdej innej. 
 
 Jak zawsze na koniec życzenia.
 
@@ -52,6 +52,6 @@ Jak zawsze na koniec życzenia.
 
 **Życzę Ci abyś wszystkie swoje działania mógł uznać za właściwe, a w przypadku wątpliwości poddaj je refleksji i skoryguj na przyszłość,** 
 
-**NAJLEPSZEGO !**
+**To właściwie już koniec, WŁAŚCIWEGO DZIAŁANIA !**
 
 **ARCOS**
