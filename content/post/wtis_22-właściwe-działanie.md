@@ -1,5 +1,5 @@
 ---
-title: WTiS_22 - WŁAŚCIWE DZIALANIE
+title: WTiS_22 - WŁAŚCIWE DZIAŁANIE
 date: 2026-05-29T06:44:00
 description: WODA TLEN I SEN
 featured_image: /images/tachina-lee--wjk_SSqCE4-unsplash (1).jpg
@@ -44,22 +44,14 @@ Automatyzm w działaniu bez chwili refleksji jest bardzo trudny. Podobnie jak w 
 
 **WŁAŚCIWE DZIAŁNIE CZYLI BYCIE DOBRYM**
 
-Na ten temat znajdzie bardzo żo informacji na moim blog w części dotyczącej energii duchowej. W dużym uproszczeniu według stoików bycie dobry to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza w powyższy przykładzie. Potrzeba mądrości aby uświadomić sobie jakie są konsekwencje naszego działania, sprawiedliwości w stosunku do drugiego człowieka, odwagi by skonfrontować się z innymi naszą mądrością i umiar w szukaniu skrótów na bogacenie się. Kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, działa również w każdej innej. 
-
-Na koniec przytoczę słowa Epikteta które świetnie obrazują istotę drogi do prawdy i zgodę dla siebie do popełniania pomyłek
-
-.
-
-"Jeśli ktoś potrafi mi udowodnić i wykazać, że błędnie myślę lub czynię chętnie się zmienię, ponieważ szukam prawdy, a ta nigdy nikomu nie zaszkodziła. Szkodzi sobie ten kto trwa w kłamstwie i ignorancji."
-
-.
+Na ten temat znajdzie bardzo dużo informacji na moim blog w części dotyczącej energii duchowej ([WTiS_13](https://wodatlenisen.site/post/wtis13/)). W dużym uproszczeniu według stoików bycie dobry to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza w powyższy przykładzie. Potrzeba **mądrości** aby uświadomić sobie jakie są konsekwencje naszego działania (manko dla kasjera), **sprawiedliwości** w stosunku do drugiego człowieka (niesprawiedliwa strata), **odwagi** by skonfrontować się z innymi(pomyślą że jestem naiwny miałem 100zł w kieszeni)  i **umiaru** (wykorzystanie okazji).Jak widać kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, działa również w każdej innej. 
 
 Jak zawsze na koniec życzenia.
 
 **.**
 
-**W okresie długiego weekendu majowego życzę Ci abyś w sposób refleksyjny podejmował swoje decyzje na bazie obiektywnej myśli, która dzięki racjonalnym działaniom poprowadzą Cię do prawdy.** 
+**Życzę Ci abyś wszystkie swoje działania mógł uznać za właściwe, a w przypadku wątpliwości poddaj je refleksji i skoryguj na przyszłość,** 
 
-**UDANEJ MAJÓWKI !**
+**NAJLEPSZEGO !**
 
 **ARCOS**
