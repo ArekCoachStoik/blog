@@ -4,6 +4,7 @@ date: 2074-08-29T13:58:00
 description: Prywatne
 featured_image: /images/IMG_2375.jpeg
 ---
+
 **2024**
 
 EDEK 14/10/2024
@@ -296,7 +297,7 @@ LEGENDA:
 
 **ALGO(rytm)**
 
-**&#160;**1 Kiedy patrzę wstecz za siebie
+\*\* \*\*1 Kiedy patrzę wstecz za siebie
 
  2 Taka myśl mi się kolebie
 
