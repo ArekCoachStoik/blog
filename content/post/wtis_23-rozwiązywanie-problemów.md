@@ -1,6 +1,6 @@
 ---
 title: WTiS_23 - ROZWIĄZYWANIE PROBLEMÓW
-date: 2026-05-29T06:44:00
+date: 2026-08-15T07:41
 description: WODA TLEN I SEN
 featured_image: /images/vitaly-gariev-Jp0OJlXqVfE-unsplash.jpg
 draft: false
@@ -14,11 +14,11 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 _„Gdy odkryjesz, że bardzo trudno jest ci coś osiągnąć, nie wyobrażaj sobie, że to niemożliwe, ponieważ wszystko wykonalne i właściwe dla drugiego człowieka może zostać równie osiągalne przez ciebie”_ – Marek Aureliusz.
 
-**WŁAŚCIWE DZIAŁANIE CZYLI JAKIE**
+**NIEROZWIĄZYWALNY PROBLEM**
 
-Aby zobrazować właściwe dziłanie przedstawię poniżej pewną anegdotę.
+Bardzo często kiedy dochodzimy do ściany i wydaje nam się że nie mamy sposobu na rozwiązanie problemu pojawia się frustracja oraz zdenerwowanie. Nasza wyobraźnia kreuje rzeczywistość w której nasz problem pozostaje nierozwiązany. W rzeczywistości jednak to tylko nasze wyobrażenie, nad którym możemy skutecznie popracować. Nawiązując do cytatu Marka Aureliusza - jeśli jest ktoś kto poradził sobie w przeszłości z podobną sprawę to oznacza, że my również możemy znaleźć rozwiązanie czerpiąc inspiracje od innych. Żródło tej inspiracji jest praktycznie niewyczerpalne, znajduje się w przekazach międzypokoleniowych u najbliższych bądź w nieprzeczytalnej ilości biografii, które znajdują się dowolne bibliotece. Staraj się być tym typem człowieka, który patrząc na to jak inni sobie radzą w życiu zadaje sobie pytanie "skoro inni mogą to czemu nie ja" zamiast "dlaczego komuś się wiedzie dlaczego nie mi"
 
-_Wyobraź sobie że jesteś w sklepie na zakupach. Jak zawsze trochę się spieszysz dochodzisz do kasy i widzisz długą kolejkę. Zaczynasz się niecierpliwić ale wyjścia nie  ma. Czekasz w kolejce przed i za tobą zrobił się już całkiem niezły korek. Narasta  zniecierpliwienie i frustracja. Co chwila ktoś kogoś delikatnie popycha z nadzieją że kolejka przyspieszy. Nareszcie Twoja kolej. Wykładasz produkty na taśmę, robi się niezła piramida. Kasjer po którym widać już zmęczeni prosi wszystkich o układanie towaru i rozdzielania tak aby przyspieszyć proces skanowania. Nikt się za bardzo tym nie przejmuje. Nadchodzi Twoja kolej zakupy jeden po drugim wpadają do Twoich toreb. Nadchodzi czas płacenia. Wyciągasz banknot 200 zł. Kasjer sprawnie wydaje resztę. Patrzysz na przekazywane Ci pieniądze i pojawia się myśle, że masz wydane za dużo ......... ?_ 
+_Nikt się za bardzo tym nie przejmuje. Nadchodzi Twoja kolej zakupy jeden po drugim wpadają do Twoich toreb. Nadchodzi czas płacenia. Wyciągasz banknot 200 zł. Kasjer sprawnie wydaje resztę. Patrzysz na przekazywane Ci pieniądze i pojawia się myśle, że masz wydane za dużo ......... ?_ 
 
 _W tej chwili kolejny klient wypych Cię już po za strefę kas. Odchodzisz ale myśl, że kasjer się pomylił nie daje Ci spokoju. Zatrzymujesz się na parkingu, wyciągasz paragon i resztę i faktycznie masz o 100 zł za dużo. Patrzysz przez oszkloną ścianę na kasę i kłębiący się tam tłum. W pierwszej chwili uważasz że dobrze tak tym dyskontom, nie dość że zarabiają na nas krocie to jeszcze nie potrafią dobrze zorganizować strefy kas. Po chwili przychodzi jednak myśl, że przecież to ten zmęczony kasjer przy rozliczaniu dnia będzie miał problem. Nie wykluczone że będzie musiał pokryć te 100 zł ze swoich pieniędzy. Ponowny rzut oka na sklep. Ilość klientów przy kasie jeszcze rośnie, patrzysz na zegarek - jesteś już spóźniony. Jednak wracasz. Podchodzisz do kasy. Czekasz cierpliwie aż skończy się obsługa klienta, którego zakupy nie zmieściły się do dwóch wózków sklepowych. To się nazywa konsumpcjonizm przez duże K. Nareszcie ułamek przerwy. Łapiesz go jak zadanie matematyczne i wciskasz się pomiędzy kolejnego klienta ku zdziwieniu kasjera i oburzeniu tamtego. Mówisz. Przepraszam ale wydał mi Pan za dużo  o 100 zł proszę o to różnica. Na twarzy kasjera pojawia się wdzięczność na twarzy klienta uśmieszek zdziwienia._ 
 
