@@ -16,44 +16,48 @@ _„Gdy odkryjesz, że bardzo trudno jest ci coś osiągnąć, nie wyobrażaj so
 
 **NIEROZWIĄZYWALNY PROBLEM**
 
-Bardzo często kiedy dochodzimy do ściany i wydaje nam się że nie mamy sposobu na rozwiązanie problemu pojawia się frustracja oraz zdenerwowanie. Nasza wyobraźnia kreuje rzeczywistość w której nasz problem pozostaje nierozwiązany. W rzeczywistości jednak to tylko nasze wyobrażenie, nad którym możemy skutecznie popracować. Nawiązując do cytatu Marka Aureliusza - jeśli jest ktoś kto poradził sobie w przeszłości z podobną sprawę to oznacza, że my również możemy znaleźć rozwiązanie czerpiąc inspiracje od innych. Żródło tej inspiracji jest praktycznie niewyczerpalne, znajduje się w przekazach międzypokoleniowych u najbliższych bądź w nieprzeczytalnej ilości biografii, które znajdują się dowolne bibliotece. Staraj się być tym typem człowieka, który patrząc na to jak inni sobie radzą w życiu zadaje sobie pytanie "skoro inni mogą to czemu nie ja" zamiast "dlaczego komuś się wiedzie dlaczego nie mi"
+Bardzo często kiedy dochodzimy do ściany i wydaje nam się że nie mamy sposobu na rozwiązanie problemu pojawia się frustracja oraz zdenerwowanie. Nasza wyobraźnia kreuje rzeczywistość w której nasz problem pozostaje nierozwiązany. W rzeczywistości jednak to tylko nasze wyobrażenie, nad którym możemy skutecznie popracować. Nawiązując do cytatu Marka Aureliusza - jeśli jest ktoś kto poradził sobie w przeszłości z podobną sprawę to oznacza, że my również możemy znaleźć rozwiązanie czerpiąc inspiracje od innych. Żródło tej inspiracji jest praktycznie niewyczerpalne, znajduje się w przekazach międzypokoleniowych u najbliższych bądź w nieprzeczytalnej ilości biografii, które znajdują się dowolne bibliotece. Staraj się być tym typem człowieka, który patrząc na to jak inni sobie radzą w życiu zadaje sobie pytanie "skoro inni mogą to czemu nie ja" zamiast "dlaczego komuś się wiedzie dlaczego nie mi" Przede wszystkim jednak uwierz w siebie, bo to ty znajdziesz sposób.
+
+![](/images/katrina-wright-yMg_SMqfoRU-unsplash.jpg)
+
+Katrina Wright z Unsplash
 
 **PRZESZKODA JEST DROGĄ**
 
-Zabrzmi to mało optymistycznie ale to właśnie przeszkoda jest naszą drogą. Jedno z praw Murphego mówi - "jeśli coś ma pójść nie po naszej myśli to tak się stanie". Dlatego w myśl jednej z praktyk stoickich "premeditation malorum" ( przewidywanie nieszcześcia) warto mieć opcje rezerwową gotową - swoisty plan B na wypadek gdyby "niesprzyjające" sytuacje się wydarzą. To sprawdzony sposób na to by uniknąć frustracji i zdenerwowania o którym pisałem na wstępie.
+Zabrzmi to mało optymistycznie ale to właśnie przeszkoda jest naszą drogą. Jedno z praw Murphego mówi - "jeśli coś ma pójść nie po naszej myśli to tak się stanie". Dlatego w myśl jednej z praktyk stoickich "premeditatio malorum" ("oswajanie lęku/przewidywanie nieszczęścia") warto  mieć opcje rezerwową gotową - swoisty plan B na wypadek gdyby "niesprzyjające" sytuacje się wydarzą. To sprawdzony sposób na to by uniknąć frustracji i zdenerwowania o którym pisałem na wstępie. Zaakceptowanie tego że problem/przeszkoda stanowią integralną cześć naszego życia, czy tego chcemy czy nie będą częścią naszej drogi życiowej jest kluczem do szczęśliwego życia. 
 
-_Nikt się za bardzo tym nie przejmuje. Nadchodzi Twoja kolej zakupy jeden po drugim wpadają do Twoich toreb. Nadchodzi czas płacenia. Wyciągasz banknot 200 zł. Kasjer sprawnie wydaje resztę. Patrzysz na przekazywane Ci pieniądze i pojawia się myśle, że masz wydane za dużo ......... ?_ 
+Gdy zapytamy przypadkową osobę czego sobie życzy to jeśli nie padnie - co niestety zdarza się najczęściej - materialna zachcianka pojawi się życzenie "świętego spokoju". Materialną zachciankę łatwo zrealizować "święty spokój" już nie. Wynika to z faktu, że najcześciej nasz spokój zakłócany jest zmartwieniami jak poradzić sobie z życiową przeszkodą, które czy tego chcemy czy nie się pojawią. Stąd jedynym rozwiązaniem na aby "święty spokój" trwał jest wypracowanie mechanizmu w którym przeszkody nie są problemem a wyzwaniem.
 
-_W tej chwili kolejny klient wypych Cię już po za strefę kas. Odchodzisz ale myśl, że kasjer się pomylił nie daje Ci spokoju. Zatrzymujesz się na parkingu, wyciągasz paragon i resztę i faktycznie masz o 100 zł za dużo. Patrzysz przez oszkloną ścianę na kasę i kłębiący się tam tłum. W pierwszej chwili uważasz że dobrze tak tym dyskontom, nie dość że zarabiają na nas krocie to jeszcze nie potrafią dobrze zorganizować strefy kas. Po chwili przychodzi jednak myśl, że przecież to ten zmęczony kasjer przy rozliczaniu dnia będzie miał problem. Nie wykluczone że będzie musiał pokryć te 100 zł ze swoich pieniędzy. Ponowny rzut oka na sklep. Ilość klientów przy kasie jeszcze rośnie, patrzysz na zegarek - jesteś już spóźniony. Jednak wracasz. Podchodzisz do kasy. Czekasz cierpliwie aż skończy się obsługa klienta, którego zakupy nie zmieściły się do dwóch wózków sklepowych. To się nazywa konsumpcjonizm przez duże K. Nareszcie ułamek przerwy. Łapiesz go jak zadanie matematyczne i wciskasz się pomiędzy kolejnego klienta ku zdziwieniu kasjera i oburzeniu tamtego. Mówisz. Przepraszam ale wydał mi Pan za dużo  o 100 zł proszę o to różnica. Na twarzy kasjera pojawia się wdzięczność na twarzy klienta uśmieszek zdziwienia._ 
+![](/images/sushanta-rokka-RbQ3e50qcR8-unsplash.jpg)
 
-POSTĄPIŁEŚ WŁAŚCIWIE - ale czy napewno ?
+Sushanta Rokka z Unsplash
 
-![](/images/usman-yousaf--AQ-P_R25aI-unsplash.jpg)
+**PROBLEM CZY WYZWANIE**
 
-Usman Yousaf z Unsplash
+Zdecydowanie "zakłócenie" naszego spokoju może być wyzwaniem a nie problemem. Swoistą próbą na którą jesteśmy wystawieni przez los, Boga czy naturę. Jak każda osoba stojąca na posterunku powinniśmy na taką próbę być przygotowani i czujni. Jeśli zostaniemy zaskoczeni i nie będziemy przygotowani do tego co się wydarzy na naszej drodze recepta na zakłócenie naszego "świętego spokoju" a w konsekwencji naszego dobrostanu jest gotowa. Nie zawsze jednak można być idealnie przygotowanym dlatego kluczowe jest podejście. Zamiast zmagać się z problem stańmy do wyzwania, które tylko czeka na nasze rozwiązanie. Rozwiązanie zawsze się znajdzie. Praktycznie do każdej sytuacji ktoś a często my sami w przeszłości znaleźliśmy rozwiązanie a początkowa skala bądź zakres problemu z perspektywy dzisiejszej był bez znaczenia. Dodatkowo takie spojrzenie wstecz pozwala zrozumieć że każdy problem nas czegoś nauczył. Tym więcej się nauczyliśmy im bardziej podchodziliśmy do sprawy jak do wyzwania z którym musimy sobie poradzić zamiast problemu, który nas przytłoczył.
 
-**AUTOMATYZM W DZIAŁANIU WŁAŚCIWYM**
+![](/images/towfiqu-barbhuiya-Jxi526YIQgA-unsplash.jpg)
 
-Na pierwszy rzut oka historia pokazuje właściwe działanie niestety realnie jest ona efektem refleksji nad działaniem które nie było właściwe. Jeśli zapytalibyśmy stoickiego mędrca jak w tej sytuacji powinno wyglądać właściwe działanie tak dokończył by tą historię - zaczynając od drugiego akapitu.
+Towfiqu barbhuiya z Unsplash
 
-_Natychmiast po tym jak zorientowałem się że coś jest nie tak zwracam się do kasjera. Przepraszam bardzo ale wydaje mi się że wydał mi Pan za dużo. Czy może Pan to sprawdzić. Słyszysz następującą odpowiedź. Faktycznie jestem już zmęczony wydałem omyłkowo Panu 100 zł, bardzo dziękuję. Chciałbym aby każdy postępował tak WŁAŚCIWIE._
+**WYZWANIE ŹRÓDŁEM NAUKI**
 
-Automatyzm w działaniu bez chwili refleksji jest bardzo trudny. Podobnie jak w przypadku silnych emocji wypracowanie odpowiedniej reakcji nie jest proste i często wymaga przestrzeni na refleksję. Ważnym pierwszym krokiem jest to aby refleksja zaczęła przychodzić przed podjęciem działania gdyż wtedy jest już zazwyczaj za późno.
+To jedna z największych zalet problemów na które mam nadziejże od dzisiaj będziesz patrzyć ja na wyzwania. Dzięki odpowiedniemu przeramowaniu i podejściu problem staje się źródłem nauki. Pokłóciłeś się z przyjacielem naucz się jak się pogodzić, popsuł Ci się sprzęt domowy naucz się go naprawiać albo wypracuj rozwiązanie w postaci ubezpieczenia domowego, zmieniła się pogoda i nie możesz skorzystać z plażowania , naucz się dopasowywać aktywności do zmieniającej się pogody i idź na spacer. No właśnie idź na spacer. To sprawdzony stoicki sposób na przeramowanie sytuacji. Nie tylko ich  - poeci , wynalazcy w sytuacji w której szukali natchnienia czy pomysłu na rozwiązanie wyzwania z jakim się zmagali szli na spacer. Tylko bez telefonu, słuchawek czy innych destruktorów uwagi. Prosty zwykły spacer, który porządkuje myśli, pozwala na chwilę refleksji oraz bardzo często przynosi rozwiązanie. Sam z tego korzystam podczas długich spacerów po plaży, biegania czy banalnego wyjścia do sklepu po zakupy. Przeramuj problem na wyzwanie z którgo możesz się czegoś nauczyć. To działa !
 
-.
+![](/images/le-stef-botte-tqsR6mZr7ZQ-unsplash.jpg)
 
-![](/images/Image%2013-12-2025%20at%2007.54.jpg) Vitaly Gariev na Unsplash
+Le Stef Botte z Unsplash
 
-**WŁAŚCIWE DZIAŁNIE CZYLI BYCIE DOBRYM**
+**CO JAK SPACER NIE POMAGA**
 
-Na ten temat znajdzie bardzo dużo informacji na moim blog w części dotyczącej energii duchowej ([WTiS_13](https://wodatlenisen.site/post/wtis13/)). W dużym uproszczeniu według stoików **bycie dobrym** to działanie w oparciu o najważniejsze cnoty życiowe takie jak mądrość, sprawiedliwość, odwaga i umiar. Jak bardzo się to sprawdza widać również w powyższym przykładzie. Potrzebujesz **mądrości** (wisdom) aby uświadomić sobie jakie są konsekwencje podjętego działania (manko dla kasjera), **sprawiedliwości** (justice) w stosunku do drugiego człowieka (niesprawiedliwa strata), **odwagi** (couarage) by skonfrontować się z innymi gdy pomyślą że jesteś naiwny oddając 100zł  i **umiaru** (temeperance)  w maksymalnym wykorzystywaniu okazji za wszelką cenę. Jak widać kręgosłup moralny stoików pięknie działa w tak prostej historii jak przy kasie, jeśli go zastosujesz - zadziała również w każdej innej. 
+Trzy dodatkowe rady, gdy spacer nie pomaga. Po pierwsze zachowaj spokój. Spokój daje szanse na refleksje oraz jest zaraźliwy podobnie jak panika - pytanie co wybierzesz. Po drugie bardzo rzadko jesteś sam. Korzystaj z pomocy ale przede wszystkim perspektywy innych. Nie wstydź się tego, proś o pomoc. Po trzecie nie rezygnuj ze spacerów - czasami potrzeba więcej czasu aby ich znamienne skutki się ujawniły. Rady można by mnożyć ale to ty musisz wypracować w sobie najlepszą metodę aby życie było pełne wyzwań a nie problemów. Wtedy nie będziesz narzekał na zakłócanie "świetego spokoju", a każdy dzień stanie się okazją do nauki. Jak uda się to jeszcze połączyć ze spacerem recepta na zdrowe ciało i duch gotowa.
 
 Jak zawsze na koniec życzenia.
 
 **.**
 
-**Życzę Ci abyś wszystkie swoje działania mógł uznać za właściwe, a w przypadku wątpliwości poddaj je refleksji i skoryguj na przyszłość,** 
+**Życzę Ci aby każde Twoje wyzwanie było źródłem satysfakcji wynikającej z rozwiązania "problemu" oraz źródłem dodatkowej wiedzy.**
 
-**To właściwie już koniec, WŁAŚCIWEGO DZIAŁANIA !**
+**WYZWANIE TO DROGA - POWODZENIA !**
 
 **ARCOS**
