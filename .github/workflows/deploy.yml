@@ -32,6 +32,9 @@ jobs:
           hugo-version: '0.139.3'
           extended: true
 
+      - name: Validate front matter dates
+        run: python3 scripts/validate_frontmatter_dates.py
+
       - name: Set up SSH key
         run: |
           mkdir -p ~/.ssh

@@ -1,6 +1,6 @@
 ---
 title: WTiS_23 - ROZWIĄZYWANIE PROBLEMÓW
-date: 2026-06-30T07:41
+date: 2026-06-30T07:41:00
 description: WODA TLEN I SEN
 featured_image: /images/vitaly-gariev-Jp0OJlXqVfE-unsplash.jpg
 draft: false
