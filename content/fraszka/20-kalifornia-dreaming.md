@@ -1,7 +1,7 @@
 ---
 title: '#20 KALIFORNIA DREAMING'
 date: 2026-05-16T14:06:00
-description: Wolin 16.05
+description: Kalifornia, Nevada, Utah, Arizona -  21.08-05.09
 featured_image: /images/IMG-9934.JPG
 ---
 
@@ -227,7 +227,9 @@ Na szczycie znak Hollywood dojrzeć tutaj da się.
 
 Obserwatorium dziś zamknęło swoje wrota,
 
-W miejsce „La La Landu” wrócimy, nie dziwota.
+W miejsce „La La Landu” wrócimy, nie dziwota
+
+.
 
 Noc ciemna, a droga do hotelu daleka,
 
