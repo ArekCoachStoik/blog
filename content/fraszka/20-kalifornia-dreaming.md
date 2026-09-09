@@ -1,0 +1,326 @@
+---
+title: '#20 KALIFORNIA DREAMING'
+date: 2026-05-16T14:06:00
+description: Wolin 16.05
+featured_image: /images/IMG-9934.JPG
+---
+
+Czas był to niezwykły, godzin trzy i trzydzieści,
+
+Krótka noc, dzień długi, wszystko to pomieści.
+
+Święty Franciszek wita swym mostem stalowym,
+
+Golden Gate’em, nie złotym, lecz całym czerwonym.
+
+Przed nim we mgle zaś migocze wyspa tajemnicza,
+
+Alcatraz dziś już ostro, więźniów nie rozlicza.
+
+Przez chwilę Indianie walczyli tam o swoje,
+
+Gringo „okupantów” ostudzili nastroje.
+
+Czas poznać to miasto, a uliczki jak w górach
+
+Całe wystrojone są w wiktoriańskich murach.
+
+Bez starego tramwaju nie ruszaj pod górę,
+
+Bo nóżki twe dostaną zdrowo w swoją skórę.
+
+San Francisco potrafi łatwo oczarować,
+
+Chce się wnet tu wracać, na nowo go smakować.
+
+Ruszamy raniutko, jet lag lepszy niż budzik,
+
+Przed nami park Yosemite — niemały to trudzik.
+
+El Capitan dumnie strzeże wejścia doliny,
+
+Trek pod wodospad Vernal, zmęczone są miny.
+
+Widok na miejscu natychmiast poprawia humor,
+
+Piękny, tęczowy gigant robi taki rumor,
+
+Że w pamięci zostanie naszej tu na zawsze,
+
+Księżycowy Half Dome koniec nam okrasze.
+
+Park pierwszy za nami, kolejny ustawiamy,
+
+Śmierci to Dolina, w jej kierunku zmierzamy.
+
+Zanim to, z przygodami śpimy u Mamuta,
+
+Bak zalany, wody zapas, ruszamy z buta.
+
+W sensie szybko i autem, bo droga daleka,
+
+Pustynia, skwar, depresja już tu na nas czeka.
+
+Fahrenheit, gdyby sam tych upałów doświadczył,
+
+Patrząc na swoją skalę, czoło by przymarszczył.
+
+Co by martwym nie zostać, jedź Ścieżką Artystów,
+
+Chwila poza autem jest tylko dla sadystów.
+
+Droga kręta kanionami stąd wyprowadzi,
+
+Kierunek na Las Vegas obrać, nie „Nevadzi”.
+
+Tam już Pałac Cezara czeka w swej pełnej krasie,
+
+W magicznym kasynie niejeden zgubić da się.
+
+Villa tam jak w „Kac Vegas”, kusi minibarkiem,
+
+A spacer po Strip Street cały czas z zegarkiem,
+
+By w Bellagio przy fontannie podczas pokazu
+
+Dodać foty na IG, selfie do obrazu.
+
+Noc krótka, Black Jack portfel leciutko osuszył,
+
+By klient o poranku na basen wyruszył.
+
+Cezar, Neptun, Apollo ruchem tu kierują,
+
+Czas mija wnet, a polskie dziewczyny brylują.
+
+Ruszamy dalej przed siebie, przygoda woła,
+
+Ups, outlecik i zniknęły kolejne koła.
+
+Również te od Mazdy, co zaliczyła przegląd,
+
+Czas ruszać już do Zion, co ma cudny wygląd.
+
+Tam czeka wąwóz cały skąpany w czerwieni,
+
+W kolorach słońca wszystko tak tutaj się mieni.
+
+Nagle bród przed nami, a dno pełne kamieni,
+
+Bosa stopa Polaka brnie, nic to nie zmieni.
+
+Nagrodą widoki takie, że dech zapiera,
+
+Nic dziwnego, że tłum tę okolicę wybiera.
+
+Na koniec żegna jelonek u wrót kanionu,
+
+Nazwa nieprzypadkowo pochodzi od Syjonu.
+
+Serpentynami, tunelem, krainą jak z bajki
+
+Ruszamy na wschód zobaczyć, jak palili fajki.
+
+Indianie Navajo na dzikim tym zachodzie,
+
+Monument Valley zjedziemy tu w samochodzie.
+
+Jest! Znalazł się widok, wyrywa nas z pojazdu,
+
+Nikt dziś nie żałuje długich godzin dojazdu.
+
+Miejsce magiczne, ostańce całe w czerwieni,
+
+Filmowi kowboje dlatego oniemieli.
+
+Zachód słońca, nawet lekko pod chmurą skryty,
+
+Nie powstrzyma niekończące się nam zachwyty.
+
+Nasza kabina top over the top się kłania,
+
+Zachodu i wschodu słońca nic tu nie przesłania.
+
+O poranku bieganko drogą asfaltową,
+
+Forresta Gumpa przykłady tu nam pomogą.
+
+Czas ruszać nad Kanion i to nie byle jaki,
+
+Krater jak marsjański, myślę, że chyba taki.
+
+Jest i on, widoki z wiatrem beret zrywają,
+
+Przepaść bez dna, fotki końca nie mają.
+
+Lecz nie mają szansy z tym, co widać na żywo,
+
+Pamięć jak dysk twardy to jedyne tworzywo,
+
+Co jest w stanie nam przenieść tutejsze wspomnienie
+
+I widziane na koniec przydrożne jelenie.
+
+Dwie godzinki przed nami, celujemy w Target,
+
+Skręt w Magdalene: „iPhone, can I get?”
+
+Nie ma, szkoda. Sedona już nas miło wita,
+
+Kolejny dzień za nami, czas leci z kopyta.
+
+A w miasteczku Autek atrakcje są ciekawe,
+
+Są uduchowione — czy zobaczymy tu zjawę?
+
+Już Wzgórze Mocy staje przed nami otworem,
+
+Jest i Kościół w skale, co pokoju motorem.
+
+Czas szybko tutaj leci, Route 66 wzywa,
+
+Stara droga — jednak tak bywa urokliwa.
+
+Że aż się prosi zjeść obiad urodzinowy,
+
+My lovely girls zadbały o sto lat grupowy.
+
+Zachód słońca bliski, droga kręci wzdłuż torów,
+
+Stare stacje, auta w większości bez motorów.
+
+Noc krótka, czas ruszać, Miasto Aniołów wzywa,
+
+Czy Rafał ma rację i ono nie porywa?
+
+Zdania są na ten temat mocno podzielone,
+
+Nawet gdy Hollywood Boulevard dobrze oświetlone.
+
+Coś się nie spina, bo gwiazdy na ziemi leżą,
+
+Elvisa, Michaela, Dolly, funi tu bieżą.
+
+My też przybieżeli, jak ci pasterze,
+
+Z głośnika na rogu dużo słychać o wierze.
+
+Damy szansę jutro Los Angeles na nowo,
+
+By oczarować, pokazać nam to i owo.
+
+I pokazało — Downtown to dwa różne światy:
+
+Ten biedny, bezdomny i ten bardzo bogaty.
+
+Za to na wzgórzach Beverly świat nierealny,
+
+Luksus, a na Rodeo koń to sklep banalny.
+
+Czas goni, a Park Griffitha z zachodem czeka,
+
+Autobus, Uber, bieg — bo słońce nie zaczeka.
+
+Jest, czeka na nas piękne, całe w swojej krasie,
+
+Na szczycie znak Hollywood dojrzeć tutaj da się.
+
+Obserwatorium dziś zamknęło swoje wrota,
+
+W miejsce „La La Landu” wrócimy, nie dziwota.
+
+Noc ciemna, a droga do hotelu daleka,
+
+Nim dotrzemy, wyprzedaż za 5$ nas czeka.
+
+Czapki, bluzy, magnesy, na koniec tablica,
+
+Emocji co niemiara, uśmiechnięte lica.
+
+Pobudka wczesna, bo studio już uniwersalne,
+
+Cokolwiek tam nie zrobimy, będzie zabawne.
+
+Święta Monika już czeka ze swym molem sławnym,
+
+Route 66 kończy się tu znakiem poważnym.
+
+Pod którym tłum turystów uwiecznić chce tę chwilę,
+
+My sprytnie tak zboczku mijamy kolejki milę.
+
+Jeszcze szybkie Faithas, rzut oka na LA,
+
+Długo nie zapomnimy świetnej przygody tej.
+
+Chwila odpoczynku na plaży Santa Monica,
+
+Do Venice jedziemy jak Waymo, jak się wyklika.
+
+Czy spotkamy tu Barbie, a może jej Kena?
+
+Aby żyć w tej bajce, wysoka za to cena.
+
+Ruszamy, najpierw rowerem od metra anielskiego,
+
+Waymo czeka, ale czy uczyli go polskiego?
+
+Zagadał aż miło i ruszył hen przed siebie,
+
+Nie patrząc na boki, do przodu czy za siebie.
+
+My się nie boimy, choć jest ciężko uwierzyć,
+
+Że bez kierowcy z trasą uda mu się zmierzyć.
+
+Tak oto w science fiction gładko wstąpiliśmy,
+
+Świadkami jesteśmy tego, co w filmach widzieliśmy.
+
+Dzień kolejny przed nami i stąd już ruszamy,
+
+Aby drzewa podziwiać, szerokie u podstawy.
+
+Sherman od wieków pilnuje tutaj porządku,
+
+By sekwoje spokojnie rosły w tym zakątku.
+
+Spokój zakłócany przez pożary i ludzi,
+
+Wszystko to dlatego, że tutaj się nie nudzi.
+
+Auto pod drzewem jedzie — to tu jest normalne,
+
+Generał przed Jezusem, co niewyobrażalne.
+
+Drogi łatwo mylić, zwłaszcza jak sieci nie ma,
+
+Wpaść na niedźwiedzia łatwo — a to wielka trema.
+
+Wnet skończy się nam wacha, zbiornik zerem pachnie,
+
+Chyba że stara stacja grawitacją machnie.
+
+Pod 100 lat już leją, podróżnych uratują,
+
+Potem In-N-Out, shopping dziewczyny wariują.
+
+Od rana znów na szlaku w kierunku wybrzeża,
+
+Nasz Chrysler z trudem dzisiejsze wzgórza przemierza.
+
+Wreszcie Santa Cruz, latarnia z mekką surferów,
+
+Ocean niespokojny, za mało spacerów spacerów.
+
+Ruszamy starą jedynką w stronę San Francisco,
+
+Droga kręta, co chwilę urwiska bardzo blisko.
+
+Rzut oka przed odlotem na most cały ze stali,
+
+Golden Gate jest symbolem widocznym z oddali.
+
+My przyszliśmy blisko, by na koniec podróży
+
+Tu łatwo wspomnienia w pamięci zanurzyć.
