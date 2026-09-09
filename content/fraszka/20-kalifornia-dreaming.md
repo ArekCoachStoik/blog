@@ -2,7 +2,7 @@
 title: '#20 KALIFORNIA DREAMING'
 date: 2026-05-16T14:06:00
 description: Kalifornia, Nevada, Utah, Arizona -  21.08-05.09
-featured_image: /images/IMG-9934.JPG
+featured_image: /images/Screen Shot 2026-09-09 at 22.32.27.png
 ---
 
 Czas był to niezwykły, godzin trzy i trzydzieści,
