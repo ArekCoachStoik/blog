@@ -1,8 +1,8 @@
 ---
 title: '#20 KALIFORNIA DREAMING'
-date: 2026-05-16T14:06:00
+date: 2026-09-10T15:27:00
 description: Kalifornia, Nevada, Utah, Arizona -  21.08-05.09
-featured_image: /images/Screen Shot 2026-09-09 at 22.32.27.png
+featured_image: /images/IMG-3116.jpeg
 ---
 
 Czas był to niezwykły, godzin trzy i trzydzieści,
@@ -13,6 +13,8 @@ Krótka noc, dzień długi, wszystko to pomieści.
 
 Golden Gate’em, nie złotym, lecz całym czerwonym.
 
+![](/images/IMG-2075.jpg)
+
 Przed nim we mgle zaś migocze wyspa tajemnicza,
 
 Alcatraz dziś już ostro, więźniów nie rozlicza.
@@ -21,6 +23,8 @@ Przez chwilę Indianie walczyli tam o swoje,
 
 Gringo „okupantów” ostudzili nastroje.
 
+![](/images/IMG-3148.jpeg)
+
 Czas poznać to miasto, a uliczki jak w górach
 
 Całe wystrojone są w wiktoriańskich murach.
@@ -28,6 +32,8 @@ Całe wystrojone są w wiktoriańskich murach.
 Bez starego tramwaju nie ruszaj pod górę,
 
 Bo nóżki twe dostaną zdrowo w swoją skórę.
+
+![](/images/IMG-0809.jpg)
 
 San Francisco potrafi łatwo oczarować,
 
