@@ -33,7 +33,7 @@ Bez starego tramwaju nie ruszaj pod górę,
 
 Bo nóżki twe dostaną zdrowo w swoją skórę.
 
-![](/images/IMG-0809.jpg)
+![](/images/IMG-3116.jpeg)
 
 San Francisco potrafi łatwo oczarować,
 
