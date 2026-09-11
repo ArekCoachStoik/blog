@@ -35,7 +35,7 @@ Bez starego tramwaju nie ruszaj pod górę,
 
 Bo nóżki twe dostaną zdrowo w swoją skórę.
 
-![](/images/IMG-3116.jpeg)
+![](/images/IMG-0809.jpg)
 
 San Francisco potrafi łatwo oczarować,
 
@@ -45,6 +45,8 @@ Ruszamy raniutko, jet lag lepszy niż budzik,
 
 Przed nami park Yosemite — niemały to trudzik.
 
+![](/images/IMG-3190.jpeg)
+
 El Capitan dumnie strzeże wejścia doliny,
 
 Trek pod wodospad Vernal, zmęczone są miny.
@@ -52,6 +54,8 @@ Trek pod wodospad Vernal, zmęczone są miny.
 Widok na miejscu natychmiast poprawia humor,
 
 Piękny, tęczowy gigant robi taki rumor,
+
+![](/images/IMG-0922.JPG)
 
 Że w pamięci zostanie naszej tu na zawsze,
 
@@ -61,6 +65,8 @@ Park pierwszy za nami, kolejny ustawiamy,
 
 Śmierci to Dolina, w jej kierunku zmierzamy.
 
+![](/images/IMG-3234.jpeg)
+
 Zanim to, z przygodami śpimy u Mamuta,
 
 Bak zalany, wody zapas, ruszamy z buta.
@@ -68,6 +74,8 @@ Bak zalany, wody zapas, ruszamy z buta.
 W sensie szybko i autem, bo droga daleka,
 
 Pustynia, skwar, depresja już tu na nas czeka.
+
+![](/images/IMG-0967.JPG)
 
 Fahrenheit, gdyby sam tych upałów doświadczył,
 
@@ -77,6 +85,8 @@ Co by martwym nie zostać, jedź Ścieżką Artystów,
 
 Chwila poza autem jest tylko dla sadystów.
 
+![](/images/IMG-0984.JPG)
+
 Droga kręta kanionami stąd wyprowadzi,
 
 Kierunek na Las Vegas obrać, nie „Nevadzi”.
@@ -84,6 +94,8 @@ Kierunek na Las Vegas obrać, nie „Nevadzi”.
 Tam już Pałac Cezara czeka w swej pełnej krasie,
 
 W magicznym kasynie niejeden zgubić da się.
+
+![](/images/IMG-3190.jpeg)
 
 Villa tam jak w „Kac Vegas”, kusi minibarkiem,
 
