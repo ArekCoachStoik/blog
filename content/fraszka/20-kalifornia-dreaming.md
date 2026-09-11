@@ -95,8 +95,6 @@ Tam już Pałac Cezara czeka w swej pełnej krasie,
 
 W magicznym kasynie niejeden zgubić da się.
 
-![](/images/IMG-3190.jpeg)
-
 Villa tam jak w „Kac Vegas”, kusi minibarkiem,
 
 A spacer po Strip Street cały czas z zegarkiem,
