@@ -65,7 +65,6 @@ Park pierwszy za nami, kolejny ustawiamy,
 
 Śmierci to Dolina, w jej kierunku zmierzamy.
 
-
 Zanim to, z przygodami śpimy u Mamuta,
 
 Bak zalany, wody zapas, ruszamy z buta.
