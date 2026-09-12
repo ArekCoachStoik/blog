@@ -1,5 +1,5 @@
 ---
-title: '#20 KALIFORNIA DREAMING'
+title: '#20 ZŁOTY FRANCISZEK'
 date: 2026-09-10T15:27:00
 description: Kalifornia, Nevada, Utah, Arizona -  21.08-05.09
 featured_image: /images/IMG-1288.jpg
@@ -65,7 +65,6 @@ Park pierwszy za nami, kolejny ustawiamy,
 
 Śmierci to Dolina, w jej kierunku zmierzamy.
 
-![](/images/IMG-3234.jpeg)
 
 Zanim to, z przygodami śpimy u Mamuta,
 
@@ -75,8 +74,6 @@ W sensie szybko i autem, bo droga daleka,
 
 Pustynia, skwar, depresja już tu na nas czeka.
 
-![](/images/IMG-0967.JPG)
-
 Fahrenheit, gdyby sam tych upałów doświadczył,
 
 Patrząc na swoją skalę, czoło by przymarszczył.
@@ -84,8 +81,6 @@ Patrząc na swoją skalę, czoło by przymarszczył.
 Co by martwym nie zostać, jedź Ścieżką Artystów,
 
 Chwila poza autem jest tylko dla sadystów.
-
-![](/images/IMG-0984.JPG)
 
 Droga kręta kanionami stąd wyprowadzi,
 
