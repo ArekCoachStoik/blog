@@ -75,6 +75,8 @@ W sensie szybko i autem, bo droga daleka,
 
 Pustynia, skwar, depresja już tu na nas czeka.
 
+![](/images/IMG-0967.JPG)
+
 Fahrenheit, gdyby sam tych upałów doświadczył,
 
 Patrząc na swoją skalę, czoło by przymarszczył.
