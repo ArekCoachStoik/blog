@@ -241,7 +241,7 @@ Obserwatorium dziś zamknęło swoje wrota,
 
 W miejsce „La La Landu” wrócimy, nie dziwota
 
-.
+.![](/images/A80A0354.JPEG)
 
 Noc ciemna, a droga do hotelu daleka,
 
