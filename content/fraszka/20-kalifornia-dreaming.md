@@ -85,6 +85,8 @@ Co by martwym nie zostać, jedź Ścieżką Artystów,
 
 Chwila poza autem jest tylko dla sadystów.
 
+![](/images/IMG-0984.JPG)
+
 Droga kręta kanionami stąd wyprowadzi,
 
 Kierunek na Las Vegas obrać, nie „Nevadzi”.
