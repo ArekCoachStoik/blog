@@ -95,7 +95,7 @@ Tam już Pałac Cezara czeka w swej pełnej krasie,
 
 W magicznym kasynie niejeden zgubić da się.
 
-![](/images/IMG-3263.jpeg)
+![](/images/IMG-8807.jpeg)
 
 Villa tam jak w „Kac Vegas”, kusi minibarkiem,
 
@@ -104,6 +104,8 @@ A spacer po Strip Street cały czas z zegarkiem,
 By w Bellagio przy fontannie podczas pokazu
 
 Dodać foty na IG, selfie do obrazu.
+
+![](/images/IMG-3263.jpeg)
 
 Noc krótka, Black Jack portfel leciutko osuszył,
 
