@@ -65,6 +65,8 @@ Park pierwszy za nami, kolejny ustawiamy,
 
 Śmierci to Dolina, w jej kierunku zmierzamy.
 
+![](/images/IMG-3234.jpeg)
+
 Zanim to, z przygodami śpimy u Mamuta,
 
 Bak zalany, wody zapas, ruszamy z buta.
@@ -241,7 +243,7 @@ Obserwatorium dziś zamknęło swoje wrota,
 
 W miejsce „La La Landu” wrócimy, nie dziwota
 
-.![](/images/A80A0354.JPEG)
+.
 
 Noc ciemna, a droga do hotelu daleka,
 
