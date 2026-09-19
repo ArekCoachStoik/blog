@@ -404,3 +404,5 @@ Golden Gate jest symbolem widocznym z oddali.
 My przyszliśmy blisko, by na koniec podróży
 
 Tu łatwo wspomnienia w pamięci zanurzyć.
+
+![](/images/IMG-3997.jpeg)
