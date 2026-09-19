@@ -185,6 +185,8 @@ Czas ruszać nad Kanion i to nie byle jaki,
 
 Krater jak marsjański, myślę, że chyba taki.
 
+![](/images/IMG-1363.jpg)
+
 Jest i on, widoki z wiatrem beret zrywają,
 
 Przepaść bez dna, fotki końca nie mają.
