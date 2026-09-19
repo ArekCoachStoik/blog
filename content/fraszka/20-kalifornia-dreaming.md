@@ -225,6 +225,8 @@ Czas szybko tutaj leci, Route 66 wzywa,
 
 Stara droga — jednak tak bywa urokliwa.
 
+![](/images/IMG-1472.jpg)
+
 Że aż się prosi zjeść obiad urodzinowy,
 
 My lovely girls zadbały o sto lat grupowy.
@@ -232,6 +234,8 @@ My lovely girls zadbały o sto lat grupowy.
 Zachód słońca bliski, droga kręci wzdłuż torów,
 
 Stare stacje, auta w większości bez motorów.
+
+![](/images/IMG-1480.JPG)
 
 Noc krótka, czas ruszać, Miasto Aniołów wzywa,
 
