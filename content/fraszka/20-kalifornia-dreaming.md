@@ -277,6 +277,7 @@ Autobus, Uber, bieg — bo słońce nie zaczeka.
 
 Jest, czeka na nas piękne, całe w swojej krasie,
 
+![](/images/IMG-1741.jpg)
 
 Na szczycie znak Hollywood dojrzeć tutaj da się.
 
