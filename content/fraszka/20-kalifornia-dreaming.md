@@ -337,6 +337,8 @@ Nie patrząc na boki, do przodu czy za siebie.
 
 My się nie boimy, choć jest ciężko uwierzyć,
 
+![](/images/IMG-1795.jpg)
+
 Że bez kierowcy z trasą uda mu się zmierzyć.
 
 Tak oto w science fiction gładko wstąpiliśmy,
