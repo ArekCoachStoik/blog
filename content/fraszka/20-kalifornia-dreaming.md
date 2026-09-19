@@ -297,6 +297,8 @@ Emocji co niemiara, uśmiechnięte lica.
 
 Pobudka wczesna, bo studio już uniwersalne,
 
+![](/images/78056.jpg)
+
 Cokolwiek tam nie zrobimy, będzie zabawne.
 
 Święta Monika już czeka ze swym molem sławnym,
