@@ -135,6 +135,8 @@ Nagle bród przed nami, a dno pełne kamieni,
 
 Bosa stopa Polaka brnie, nic to nie zmieni.
 
+![](/images/IMG-1129.jpg)
+
 Nagrodą widoki takie, że dech zapiera,
 
 Nic dziwnego, że tłum tę okolicę wybiera.
