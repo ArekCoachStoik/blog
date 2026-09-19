@@ -397,6 +397,8 @@ Droga kręta, co chwilę urwiska bardzo blisko.
 
 Rzut oka przed odlotem na most cały ze stali,
 
+![](/images/IMG-2058.jpg)
+
 Golden Gate jest symbolem widocznym z oddali.
 
 My przyszliśmy blisko, by na koniec podróży
