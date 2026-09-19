@@ -267,6 +267,8 @@ Ten biedny, bezdomny i ten bardzo bogaty.
 
 Za to na wzgórzach Beverly świat nierealny,
 
+![](/images/IMG-1685.jpg)
+
 Luksus, a na Rodeo koń to sklep banalny.
 
 Czas goni, a Park Griffitha z zachodem czeka,
