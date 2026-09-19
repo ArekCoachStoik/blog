@@ -125,6 +125,8 @@ Również te od Mazdy, co zaliczyła przegląd,
 
 Czas ruszać już do Zion, co ma cudny wygląd.
 
+![](/images/IMG-1076.JPG)
+
 Tam czeka wąwóz cały skąpany w czerwieni,
 
 W kolorach słońca wszystko tak tutaj się mieni.
