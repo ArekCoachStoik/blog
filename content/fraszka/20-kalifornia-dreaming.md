@@ -245,6 +245,8 @@ Zdania są na ten temat mocno podzielone,
 
 Nawet gdy Hollywood Boulevard dobrze oświetlone.
 
+![](/images/IMG-1613.jpg)
+
 Coś się nie spina, bo gwiazdy na ziemi leżą,
 
 Elvisa, Michaela, Dolly, funi tu bieżą.
