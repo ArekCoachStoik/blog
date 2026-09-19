@@ -367,6 +367,8 @@ Generał przed Jezusem, co niewyobrażalne.
 
 Drogi łatwo mylić, zwłaszcza jak sieci nie ma,
 
+![](/images/IMG-1936.JPG)
+
 Wpaść na niedźwiedzia łatwo — a to wielka trema.
 
 Wnet skończy się nam wacha, zbiornik zerem pachnie,
