@@ -115,6 +115,8 @@ Cezar, Neptun, Apollo ruchem tu kierują,
 
 Czas mija wnet, a polskie dziewczyny brylują.
 
+![](/images/IMG-1020.jpg)
+
 Ruszamy dalej przed siebie, przygoda woła,
 
 Ups, outlecik i zniknęły kolejne koła.
@@ -122,6 +124,8 @@ Ups, outlecik i zniknęły kolejne koła.
 Również te od Mazdy, co zaliczyła przegląd,
 
 Czas ruszać już do Zion, co ma cudny wygląd.
+
+![](/images/IMG-1076.JPG)
 
 Tam czeka wąwóz cały skąpany w czerwieni,
 
