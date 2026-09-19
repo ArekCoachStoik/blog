@@ -205,6 +205,8 @@ Dwie godzinki przed nami, celujemy w Target,
 
 Skręt w Magdalene: „iPhone, can I get?”
 
+![](/images/IMG-1404.JPG)
+
 Nie ma, szkoda. Sedona już nas miło wita,
 
 Kolejny dzień za nami, czas leci z kopyta.
