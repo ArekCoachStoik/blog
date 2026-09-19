@@ -257,6 +257,8 @@ Z głośnika na rogu dużo słychać o wierze.
 
 Damy szansę jutro Los Angeles na nowo,
 
+![](/images/IMG-1612.JPG)
+
 By oczarować, pokazać nam to i owo.
 
 I pokazało — Downtown to dwa różne światy:
