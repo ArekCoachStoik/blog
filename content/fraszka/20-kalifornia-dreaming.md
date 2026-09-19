@@ -155,8 +155,6 @@ Indianie Navajo na dzikim tym zachodzie,
 
 Monument Valley zjedziemy tu w samochodzie.
 
-![](/images/IMG-1231.JPG)
-
 Jest! Znalazł się widok, wyrywa nas z pojazdu,
 
 Nikt dziś nie żałuje długich godzin dojazdu.
