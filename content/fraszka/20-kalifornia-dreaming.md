@@ -165,6 +165,8 @@ Miejsce magiczne, ostańce całe w czerwieni,
 
 Filmowi kowboje dlatego oniemieli.
 
+![](/images/IMG-1247.jpg)
+
 Zachód słońca, nawet lekko pod chmurą skryty,
 
 Nie powstrzyma niekończące się nam zachwyty.
