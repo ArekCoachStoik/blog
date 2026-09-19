@@ -265,9 +265,9 @@ I pokazało — Downtown to dwa różne światy:
 
 Ten biedny, bezdomny i ten bardzo bogaty.
 
-Za to na wzgórzach Beverly świat nierealny,
-
 ![](/images/IMG-1685.jpg)
+
+Za to na wzgórzach Beverly świat nierealny,
 
 Luksus, a na Rodeo koń to sklep banalny.
 
@@ -275,9 +275,9 @@ Czas goni, a Park Griffitha z zachodem czeka,
 
 Autobus, Uber, bieg — bo słońce nie zaczeka.
 
-Jest, czeka na nas piękne, całe w swojej krasie,
-
 ![](/images/IMG-1741.jpg)
+
+Jest, czeka na nas piękne, całe w swojej krasie,
 
 Na szczycie znak Hollywood dojrzeć tutaj da się.
 
@@ -285,9 +285,9 @@ Obserwatorium dziś zamknęło swoje wrota,
 
 W miejsce „La La Landu” wrócimy, nie dziwota
 
-.Noc ciemna, a droga do hotelu daleka,
-
 ![](/images/IMG-1747.JPG)
+
+.Noc ciemna, a droga do hotelu daleka,
 
 Nim dotrzemy, wyprzedaż za 5$ nas czeka.
 
@@ -295,17 +295,15 @@ Czapki, bluzy, magnesy, na koniec tablica,
 
 Emocji co niemiara, uśmiechnięte lica.
 
-Pobudka wczesna, bo studio już uniwersalne,
-
 ![](/images/78056.jpg)
+
+Pobudka wczesna, bo studio już uniwersalne,
 
 Cokolwiek tam nie zrobimy, będzie zabawne.
 
 Święta Monika już czeka ze swym molem sławnym,
 
 Route 66 kończy się tu znakiem poważnym.
-
-Pod którym tłum turystów uwiecznić chce tę chwilę,
 
 ![](/images/IMG-1808.JPG)
 
@@ -315,9 +313,11 @@ Jeszcze szybkie Faithas, rzut oka na LA,
 
 Długo nie zapomnimy świetnej przygody tej.
 
-Chwila odpoczynku na plaży Santa Monica,
+Pod którym tłum turystów uwiecznić chce tę chwilę,
 
 ![](/images/IMG-1785.jpg)
+
+Chwila odpoczynku na plaży Santa Monica,
 
 Do Venice jedziemy jak Waymo, jak się wyklika.
 
@@ -325,9 +325,9 @@ Czy spotkamy tu Barbie, a może jej Kena?
 
 Aby żyć w tej bajce, wysoka za to cena.
 
-Ruszamy, najpierw rowerem od metra anielskiego,
-
 ![](/images/waymo.jpg)
+
+Ruszamy, najpierw rowerem od metra anielskiego,
 
 Waymo czeka, ale czy uczyli go polskiego?
 
@@ -335,9 +335,9 @@ Zagadał aż miło i ruszył hen przed siebie,
 
 Nie patrząc na boki, do przodu czy za siebie.
 
-My się nie boimy, choć jest ciężko uwierzyć,
-
 ![](/images/IMG-1877.JPG)
+
+My się nie boimy, choć jest ciężko uwierzyć,
 
 Że bez kierowcy z trasą uda mu się zmierzyć.
 
@@ -347,17 +347,15 @@ Tak oto w science fiction gładko wstąpiliśmy,
 
 Dzień kolejny przed nami i stąd już ruszamy,
 
-![](/images/IMG-1795.jpg)
-
 Aby drzewa podziwiać, szerokie u podstawy.
 
 Sherman od wieków pilnuje tutaj porządku,
 
 By sekwoje spokojnie rosły w tym zakątku.
 
-Spokój zakłócany przez pożary i ludzi,
-
 ![](/images/IMG-2025.jpg)
+
+Spokój zakłócany przez pożary i ludzi,
 
 Wszystko to dlatego, że tutaj się nie nudzi.
 
@@ -365,9 +363,9 @@ Auto pod drzewem jedzie — to tu jest normalne,
 
 Generał przed Jezusem, co niewyobrażalne.
 
-Drogi łatwo mylić, zwłaszcza jak sieci nie ma,
-
 ![](/images/IMG-1936.JPG)
+
+Drogi łatwo mylić, zwłaszcza jak sieci nie ma,
 
 Wpaść na niedźwiedzia łatwo — a to wielka trema.
 
@@ -375,9 +373,9 @@ Wnet skończy się nam wacha, zbiornik zerem pachnie,
 
 Chyba że stara stacja grawitacją machnie.
 
-Pod 100 lat już leją, podróżnych uratują,
-
 ![](/images/IMG-2155.jpg)
+
+Pod 100 lat już leją, podróżnych uratują,
 
 Potem In-N-Out, shopping dziewczyny wariują.
 
@@ -385,9 +383,9 @@ Od rana znów na szlaku w kierunku wybrzeża,
 
 Nasz Chrysler z trudem dzisiejsze wzgórza przemierza.
 
-Wreszcie Santa Cruz, latarnia z mekką surferów,
-
 ![](/images/IMG-2156.jpg)
+
+Wreszcie Santa Cruz, latarnia z mekką surferów,
 
 Ocean niespokojny, za mało spacerów spacerów.
 
@@ -395,9 +393,9 @@ Ruszamy starą jedynką w stronę San Francisco,
 
 Droga kręta, co chwilę urwiska bardzo blisko.
 
-Rzut oka przed odlotem na most cały ze stali,
-
 ![](/images/IMG-2058.jpg)
+
+Rzut oka przed odlotem na most cały ze stali,
 
 Golden Gate jest symbolem widocznym z oddali.
 
