@@ -145,6 +145,8 @@ Na koniec żegna jelonek u wrót kanionu,
 
 Nazwa nieprzypadkowo pochodzi od Syjonu.
 
+![](/images/IMG-1160.jpg)
+
 Serpentynami, tunelem, krainą jak z bajki
 
 Ruszamy na wschód zobaczyć, jak palili fajki.
