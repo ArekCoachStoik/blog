@@ -307,6 +307,8 @@ Route 66 kończy się tu znakiem poważnym.
 
 Pod którym tłum turystów uwiecznić chce tę chwilę,
 
+![](/images/IMG-1808.JPG)
+
 My sprytnie tak zboczku mijamy kolejki milę.
 
 Jeszcze szybkie Faithas, rzut oka na LA,
