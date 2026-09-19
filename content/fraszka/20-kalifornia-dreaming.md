@@ -317,6 +317,8 @@ Długo nie zapomnimy świetnej przygody tej.
 
 Chwila odpoczynku na plaży Santa Monica,
 
+![](/images/IMG-1785.jpg)
+
 Do Venice jedziemy jak Waymo, jak się wyklika.
 
 Czy spotkamy tu Barbie, a może jej Kena?
