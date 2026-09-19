@@ -387,6 +387,8 @@ Nasz Chrysler z trudem dzisiejsze wzgórza przemierza.
 
 Wreszcie Santa Cruz, latarnia z mekką surferów,
 
+![](/images/IMG-2156.jpg)
+
 Ocean niespokojny, za mało spacerów spacerów.
 
 Ruszamy starą jedynką w stronę San Francisco,
