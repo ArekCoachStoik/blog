@@ -287,6 +287,8 @@ W miejsce „La La Landu” wrócimy, nie dziwota
 
 .Noc ciemna, a droga do hotelu daleka,
 
+![](/images/IMG-1747.JPG)
+
 Nim dotrzemy, wyprzedaż za 5$ nas czeka.
 
 Czapki, bluzy, magnesy, na koniec tablica,
