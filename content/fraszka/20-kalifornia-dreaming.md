@@ -215,6 +215,8 @@ A w miasteczku Autek atrakcje są ciekawe,
 
 Są uduchowione — czy zobaczymy tu zjawę?
 
+![](/images/IMG-1392.JPG)
+
 Już Wzgórze Mocy staje przed nami otworem,
 
 Jest i Kościół w skale, co pokoju motorem.
