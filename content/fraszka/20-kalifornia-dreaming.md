@@ -255,9 +255,9 @@ My też przybieżeli, jak ci pasterze,
 
 Z głośnika na rogu dużo słychać o wierze.
 
-Damy szansę jutro Los Angeles na nowo,
-
 ![](/images/IMG-1612.JPG)
+
+Damy szansę jutro Los Angeles na nowo,
 
 By oczarować, pokazać nam to i owo.
 
@@ -277,15 +277,14 @@ Autobus, Uber, bieg — bo słońce nie zaczeka.
 
 Jest, czeka na nas piękne, całe w swojej krasie,
 
+
 Na szczycie znak Hollywood dojrzeć tutaj da się.
 
 Obserwatorium dziś zamknęło swoje wrota,
 
 W miejsce „La La Landu” wrócimy, nie dziwota
 
-.
-
-Noc ciemna, a droga do hotelu daleka,
+.Noc ciemna, a droga do hotelu daleka,
 
 Nim dotrzemy, wyprzedaż za 5$ nas czeka.
 
