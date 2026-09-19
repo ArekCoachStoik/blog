@@ -337,7 +337,7 @@ Nie patrząc na boki, do przodu czy za siebie.
 
 My się nie boimy, choć jest ciężko uwierzyć,
 
-![](/images/IMG-1795.jpg)
+![](/images/IMG-1877.JPG)
 
 Że bez kierowcy z trasą uda mu się zmierzyć.
 
@@ -346,6 +346,8 @@ Tak oto w science fiction gładko wstąpiliśmy,
 Świadkami jesteśmy tego, co w filmach widzieliśmy.
 
 Dzień kolejny przed nami i stąd już ruszamy,
+
+![](/images/IMG-1795.jpg)
 
 Aby drzewa podziwiać, szerokie u podstawy.
 
