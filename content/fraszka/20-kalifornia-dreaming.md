@@ -345,6 +345,8 @@ Tak oto w science fiction gładko wstąpiliśmy,
 
 Świadkami jesteśmy tego, co w filmach widzieliśmy.
 
+![](/images/IMG-1856.jpg)
+
 Dzień kolejny przed nami i stąd już ruszamy,
 
 Aby drzewa podziwiać, szerokie u podstawy.
