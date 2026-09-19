@@ -175,6 +175,8 @@ Nasza kabina top over the top się kłania,
 
 Zachodu i wschodu słońca nic tu nie przesłania.
 
+![](/images/IMG-2153.jpg)
+
 O poranku bieganko drogą asfaltową,
 
 Forresta Gumpa przykłady tu nam pomogą.
