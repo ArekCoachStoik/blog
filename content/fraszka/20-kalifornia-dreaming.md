@@ -245,8 +245,6 @@ Zdania są na ten temat mocno podzielone,
 
 Nawet gdy Hollywood Boulevard dobrze oświetlone.
 
-![](/images/IMG-1613.jpg)
-
 Coś się nie spina, bo gwiazdy na ziemi leżą,
 
 Elvisa, Michaela, Dolly, funi tu bieżą.
@@ -254,8 +252,6 @@ Elvisa, Michaela, Dolly, funi tu bieżą.
 My też przybieżeli, jak ci pasterze,
 
 Z głośnika na rogu dużo słychać o wierze.
-
-![](/images/IMG-1612.JPG)
 
 Damy szansę jutro Los Angeles na nowo,
 
