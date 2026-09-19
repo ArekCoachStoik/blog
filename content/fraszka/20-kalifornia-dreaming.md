@@ -357,6 +357,8 @@ By sekwoje spokojnie rosły w tym zakątku.
 
 Spokój zakłócany przez pożary i ludzi,
 
+![](/images/IMG-2025.jpg)
+
 Wszystko to dlatego, że tutaj się nie nudzi.
 
 Auto pod drzewem jedzie — to tu jest normalne,
