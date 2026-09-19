@@ -245,6 +245,8 @@ Zdania są na ten temat mocno podzielone,
 
 Nawet gdy Hollywood Boulevard dobrze oświetlone.
 
+![](/images/IMG-1613.jpg)
+
 Coś się nie spina, bo gwiazdy na ziemi leżą,
 
 Elvisa, Michaela, Dolly, funi tu bieżą.
@@ -253,6 +255,8 @@ My też przybieżeli, jak ci pasterze,
 
 Z głośnika na rogu dużo słychać o wierze.
 
+![](/images/IMG-1612.JPG)
+
 Damy szansę jutro Los Angeles na nowo,
 
 By oczarować, pokazać nam to i owo.
@@ -260,6 +264,8 @@ By oczarować, pokazać nam to i owo.
 I pokazało — Downtown to dwa różne światy:
 
 Ten biedny, bezdomny i ten bardzo bogaty.
+
+![](/images/IMG-1685.jpg)
 
 Za to na wzgórzach Beverly świat nierealny,
 
