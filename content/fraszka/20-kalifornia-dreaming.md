@@ -327,6 +327,8 @@ Aby żyć w tej bajce, wysoka za to cena.
 
 Ruszamy, najpierw rowerem od metra anielskiego,
 
+![](/images/waymo.jpg)
+
 Waymo czeka, ale czy uczyli go polskiego?
 
 Zagadał aż miło i ruszył hen przed siebie,
