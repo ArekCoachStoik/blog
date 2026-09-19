@@ -377,6 +377,8 @@ Chyba że stara stacja grawitacją machnie.
 
 Pod 100 lat już leją, podróżnych uratują,
 
+![](/images/IMG-2155.jpg)
+
 Potem In-N-Out, shopping dziewczyny wariują.
 
 Od rana znów na szlaku w kierunku wybrzeża,
