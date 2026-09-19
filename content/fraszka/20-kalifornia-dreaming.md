@@ -195,6 +195,8 @@ Lecz nie mają szansy z tym, co widać na żywo,
 
 Pamięć jak dysk twardy to jedyne tworzywo,
 
+![](/images/IMG-1358.jpg)
+
 Co jest w stanie nam przenieść tutejsze wspomnienie
 
 I widziane na koniec przydrożne jelenie.
