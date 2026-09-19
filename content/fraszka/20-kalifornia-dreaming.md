@@ -265,8 +265,6 @@ I pokazało — Downtown to dwa różne światy:
 
 Ten biedny, bezdomny i ten bardzo bogaty.
 
-![](/images/IMG-1685.jpg)
-
 Za to na wzgórzach Beverly świat nierealny,
 
 Luksus, a na Rodeo koń to sklep banalny.
