@@ -2,7 +2,7 @@
 title: WTiS_24 - POWINNOŚCI
 date: 2026-08-30T07:41:00
 description: WODA TLEN I SEN
-featured_image: /images/dicson-tExB6wdErkQ-unsplash.jpg
+featured_image: /images/morgan-housel-iuSqwzGZv8M-unsplash.jpg
 draft: false
 ---
 
@@ -26,9 +26,9 @@ Zabrzmi to mało optymistycznie ale to właśnie przeszkoda jest naszą drogą. 
 
 Gdy zapytamy przypadkową osobę czego sobie życzy to jeśli nie padnie - co niestety zdarza się najczęściej - materialna zachcianka pojawi się życzenie "świętego spokoju". Materialną zachciankę łatwo zrealizować "święty spokój" już nie. Wynika to z faktu, że najcześciej nasz spokój zakłócany jest zmartwieniami jak poradzić sobie z życiową przeszkodą, które czy tego chcemy czy nie się pojawią. Stąd jedynym rozwiązaniem na aby "święty spokój" trwał jest wypracowanie mechanizmu w którym przeszkody nie są problemem a wyzwaniem.
 
-![](/images/sushanta-rokka-RbQ3e50qcR8-unsplash.jpg)
+![](/images/dicson-tExB6wdErkQ-unsplash.jpg)
 
-Sushanta Rokka z Unsplash
+Dicson z Unsplash
 
 **PROBLEM CZY WYZWANIE**
 
