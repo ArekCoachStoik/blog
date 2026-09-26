@@ -2,7 +2,7 @@
 title: WTiS_24 - POWINNOŚCI
 date: 2026-08-30T07:41:00
 description: WODA TLEN I SEN
-featured_image: /images/vitaly-gariev-Jp0OJlXqVfE-unsplash.jpg
+featured_image: /images/dicson-tExB6wdErkQ-unsplash.jpg
 draft: false
 ---
 
@@ -17,8 +17,6 @@ _„Oto zadanie dla filozofa: dążyć do harmonii naszej woli, z wszystkim co s
 **NIC NIE MUSISZ WSZYSTKO MOŻESZ**
 
 Powyższe zdanie jest bardzo często używane jako wskazowka do rozwoju osobistego. Sugeruje, że wszystko zależy od nas i nie ma takiej rzeczy której nie możemy zrobić. Zawarta jest w nim rownież sugestia, że tak na prawdę nic nie musimy i tylko od nas zależy co chcemy zrobić. Nikt i nic nie może nam tego nakazać to my jesteśmy panem naszych decyzji. Jest to oczywista pułapka gdyż w codziennym życiu jest bardzo wiele spraw które nazwalibyśmy powinnościami. Jeśli przyporządkujemy je do kategorii mogę a nie muszę stajemy się osobą nieodpowiedzialną w rozumieniu cnot stoickich daleką od ideału dobra. Takie powinności jak bycie uczciwy, ponoszenie konsekwencji swojego działania czy zasady relacji z innymi to prosta lista, obszarów gdzie muszę gra pierwsze skrzypce. Jeśli w obszarach gdzie muszę pozwolimy sobie na swobodę i wybór bardzo często zatracamy nasz kregoslup moralny i klarowność w odrożnianiu dobra od zła. Jak zatem nie zabić w sobie idea zawartej w początkowej myśli epikteta?
-
-
 
 Katrina Wright z Unsplash
 
