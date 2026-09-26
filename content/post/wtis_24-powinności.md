@@ -18,14 +18,6 @@ _„Oto zadanie dla filozofa: dążyć do harmonii naszej woli, z wszystkim co s
 
 Powyższe zdanie jest bardzo często używane jako wskazowka do rozwoju osobistego. Sugeruje, że wszystko zależy od nas i nie ma takiej rzeczy której nie możemy zrobić. Zawarta jest w nim rownież sugestia, że tak na prawdę nic nie musimy i tylko od nas zależy co chcemy zrobić. Nikt i nic nie może nam tego nakazać to my jesteśmy panem naszych decyzji. Jest to oczywista pułapka gdyż w codziennym życiu jest bardzo wiele spraw które nazwalibyśmy powinnościami. Jeśli przyporządkujemy je do kategorii mogę a nie muszę stajemy się osobą nieodpowiedzialną w rozumieniu cnot stoickich daleką od ideału dobra. Takie powinności jak bycie uczciwy, ponoszenie konsekwencji swojego działania czy zasady relacji z innymi to prosta lista, obszarów gdzie muszę gra pierwsze skrzypce. Jeśli w obszarach gdzie muszę pozwolimy sobie na swobodę i wybór bardzo często zatracamy nasz kregoslup moralny i klarowność w odrożnianiu dobra od zła. Jak zatem nie zabić w sobie idea zawartej w początkowej myśli epikteta?
 
-Katrina Wright z Unsplash
-
-**PRZESZKODA JEST DROGĄ**
-
-Zabrzmi to mało optymistycznie ale to właśnie przeszkoda jest naszą drogą. Jedno z praw Murphego mówi - "jeśli coś ma pójść nie po naszej myśli to tak się stanie". Dlatego w myśl jednej z praktyk stoickich "premeditatio malorum" ("oswajanie lęku/przewidywanie nieszczęścia") warto  mieć opcje rezerwową gotową - swoisty plan B na wypadek gdyby "niesprzyjające" sytuacje się wydarzą. To sprawdzony sposób na to by uniknąć frustracji i zdenerwowania o którym pisałem na wstępie. Zaakceptowanie tego że problem/przeszkoda stanowią integralną cześć naszego życia, czy tego chcemy czy nie będą częścią naszej drogi życiowej jest kluczem do szczęśliwego życia. 
-
-Gdy zapytamy przypadkową osobę czego sobie życzy to jeśli nie padnie - co niestety zdarza się najczęściej - materialna zachcianka pojawi się życzenie "świętego spokoju". Materialną zachciankę łatwo zrealizować "święty spokój" już nie. Wynika to z faktu, że najcześciej nasz spokój zakłócany jest zmartwieniami jak poradzić sobie z życiową przeszkodą, które czy tego chcemy czy nie się pojawią. Stąd jedynym rozwiązaniem na aby "święty spokój" trwał jest wypracowanie mechanizmu w którym przeszkody nie są problemem a wyzwaniem.
-
 ![](/images/dicson-tExB6wdErkQ-unsplash.jpg)
 
 Dicson z Unsplash
