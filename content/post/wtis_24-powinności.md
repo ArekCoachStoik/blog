@@ -1,6 +1,6 @@
 ---
 title: WTiS_24 - POWINNOŚCI
-date: 2026-08-30T07:41:00
+date: 2026-07-30T07:41:00
 description: WODA TLEN I SEN
 featured_image: /images/morgan-housel-iuSqwzGZv8M-unsplash.jpg
 draft: false
@@ -24,8 +24,8 @@ Dicson z Unsplash
 
 **MATERIALISTYCZNE MUSZĘ**
 
-Jak łatwo zmienia się mogę w muszę. W dzisiejszych czasach gonitwy za dniem codziennym bardzo często słyszymy muszę to muszę tamto. Presja otoczenia porównywanie się z innymi, wykreowane potrzeby powodują że w naszym życiu zdecydowanie więcej jest sprawy które "musimy" zamiast tych które możemy. Stąd tak kusząca jest myśl wczei pada na podatny grunt
-
+Jak łatwo mogę zmienia się w muszę. W dzisiejszych czasach gonitwy za dniem codziennym bardzo często słyszymy muszę to muszę tamto. Presja otoczenia porównywanie się z innymi, wykreowane potrzeby powodują że w naszym życiu zdecydowanie więcej jest sprawy które "musimy" zamiast tych które możemy. Stąd tak kusząca jest wcześniejsza myśl i pada ona na podatny grunt. NIestety bardzo często idziemy na łatwiznę i zaczynamy przypisywać cechę mogę rzeczom i działaniom, które naprawdę muszę. Sumienne realizowanie powinności oznacza bycie szlachetnym osobą która niezależnie od okoliczności postępuje dobrze - gdyż musi tak postępować a nie może. 
+ 
 Zdecydowanie "zakłócenie" naszego spokoju może być wyzwaniem a nie problemem. Swoistą próbą na którą jesteśmy wystawieni przez los, Boga czy naturę. Jak każda osoba stojąca na posterunku powinniśmy na taką próbę być przygotowani i czujni. Jeśli zostaniemy zaskoczeni i nie będziemy przygotowani do tego co się wydarzy na naszej drodze recepta na zakłócenie naszego "świętego spokoju" a w konsekwencji naszego dobrostanu jest gotowa. Nie zawsze jednak można być idealnie przygotowanym dlatego kluczowe jest podejście. Zamiast zmagać się z problem stańmy do wyzwania, które tylko czeka na nasze rozwiązanie. Rozwiązanie zawsze się znajdzie. Praktycznie do każdej sytuacji ktoś a często my sami w przeszłości znaleźliśmy rozwiązanie a początkowa skala bądź zakres problemu z perspektywy dzisiejszej był bez znaczenia. Dodatkowo takie spojrzenie wstecz pozwala zrozumieć że każdy problem nas czegoś nauczył. Tym więcej się nauczyliśmy im bardziej podchodziliśmy do sprawy jak do wyzwania z którym musimy sobie poradzić zamiast problemu, który nas przytłoczył.
 
 ![](/images/towfiqu-barbhuiya-Jxi526YIQgA-unsplash.jpg)
