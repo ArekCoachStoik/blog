@@ -406,3 +406,11 @@ My przyszliśmy blisko, by na koniec podróży
 Tu łatwo wspomnienia w pamięci zanurzyć.
 
 ![](/images/IMG-3997.jpeg)
+
+.
+
+![](/images/Image%2026-09-2026%20at%2005.54.jpg)
+
+.
+
+![](/images/Image%2026-09-2026%20at%2006.01.jpg)
