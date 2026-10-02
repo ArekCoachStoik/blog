@@ -38,7 +38,7 @@ Ta droga nie jest prosta. Powinności oznaczają wysiłek. Wysiłek to praca - w
 
 Dylan Shaw z Unsplash
 
-**Bądź jak skała to nie eksperyment**
+**Bądź jak skała to nie eksperyment** 
 
 Wytrwałość w powinnościach to jedno gdyż sumienne i pracowite osoby dają sobie z tym radę. Gorzej jest ze zmianą sposobu myślenia dzięki któremu powinności przestają być obowiązkiem - stają się czymś co niezależnie od wyzwań chcemy robić. Zwróć uwagę na słowo "wyzwań" które podpowiada myślenie pozytywne , negatywne podpowiedziałoby "trudności". Wyzwań do których powinniśmy podchodzić z ciekawością i rozwiązywać je niezależnie od otaczającej nas rzeczywistości. Szczególnie ważne jest to aby z przekonaniami innych ludzi nie walczyć tylko w sposób konstruktywny i refleksyjny przedstawiać swoje racje. Hejt i brak zrozumienia dla naszego działania niech rozbiją się jak fale na skale a my jak ta skała pozostaniemy niewzruszeni. To niełatwe zadanie, emocje, brak konsekwencji, wpływ otaczających nas ludzi może ściągnąć nas z wyznaczonej drogi. To normalne i nie powinno nas zniechęcać do ponownego wejścia na wyznaczoną drogę. Czyli jak to jest nic nie musze a wszystko mogę ?
 
