@@ -26,13 +26,25 @@ Dicson z Unsplash
 
 Jak łatwo mogę zmienia się w muszę. W dzisiejszych czasach gonitwy za dniem codziennym bardzo często słyszymy muszę to muszę tamto. Presja otoczenia porównywanie się z innymi, wykreowane potrzeby powodują że w naszym życiu zdecydowanie więcej jest sprawy które "musimy" zamiast tych które możemy. Stąd tak kusząca jest wcześniejsza myśl i pada ona na podatny grunt. Niestety bardzo często idziemy na łatwiznę i zaczynamy przypisywać cechę mogę rzeczom i działaniom, które naprawdę muszę. Sumienne realizowanie powinności oznacza bycie szlachetnym osobą która niezależnie od okoliczności postępuje dobrze. Tutaj zbliżamy się do sedna powinności - czy realizowanie zadań do których zostaliśmy stworzeni powinniśmy traktować jako przymus. Czy z chęcią i radością realizujemy rzeczy, do których niejako jesteśmy przymuszeni. Tutaj potrzebna jest istotna zmiana sposobu myślenia. Ucieczka od psychologicznego poczucia bycia ofiarą (myślenia negatywnego) do myślenia w sposób pozytywny z duża dozą kreatywności i ciekawości (myślenie pozytywne). Zmiana sposobu myślenia pozwala na zupełnie inne spojrzenie na nasze powinności. Zaczynamy je widzieć jako zestaw działań, które robimy z chęcią a nie z musu gdyż wiemy że są one wartościowe, przydatne. Czy to prosta dobrze oświetlona droga czy wyboista i pełna trudności bez lamp.
 
+![](/images/alexander-grey--8a5eJ1-mmQ-unsplash.jpg)
+
+Alexander Grey z Unsplash
+
 **Świeć przykładem na wyboistej drodze.**
 
 Ta droga nie jest prosta. Powinności oznaczają wysiłek. Wysiłek to praca - więcej na ten temat poczytasz na blogu Woda Tlen i Sen w artykule [WTIS_11_PRACUJ Z PASJĄ](https://wodatlenisen.site/post/wtis11/) . Czy zostaliśmy stworzeni do tego aby odpoczywać czy każdego dnia dokładać cegiełkę do wspólnego dobra. Droga ta jest wyboista i ciemna a jedyny sposób aby ja oświetlić to zdać dobie sprawę, że to nasza powinność. Czyli nie coś co musimy zrobić , nie coś co możemy zrobić ale chcemy. W momencie kiedy zmienimy paradygmat myślenia o powinnościach przestają one być obciążaniem a ich realizowanie zaczyna sprawiać nam radość. Czy to koniec trudności jakie możemy napotkać? Oczywiście, że nie gdyż nasze otoczenie myślące w stereotypowy sposób zacznie nas traktować jako odmieńców, będzie na krytykować i zachęcać do powrotu na stare dobrze utarte ścieżki. Jako często pojawiającą się analogię do tej sytuacji podaje rodzinę która źle się odżywia i wśród jej członków pojawia się ktoś kto postanawia zmienić sposób odżywiania na zdrowszy (np. wegetariański). Staje się odmieńcem, tworzącym kłopoty w codziennym "niezdrowym" funkcjonowaniu rodziny i jest zachęcany do zakończenia "zdrowego eskperymentu"
 
+![](/images/dylan-shaw-qOyslO887Tg-unsplash.jpg)
+
+Dylan Shaw z Unsplash
+
 **Bądź jak skała to nie eksperyment**
 
 Wytrwałość w powinnościach to jedno gdyż sumienne i pracowite osoby dają sobie z tym radę. Gorzej jest ze zmianą sposobu myślenia dzięki któremu powinności przestają być obowiązkiem - stają się czymś co niezależnie od wyzwań chcemy robić. Zwróć uwagę na słowo "wyzwań" które podpowiada myślenie pozytywne , negatywne podpowiedziałoby "trudności". Wyzwań do których powinniśmy podchodzić z ciekawością i rozwiązywać je niezależnie od otaczającej nas rzeczywistości. Szczególnie ważne jest to aby z przekonaniami innych ludzi nie walczyć tylko w sposób konstruktywny i refleksyjny przedstawiać swoje racje. Hejt i brak zrozumienia dla naszego działania niech rozbiją się jak fale na skale a my jak ta skała pozostaniemy niewzruszeni. To niełatwe zadanie, emocje, brak konsekwencji, wpływ otaczających nas ludzi może ściągnąć nas z wyznaczonej drogi. To normalne i nie powinno nas zniechęcać do ponownego wejścia na wyznaczoną drogę. Czyli jak to jest nic nie musze a wszystko mogę ?
+
+![](/images/bckfwd-VMK9uqMqavA-unsplash.jpg)
+
+Bckfwd z Unsplash
 
 **Nikt nie przykład Ci pistoletu do głowy**
 
