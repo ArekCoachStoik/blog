@@ -48,7 +48,9 @@ Bckfwd z Unsplash
 
 **Nikt nie przykład Ci pistoletu do głowy**
 
-Realnie tak jest. Ten podtytuł zaczerpnąłem bezpośrednio z książki "Stoicyzm na każdy dzień roku "(22 lipca). To sedno naszych powinności. To nie przymus to wybór. Wybór na który według stoików mamy 100% wpływ. Tylko od nas zależy jak postąpimy. Nikt nie może nam kazać. Oznacza to, że faktycznie nic nie musimy. Tak jak nie musimy realizować naszych powinności tak nie musimy ich traktować jako przymusu. Kiedy uda nam się przestawić w głowie ten stereotyp powinności staną się naszą drogą a wszystko to co nimi nie jest będziemy mogli przyporządkować do hasła  "nic nie muszę wszystko mogę". 
+Realnie tak jest. Ten podtytuł zaczerpnąłem bezpośrednio z książki "Stoicyzm na każdy dzień roku "(22 lipca). To sedno naszych powinności. To nie przymus to wybór. Wybór na który według stoików mamy 100% wpływ. Tylko od nas zależy jak postąpimy. Nikt nie może nam kazać. Oznacza to, że faktycznie nic nie musimy - również realizować naszych powinności co szybko sprowadzi nas  z drogi bycia dobrym człowiekiem - taki wybór również możemy podjąć i wiele osób go podejmuje. 
+
+I tak jak nie musimy realizować naszych powinności tak i również nie musimy ich traktować jako przymusu. Kiedy uda nam się przestawić w głowie ten stereotyp **powinności staną się naszą ciekawą i oświetloną drogą** a wszystko to co powinnościami nie jest będziemy mogli przyporządkować do hasła  "nic nie muszę wszystko mogę". 
 
 Jak zawsze na koniec życzenia.
 
