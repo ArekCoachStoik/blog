@@ -34,26 +34,24 @@ _Teraz harmonia została zburzona. Koniec z dopasowaniem, koniec z pięknem, kon
 
 _Stare słomiane krzesło zostało wygnane przez skórzany fotel. Mój stary, drewniany stół musiał ustąpić miejsca kosztownemu biurku z drogiego drewna. Ryciny bez ram zostały zastąpione przez obrazy w ciężkich, złotych oprawach. [...] Stałem się niewolnikiem tego wszystkiego. Strach przed plamą rządzi teraz moim życiem”_.
 
-Jakże ta historia przypomina mi moje doświadczenie związane z ekspresem do kawy. Po latach korzystania z wysłużonego automatu przyszedł czas na zmianę. W naszym domu zagościł nowiutki piękny czerwony ekspres z amerykańskiej stajni produktów gospodarstwa domowego. Jakaż była radość z jego uruchomienia. Nagle coś przestało grać - dotychczasowa kawa okazała się za słaba.  Jedyną opcją aby nowy nabytek zrobił porządną kawę okazało się zainwestowanie w świeżo palone ziarna - w sumie tylko troszkę droższe wciąż jednak nie te tańsze. Głowa podpowiadała, że jakoś tak nie pasuje aby świetny ekspres parzył marną kawę :-). Pragmatyzm zneutralizowany przez pragnienie doskonałości - efekt Diderot w pełnej krasie.
+Jakże ta historia przypomina mi moje doświadczenie związane z ekspresem do kawy. Po latach korzystania z wysłużonego automatu przyszedł czas na zmianę. W naszym domu zagościł nowiutki piękny czerwony ekspres z amerykańskiej stajni produktów gospodarstwa domowego. Jakaż była radość z jego uruchomienia. Nagle coś przestało grać - dotychczasowa kawa okazała się za słaba.  Jedyną opcją aby nowy nabytek zrobił porządną kawę okazało się zainwestowanie w świeżo palone ziarna - w sumie tylko troszkę droższe wciąż jednak nie te tańsze. Głowa podpowiadała, że jakoś tak nie pasuje aby świetny ekspres parzył marną kawę :-). Pragmatyzm zneutralizowany przez pragnienie doskonałości - efekt Diderot w pełnej krasie. 
 
 Ta psychologiczna skłonność do podnoszenie poprzeczki i spójności z tym co najlepsze to nie jedyna pułapka jaką zastawia nasza głowa. Innym niebezpiecznym mechanizmem jest błyskawiczna adaptacja do aktualnego poziomu szczęścia nazywana Hedoniczną adaptacją.
 
 **HEDONICZNA ADAPTACJA** 
 
-Hedoniczna adaptacja nazywana też "hedoniczną bieżnią" to tendencja człowieka do przyzwyczajania się do dobrobytu. Pochodzi od greckiego słowa _hēdonē_, które oznacza **przyjemność** lub rozkosz. W psychologii odnosi się do wszystkiego, co związane z odczuwaniem szczęścia, i satysfakcji połączona z adaptacją wskazuje jak szybko wszystko co mamy i sprawiało nam szczęście i satysfakcje powszednieje i pobudza nasze pragnienia aby chcieć więcej. Analogia z bieżnią pochodzi od badań psychologicznych z końca lat 90 poprzedniego stulecia. Badania te porownały ciągłą gonitwę za poprawą dobrobytu do biegnięcia po bieżni. NIezależnie od tego co zrobimy jakiego wysiłku nie włożymy w nowe buty, trening personalny i czy jakość samej bieżni cały czas będziemy w tym samym miejscu - efekt adaptacji sprowadzi nas w to samo miejsce. Pragmatyzm podpowiedziałby, że nie warto a myśl Seneki z początku powinna przemówić z jeszcze większą siłą. NIe szukajmy szczęścia  realizując kolejne pragnienia - cieszymy się tym co mamy a poziom naszego szczęścia na stałem nie powinien niczym się różnić od tych chwilowych popraw nastroju wywoływanych przed dopaminowy strzał.
+Hedoniczna adaptacja nazywana też "hedoniczną bieżnią" to tendencja człowieka do przyzwyczajania się do dobrobytu. Pochodzi od greckiego słowa _hēdonē_, które oznacza **przyjemność** lub rozkosz. W psychologii odnosi się do wszystkiego, co związane z odczuwaniem szczęścia, i satysfakcji połączona z adaptacją wskazuje jak szybko wszystko co mamy i sprawiało nam szczęście i satysfakcje powszednieje i pobudza nasze pragnienia aby chcieć więcej. Analogia z bieżnią pochodzi od badań psychologicznych z końca lat 90 poprzedniego stulecia. Badania te porównały ciągłą gonitwę za poprawą dobrobytu do biegnięcia po bieżni. NIezależnie od tego co zrobimy jakiego wysiłku nie włożymy w nowe buty, trening personalny i czy jakość samej bieżni cały czas będziemy w tym samym miejscu - efekt adaptacji sprowadzi nas w to samo miejsce. Pragmatyzm podpowiedziałby, że nie warto a myśl Seneki z początku powinna przemówić z jeszcze większą siłą. Nie szukajmy szczęścia  realizując kolejne pragnienia - cieszymy się tym co mamy a poziom naszego szczęścia na stałem nie powinien niczym się różnić od tych chwilowych popraw nastroju wywoływanych przed dopaminowy strzał. Strzał, który jest uzależniający i niebezpieczny gdyż w dłuższej perspektywie tworzy pustkę. Nawiązując do polskiego rapu i najnowszego kawałka Fisha i Taco Impulsy - "Nic nie czujemy" ciągle poszukując impulsu z mediów społecznościowych nazywanych coraz częściej "anty-social media",  gdyż zamiast jakiejkolwiek wartości tworzą one samotność i smutek.
 
 **NIESZCZEŚCIE A SZCZĘŚCIE ZENONA Z KITION**
 
-Dicson z Unsplash
-
-**MATERIALISTYCZNE MUSZĘ**
+Czy w takim razie w dobie ciągłej gonitwy za sukcesem, hedonicznej adaptacji i niekończących się kreacji potrzeb vide efekt Diderota jest jakiś sposób na opamiętanie. Historia Zenona z Kition założyciela szkoły stoickiej pokazuje, że czasami potrzebne jest trudne doświadczenie  aby pragmatycznie podejść do życia. Zenon będąc bogatym kupcem musiał skonfrontować swoje życie z zatonięciem statu z całym swoim towarem, a następnie dzięki filozofii odnalazł szęście i radość w tym co miał ani smutek w tym co stracił. Słynny jest jego cytat " „Dlatego, że mój okręt zatonął, moja podróż się powiodła”.  Warto czasami zrobić krok wstecz, aby dostrzec wartość z rzeczy/relacji które nadal posiadamy niezależnie od tego, że być może było coś (szczególnie jeśli to miało charakter materialny) co zostało nam odebrane lub sami z tego musieliśmy zrezygnować. Zenon stracił statek, ty może dom lub kogoś bliskiego - czerp z tego czym dysponujesz a Twoja podróż też się powiedzie.
 
 Jak zawsze na koniec życzenia.
 
 **.**
 
-**Życzę Ci aby Twoje powinności nie były dla Ciebie powodem frustracji a źrodłem radości i satysfakcji wynikającej z tego że stajesz się lepszym człowiekiem.**
+**Życzę Ci abyś myślał pragmatycznie i nie musiał doświadczyć nieszczęścia aby zrozumieć jak dużo radości i pożytku można mieć z tego co się ma zamiast rozpaczać za tym czego się nie ma.**
 
-**POWINNOŚĆ TO DAR - POWODZENIA !**
+**PRAGMATYZM TO SIŁA A NIE BRAK WIARY !**
 
 **ARCOS**
