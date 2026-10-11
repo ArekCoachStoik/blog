@@ -18,7 +18,7 @@ _„Żaden człowiek nie posiada takiej władzy, by mieć wszystko, czego pragni
 
 **CZY NAPRAWDĘ NIE MOŻNA MIEĆ WSZYSTKIEGO ?** 
 
-Stoicy byli i są **pragmatykami** a nie mnichami. Nie zachęcają do ortodoksyjnego myślenia, że tylko osoba, która niczego nie pragnie ma wszystko. Ich myślenie idzie w kierunku ograniczania pragnień, szczególnie tych materialnych i równoległe wykorzystywanie i cieszenie się z tego co mamy dostępne. Zachęcają do korzystania z życia a nie bycia pasywnym. 
+Stoicy byli i są **pragmatykami** a nie mnichami. Nie zachęcają do ortodoksyjnego myślenia, że tylko osoba, która niczego nie pragnie może powiedzieć że niczego jej nie brakuje.  Ich myślenie idzie w kierunku ograniczania pragnień, szczególnie tych materialnych i równoległe wykorzystywanie i cieszenie się z tego co mamy dostępne. Zachęcają do korzystania z życia a nie bycia pasywnym. 
 
 Jakiś czas temu spotkałem osobę, której miała nietypowy typ myślenia. Przyświecało jej hasło "zero oczekiwań zero rozczarowań". Mimo, że na pierwszy rzut mogło one wydawać się stoickie to takie nie jest. Stoicy powiedzieli by "ogranicz oczekiwania zwiększysz szanse na ich realizacje". W sposób rozsądny dokonaj wyboru na co poświęcasz swój czas i energię - zawęź to czego naprawdę oczekujesz do spraw ważnych dla Ciebie. Czas i energia  to zasoby skończone poświęcone na jedno nie wystarczą na drugie. Jedyna droga to ograniczyć potrzeby szczególnie te materialne - czyli minimalizm ?
 
