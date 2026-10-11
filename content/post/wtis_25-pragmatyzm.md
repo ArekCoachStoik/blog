@@ -22,9 +22,15 @@ Stoicy byli i są **pragmatykami** nie mnichami. NIe zachęcają do ortodoksyjne
 
 ![](/images/alexander-grey-ZihPQeQR2wM-unsplash.jpg)
 
+Alexander Grey na Unsplash
+
 **NIE ŻYJEMY W PRÓŻNI**
 
 Nasza silna wola czyli to co jest w naszej mocy w konfrontacji z dzisiejszym światem bardzo często rozpada się jak domek z kart. Jest ona narażona na ciągłe porównywanie się z innymi. W obliczu mediów społecznościowych i cyfrowego świata porównujemy się z nim całym. A co tam najlepiej widać ? Perfekcyjne, życie któremu nic nie brakuje - można by rzec na wyciągnięcie ręki mamy ludzi którzy wszystko mają. Jak łatwo ulec zatem złudzeniu, że wszystko można osiągąć trzeba tylko pragnąć. Niestety w świetle niebieskich ekranów po za naszym zafrasowanym odbiciem nie odbija się koszt jaki stoi za tym nierealnym światem. Ciągłe ocenianie, dążenie do doskonałości jeśli chodzi o wygląd fizyczny, niekończąca próba poprawienia a przynajmniej utrzymania status finansowego, który często jest powierzchowny i na kredyt. To jest realny świat, który jest ukrywany gdyż jest źródłem wielu leków, rozczarowań - tragedii. Jednak bez dobrej świadomości tego jaki jest prawdziwy koszt "idealnego" życia silna wola minimalizmu i skupienia się na tym co mamy poddawana jest próbie z którą często nie dajemy sobie rady. Lawina pragnień zaczyna lecieć w dół a my stoimy u podstawy tej góry nieświadomi jeszcze nieszczęścia jakie może nam spać na głowę. Czy jednak tyko świat zewnętrzny wpływa na nasze pragnienia - a co z naszą głową?
+
+![](/images/rafael-as-martins-ZsALpTRPyh4-unsplash.jpg)
+
+Rafale as Martins na Unsplash
 
 **EFEKT DIDEROTA**
 
@@ -39,6 +45,8 @@ _Stare słomiane krzesło zostało wygnane przez skórzany fotel. Mój stary, dr
 Jakże ta historia przypomina mi moje doświadczenie związane z ekspresem do kawy. Po latach korzystania z wysłużonego automatu przyszedł czas na zmianę. W naszym domu zagościł nowiutki piękny czerwony ekspres z amerykańskiej stajni produktów gospodarstwa domowego. Jakaż była radość z jego uruchomienia. Nagle coś przestało grać - dotychczasowa kawa okazała się za słaba.  Jedyną opcją aby nowy nabytek zrobił porządną kawę okazało się zainwestowanie w świeżo palone ziarna - w sumie tylko troszkę droższe wciąż jednak nie te tańsze. Głowa podpowiadała, że jakoś tak nie pasuje aby świetny ekspres parzył marną kawę :-). Pragmatyzm zneutralizowany przez pragnienie doskonałości - efekt Diderot w pełnej krasie. 
 
 Ta psychologiczna skłonność do podnoszenie poprzeczki i spójności z tym co najlepsze to nie jedyna pułapka jaką zastawia nasza głowa. Innym niebezpiecznym mechanizmem jest błyskawiczna adaptacja do aktualnego poziomu szczęścia nazywana Hedoniczną adaptacją.
+
+![](/images/images%20%281%29.jpeg)
 
 **HEDONICZNA ADAPTACJA** 
 
