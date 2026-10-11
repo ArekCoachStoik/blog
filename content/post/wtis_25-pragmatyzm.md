@@ -30,7 +30,7 @@ Alexander Grey na Unsplash
 
 **NIE ŻYJEMY W PRÓŻNI** 
 
-Nasza silna wola czyli to co jest w naszej mocy w konfrontacji z dzisiejszym światem bardzo często rozpada się jak domek z kart. Jest ona narażona na ciągłe porównywanie się z innymi. W obliczu mediów społecznościowych i cyfrowego świata porównujemy się z nim całym. A co w tym świecie najlepiej widać - niestety dużo "ciekawego": 
+Nasza silna wola czyli to co jest w naszej mocy w konfrontacji z dzisiejszym światem bardzo często rozpada się jak domek z kart. Jest ona narażona na ciągłe porównywanie się z innymi. W obliczu mediów społecznościowych i cyfrowego świata porównujemy się z nim całym. A co w tym świecie najlepiej widać - niestety dużo "ciekawego":  
 
 Perfekcyjne, życie któremu nic nie brakuje - można by rzec na wyciągnięcie ręki mamy ludzi którzy wszystko mają. Jak łatwo ulec zatem złudzeniu, że wszystko można osiągąć trzeba tylko pragnąć. Niestety w świetle niebieskich ekranów po za naszym zafrasowanym odbiciem nie odbija się koszt jaki stoi za tym nierealnym światem. Ciągłe ocenianie, dążenie do doskonałości jeśli chodzi o wygląd fizyczny (tzw. "looksmaxxing"), niekończąca walka o poprawienia status finansowego, który często jest powierzchowny i na kredyt. To jest realny świat, który jest ukrywany będąc źródłem wielu leków, rozczarowań - tragedii. 
 
