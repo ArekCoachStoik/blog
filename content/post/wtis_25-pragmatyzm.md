@@ -12,25 +12,25 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-_„Żaden człowiek nie posiada takie władzy, by mieć wszystko, czego pragnie. Pozostaje jednak w naszej mocy nie chcieć tego, czego nie mamy”i radośnie robić pożytek, z tego co posiadamy"_ – Seneka.
+_„Żaden człowiek nie posiada takiej władzy, by mieć wszystko, czego pragnie. Pozostaje jednak w naszej mocy nie chcieć tego, czego nie mamy i radośnie robić pożytek, z tego co posiadamy"_ – Seneka.
 
 .
 
 **CZY NAPRAWDĘ NIE MOŻNA MIEĆ WSZYSTKIEGO ?** 
 
-Stoicy byli i są **pragmatykami** nie mnichami. NIe zachęcają do ortodoksyjnego myślenia że tylko osoba która niczego nie pragnie ma wszystko. Ich myślenie idzie w kierunku ograniczania pragnień, szczególnie tych materialnych i równoległe wykorzystywanie cieszenie się z tego co mamy dostępne. Zachęcają do korzystania z życia, nie bycia pasywnym. Jakiś czas temu spotkałem osobę, której przyświecało hasło "zero oczekiwań zero rozczarowań". 
+Stoicy byli i są **pragmatykami** a nie mnichami. Nie zachęcają do ortodoksyjnego myślenia, że tylko osoba, która niczego nie pragnie ma wszystko. Ich myślenie idzie w kierunku ograniczania pragnień, szczególnie tych materialnych i równoległe wykorzystywanie i cieszenie się z tego co mamy dostępne. Zachęcają do korzystania z życia a nie bycia pasywnym. 
 
-Mimo, że na pierwszy rzut mogło one wydawać się stoickie to takie nie jest. Stoicy powiedzieli by "Ogranicz oczekiwania zwiększysz szanse na ich realizacje  a zmniejszysz ilość szanse na rozczarowanie". W sposób rozsądny dokonaj wyboru na co poświęcasz swój czas i energię - zawęź to czego naprawdę oczekujesz i chcesz mieć. Czas i energia  to zasoby skończone poświęcone na jedno nie wystarcza na drugie - musisz ograniczyć potrzeby szczególnie te materialne. 
+Jakiś czas temu spotkałem osobę, której miała nietypowy typ myślenia. Przyświecało jej hasło "zero oczekiwań zero rozczarowań". Mimo, że na pierwszy rzut mogło one wydawać się stoickie to takie nie jest. Stoicy powiedzieli by "ogranicz oczekiwania zwiększysz szanse na ich realizacje". W sposób rozsądny dokonaj wyboru na co poświęcasz swój czas i energię - zawęź to czego naprawdę oczekujesz do spraw ważnych dla Ciebie. Czas i energia  to zasoby skończone poświęcone na jedno nie wystarczą na drugie. Jedyna droga to ograniczyć potrzeby szczególnie te materialne - czyli minimalizm ?
 
-A minimalizm jest bardzo pragmatyczny i zarazem stoicki. Pozwala skupić naszą uwagę na rzeczach i sprawach najważniejszych, rezygnując z wielu pragnień, które bardzo często są źródłem frustracji i rozczarowań. Carpe diem cytując za Horacym, wykorzystując i robiąc pożytek z tego co jest w naszym zasięgu. Na drugim końcu jest ciągłe pragnienie więcej i więcej, które z natury kończy się niepowodzeniem, smutkiem - niezadowoleniem. I najważniejsze na co wskazuje Seneka to, że bycie pragmatykiem jest w naszej mocy i nikt i nic nie powinno nam w tym przeszkodzić - dlaczego zatem dzieje się inaczej ?
+A jakże -minimalizm jest bardzo pragmatyczny i zarazem stoicki. Pozwala skupić naszą uwagę na rzeczach i sprawach najważniejszych, rezygnując z wielu pragnień, które bardzo często są źródłem frustracji i rozczarowań. Carpe diem cytując za Horacym, wykorzystując i robiąc pożytek z tego co jest w naszym zasięgu. Na drugim końcu jest ciągłe pragnienie więcej i więcej, które z często kończy się niepowodzeniem, smutkiem - niezadowoleniem z życia.  Chciałem tutaj podkreślić to na co wskazują Seneka. Bycie **pragmatykiem** i korzystanie z tego co posiadamy jest w naszej mocy i nikt i nic nie powinno nam w tym przeszkodzić. Dlaczego zatem dzieje się inaczej i nasza silna wola nie daje rady ?
 
 ![](/images/alexander-grey-ZihPQeQR2wM-unsplash.jpg)
 
 Alexander Grey na Unsplash
 
-**NIE ŻYJEMY W PRÓŻNI**
+**NIE ŻYJEMY W PRÓŻNI** 
 
-Nasza silna wola czyli to co jest w naszej mocy w konfrontacji z dzisiejszym światem bardzo często rozpada się jak domek z kart. Jest ona narażona na ciągłe porównywanie się z innymi. W obliczu mediów społecznościowych i cyfrowego świata porównujemy się z nim całym. A co tam najlepiej widać ? 
+Nasza silna wola czyli to co jest w naszej mocy w konfrontacji z dzisiejszym światem bardzo często rozpada się jak domek z kart. Jest ona narażona na ciągłe porównywanie się z innymi. W obliczu mediów społecznościowych i cyfrowego świata porównujemy się z nim całym. A co w tym świecie najlepiej widać - ? 
 
 Perfekcyjne, życie któremu nic nie brakuje - można by rzec na wyciągnięcie ręki mamy ludzi którzy wszystko mają. Jak łatwo ulec zatem złudzeniu, że wszystko można osiągąć trzeba tylko pragnąć. Niestety w świetle niebieskich ekranów po za naszym zafrasowanym odbiciem nie odbija się koszt jaki stoi za tym nierealnym światem. Ciągłe ocenianie, dążenie do doskonałości jeśli chodzi o wygląd fizyczny tzw. obecnie "looksmaxxing", niekończąca próba poprawienia a przynajmniej utrzymania status finansowego, który często jest powierzchowny i na kredyt. To jest realny świat, który jest ukrywany gdyż jest źródłem wielu leków, rozczarowań - tragedii. 
 
