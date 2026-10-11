@@ -2,7 +2,7 @@
 title: WTiS_25 - PRAGMATYZM
 date: 2026-08-30T07:41:00
 description: WODA TLEN I SEN
-featured_image: /images/dicson-tExB6wdErkQ-unsplash.jpg
+featured_image: /images/tim-bogdanov-4uojMEdcwI8-unsplash.jpg
 draft: false
 ---
 
