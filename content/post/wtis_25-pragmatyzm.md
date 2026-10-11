@@ -80,6 +80,6 @@ Jak zawsze na koniec życzenia.
 
 **Życzę Ci abyś myślał pragmatycznie i nie musiał doświadczyć nieszczęścia aby zrozumieć jak dużo radości i pożytku można mieć z tego co się ma zamiast rozpaczać za tym czego się nie ma.**
 
-**PRAGMATYZM TO SIŁA A NIE BRAK WIARY !**
+**PRAGMATYZM TO SIŁA A NIE BRAK AMBICJI POSIADNIA WIĘCEJ!**
 
 **ARCOS**
