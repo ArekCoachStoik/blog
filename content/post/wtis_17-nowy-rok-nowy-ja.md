@@ -1,10 +1,11 @@
 ---
 title: WTiS_17 - NOWY ROK NOWY TY
-date: 2025-12-30T18:26:00
+date: 2025-12-29T18:26:00
 description: WODA TLEN I SEN
 featured_image: /images/boliviainteligente-4MVUGZfMTuI-unsplash.jpg
 draft: false
 ---
+
 DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpisów mocno zachęcam aby rozpocząć od [TU ZACZNIJ](https://wodatlenisen.site/about/) a następni zapraszam do przeczytania wszystkich wpisów na blogu zaczynając od [WTiS - WODA_01](https://wodatlenisen.site/post/wtis01/). Gorąco zachęcam - ARCOS.
 
 „_Podstawowe zadanie w życiu polega na tym, by identyfikować i odpowiednio dzielić sprawy na zewnętrzne , nad którymi nie mamy kontroli oraz na te związane z naszymi wyborami"_ - Epiktet
