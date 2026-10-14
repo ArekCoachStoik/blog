@@ -1,6 +1,6 @@
 ---
 title: WTiS_20 - ŚWIADOMOŚĆ
-date: 2026-03-31T06:44:00
+date: 2026-03-29T06:44:00
 description: WODA TLEN I SEN
 featured_image: /images/luemen-rutkowski-EKa3EPL37Dc-unsplash.jpg
 draft: false
