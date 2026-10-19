@@ -12,13 +12,26 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-_„XXX"_ – Seneka.
+_„Uważam Cię za pechowca, ponieważ nigdy nie zmierzyłeś się z przeciwnościami losu. Przeszedłeś przez życie bez przeciwnika. Nikt - nawet ty - nie wie do czego jesteś zdolny"_ – Seneka.
 
 .
 
-**CZY NAPRAWDĘ NIE MOŻNA MIEĆ WSZYSTKIEGO ?** 
+**PRZECIWNOŚCI TO NIE PROBLEM TO WYZWANIE**
 
 XXX
+
+**JEŚLI SIĘ CZEGOŚ LĘKAĆ TO TYLKO LĘKU**
+
+XXX
+
+**ODPORNOŚĆ NA HEJT**
+
+XXX
+
+**HARTOWANIE DUCHA**
+
+XXX
+
 
 Jak zawsze na koniec życzenia.
 
