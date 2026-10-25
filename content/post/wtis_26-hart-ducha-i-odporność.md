@@ -48,14 +48,14 @@ Dlatego tak ważne jest to aby zbudować wewnętrzny mur o który cały ten hejt
 
 **HARTOWANIE DUCHA**
 
-Hartowanie odbywa się w zmiennych warunkach. Stąd początkowa myśl Seneki że bez zrozumienia jak silny jest nasz hart ducha nie wiadomo na co nas stać. Dopiero w konfrontacji z przeciwnościami ujawnia się jego prawdziwa szlachetność i siła. Niestety jak z każdą sprawą bez pracy nie ma kołaczy i jeśli nad nim nie pracujemy za wczasu oraz nie wykorzystujemy każdej nadarzającej się okazji aby go wzmacniać w konfrontacji z prawdziwymi kłopotami nie dajemy rady sobie z katarem a co dopiero z prawdziwymi przeciwnościami jakie życie stawia przed nami. Do tych przeciwności można podchodzić jak do próby - jak stoicy. Można też podejść do tego jak do ćwiczeń cytując za komandosem Navy SEALs - „Im więcej potu na ćwiczeniach, tym mniej krwi w boju”. Wykorzystuj każdą przeciwność aby hartować swojego ducha a do tego potrzebujesz mieć dobrze zdefiniowany kręgosłup moralny (wiecej na ten temat znajdziesz [TUTAJ](https://wodatlenisen.site/admin/#/collections/blog/entries/WTIS13) - to on wskaże Ci jak trzeba działać niezależnie od tego co się dzieje dookoła. Niech on będzie oparty o wierze, cnotach stoickich czy innych wartościach, które przez wieki pomagały ludziom przetrwać wszelkie przeciwności.
+Hartowanie odbywa się w zmiennych warunkach. Stąd początkowa myśl Seneki że bez zrozumienia jak silny jest nasz hart ducha nie wiadomo na co nas stać. Dopiero w konfrontacji z przeciwnościami ujawnia się jego prawdziwa szlachetność i siła. Niestety jak z każdą sprawą bez pracy nie ma kołaczy i jeśli nad nim nie pracujemy za wczasu oraz nie wykorzystujemy każdej nadarzającej się okazji aby go wzmacniać w konfrontacji z prawdziwymi kłopotami nie dajemy rady sobie z katarem a co dopiero z prawdziwymi przeciwnościami jakie życie stawia przed nami. Do tych przeciwności można podchodzić jak do próby - jak stoicy. Można też podejść do tego jak do ćwiczeń cytując za komandosem Navy SEALs - „Im więcej potu na ćwiczeniach, tym mniej krwi w boju”. Wykorzystuj każdą przeciwność aby hartować swojego ducha a do tego potrzebujesz mieć dobrze zdefiniowany kręgosłup moralny (wiecej na ten temat znajdziesz [TUTAJ](https://wodatlenisen.site/admin/#/collections/blog/entries/WTIS13) ) - to on wskaże Ci jak trzeba działać niezależnie od tego co się dzieje dookoła. Niech on będzie oparty o wierze, cnotach stoickich czy innych wartościach, które przez wieki pomagały ludziom przetrwać wszelkie przeciwności.
 
 Jak zawsze na koniec życzenia.
 
 **.**
 
-**Życzę Ci abyś myślał pragmatycznie i nie musiał doświadczyć nieszczęścia aby zrozumieć jak dużo radości i pożytku można mieć z tego co się ma zamiast rozpaczać za tym czego się nie ma.**
+**Życzę Ci abyś sie nie lekał i wykorzystywał każdą przeciwność do treningu nad hartem swego ducha ".**
 
-**PRAGMATYZM TO SIŁA A NIE BRAK AMBICJI POSIADNIA WIĘCEJ!**
+**BĄDŹ ANTYKRUCHY !**
 
 **ARCOS**
