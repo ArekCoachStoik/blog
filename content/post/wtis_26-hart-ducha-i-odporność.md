@@ -18,7 +18,7 @@ _„Uważam Cię za pechowca, ponieważ nigdy nie zmierzyłeś się z przeciwno�
 
 **PRZECIWNOŚCI TO NIE PROBLEM TO WYZWANIE**
 
-XXX
+Do
 
 **JEŚLI SIĘ CZEGOŚ LĘKAĆ TO TYLKO LĘKU**
 
@@ -31,7 +31,6 @@ XXX
 **HARTOWANIE DUCHA**
 
 XXX
-
 
 Jak zawsze na koniec życzenia.
 
