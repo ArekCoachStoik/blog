@@ -2,7 +2,7 @@
 title: WTiS_26 - HART DUCHA I ODPORNOŚĆ
 date: 2026-09-29T07:41:00
 description: WODA TLEN I SEN
-featured_image: /images/tim-bogdanov-4uojMEdcwI8-unsplash.jpg
+featured_image: /images/thomas-marquize-RUvRGJ7y7BA-unsplash.jpg
 draft: false
 ---
 
@@ -22,6 +22,10 @@ Dość naiwnie zakładamy, że brak problemów i przeszkód na naszej drodze to 
 
 Jeśli spojrzymy dodatkowo na przeciwności losu jako na wyzwanie od razu ustawimy się w pozycji działania a nie rozłożymy bezradnie ręce. W takim spojrzeniu pomaga ciągłe budowanie w sobie nastawienia na rozwój ( ang. growth mindset). Czego mogę się nauczyć z przeciwności losu, jak mogę wykorzystać tą sytuacje dla siebie i innych,  czy ta sytuacja nie może finalnie mieć pozytywnego wpływu na mnie i moje otoczenie. Takie myślenie to klucz aby przeciwności stawały się wyzwaniem okazją do swoje rozwoju w odróżnieniu od myślenia zachowawczego, ostrożnego ( ang. fixed mindset), które stawia nas w pozycji wyczekującej i skupiającej się na samym nieszczęściu - akceptująca status qiuo. Często przy braku odporności na wyzwania kreuje lęk i niepokój.
 
+![](/images/sanket-mishra-w_ZMt-WNV_M-unsplash.jpg)
+
+Sanket Mishra z Unsplash
+
 **JEŚLI SIĘ CZEGOŚ LĘKAĆ TO TYLKO LĘKU**
 
 "Nie lękajcie się" to  najsłynniejsze wezwanie św. Jana Pawła II, wypowiedziane po raz pierwszy 22 października 1978 roku w Watykanie podczas Mszy św. inaugurującej jego pontyfikat. Papież wskazał lęk jako kluczowe zagrożenie w walce z przeciwnościami (takim jak brak wiary czy usunięcie totalitaryzmów). Jeśli się nie lękamy, mamy otwarte głowy - wszystko jest możliwe. Dlatego paradoksalnie jedyną rzeczą której warto się lękać i na nią się udopornić jest sam lęk. 
@@ -40,11 +44,19 @@ _Gdy minął rok, na pograniczu wybuchła krwawa wojna. Wojsko najeźdźców prz
 
 Podsumowując "dobrze czy nie dobrze to się jeszcze okaże" i lękanie się jak również zbytni optymizm w danej chwili nie jest wskazany. Jednak patrzmy na przeciwności z ciekawością a nie lękiem.
 
+![](/images/holly-mandarich-kCpCd6oQTCw-unsplash.jpg)
+
+Holly Mandarich z Unsplash
+
 **ODPORNOŚĆ NA HEJT**
 
 Jest jednak jeden rodzaj przeciwności z którym szczególnie cieżko jest sobie poradzić. To negatywne często nieuczciwe opinie ludzi na nasz temat. W obecnych czasach mediów społecznościowych (wybacz ale będę dalej przypominał ich przewrotną nazwę any-social media) jest to szczególnie niebezpieczne. Jeśli jesteś osobą aktywną w przestrzenie online każde Twoje działanie, zdjęcie, komentarz poddany jest ocenie innych. O ile informacja zwrotna(tzw feedback) dostarczony w odpowiedni zbilansowany sposób ma swoją wartość o tyle opinie których celem jest bezwzględna krytyka mająca znamiona hejtu już mogą zaboleć. Lęk przed takimi sytuacjami bardzo często kreuje w nas potrzebę kreowania nieprawdziwego wizerunku - zatracamy siebie dla opinii innych. 
 
 Dlatego tak ważne jest to aby zbudować wewnętrzny mur o który cały ten hejt się rozbija. Fundamentem tego muru jest współczucie. Jeśli dotknie Cie jakaś niesprawiedliwa, hejterska opinia pomyśl jak smutne musi mieć życie osoba która to robi. Ile bólu i leków musi nieść w sobie aby w ten sposób reagować na innych. Jak bardzo ma zamkniętą głowę i sposób myślenia aby mówić bądź pisać takie rzeczy. Współczuj i bądź wdzięcznym za że ty taki nie jesteś. Jeśli w tym murze znajdziesz jeszcze siłę na to aby takiej osobie pomóc niezależnie od tego czy to się uda czy nie pokażesz swoim życiem że niczego się nie lękasz a każdą przeciwność nawet tą najbardziej osobistą traktujesz jako wyzwanie.
+
+![](/images/ziko-liu-mXrl5IjIpyI-unsplash.jpg)
+
+Ziko Liu z Unsplash
 
 **HARTOWANIE DUCHA**
 
