@@ -12,7 +12,7 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-_„Uważam Cię za pechowca, ponieważ nigdy nie zmierzyłeś się z przeciwnościami losu. Przeszedłeś przez życie bez przeciwnika. Nikt - nawet ty - nie wie do czego jesteś zdolny"_ – Seneka.
+**_„Uważam Cię za pechowca, ponieważ nigdy nie zmierzyłeś się z przeciwnościami losu. Przeszedłeś przez życie bez przeciwnika. Nikt - nawet ty - nie wie do czego jesteś zdolny"_ – Seneka.**
 
 .
 
