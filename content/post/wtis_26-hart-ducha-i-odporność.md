@@ -2,7 +2,7 @@
 title: WTiS_26 - HART DUCHA I ODPORNOŚĆ
 date: 2026-09-29T07:41:00
 description: WODA TLEN I SEN
-featured_image: /images/marcel-strauss-nhUYyqi8yRE-unsplash.jpg
+featured_image: /images/svklimkin-Md449nTVCXk-unsplash.jpg
 draft: false
 ---
 
