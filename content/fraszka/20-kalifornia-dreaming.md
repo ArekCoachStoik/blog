@@ -11,7 +11,7 @@ Czas był to niezwykły, godzin trzy i trzydzieści,
 
 Krótka noc, dzień długi, wszystko to pomieści.
 
-Święty Franciszek wita swym mostem stalowym,
+Święty Franciszek wita mostem swym stalowym,
 
 Golden Gate’em, nie złotym, lecz całym czerwonym.
 
@@ -29,17 +29,17 @@ Gringo „okupantów” ostudzili nastroje.
 
 Czas poznać to miasto, a uliczki jak w górach
 
-Całe wystrojone są w wiktoriańskich murach.
+Całe są wystrojone w wiktoriańskich murach.
 
 Bez starego tramwaju nie ruszaj pod górę,
 
-Bo nóżki twe dostaną zdrowo w swoją skórę.
+Bo twe nóżki dostaną zdrowo w swoją skórę.
 
 ![](/images/IMG-0809.jpg)
 
 San Francisco potrafi łatwo oczarować,
 
-Chce się wnet tu wracać, na nowo go smakować.
+Chce się tu powracać, na nowo go smakować.
 
 Ruszamy raniutko, jet lag lepszy niż budzik,
 
@@ -49,7 +49,7 @@ Przed nami park Yosemite — niemały to trudzik.
 
 El Capitan dumnie strzeże wejścia doliny,
 
-Trek pod wodospad Vernal, zmęczone są miny.
+Trek pod wodospad Vernal, nie tęgie nasze miny.
 
 Widok na miejscu natychmiast poprawia humor,
 
@@ -59,7 +59,7 @@ Piękny, tęczowy gigant robi taki rumor,
 
 Że w pamięci zostanie naszej tu na zawsze,
 
-Księżycowy Half Dome koniec nam okrasze.
+Księżycowy Half Dome wyjazd nam okrasze.
 
 Park pierwszy za nami, kolejny ustawiamy,
 
@@ -79,7 +79,7 @@ Pustynia, skwar, depresja już tu na nas czeka.
 
 Fahrenheit, gdyby sam tych upałów doświadczył,
 
-Patrząc na swoją skalę, czoło by przymarszczył.
+Patrząc na swą skalę, pewnie czoło by zmarszczył.
 
 Co by martwym nie zostać, jedź Ścieżką Artystów,
 
@@ -87,19 +87,19 @@ Chwila poza autem jest tylko dla sadystów.
 
 ![](/images/IMG-0984.JPG)
 
-Droga kręta kanionami stąd wyprowadzi,
+Szlak kręty kanionami auto wyprowadzi,
 
 Kierunek na Las Vegas obrać, nie „Nevadzi”.
 
-Tam już Pałac Cezara czeka w swej pełnej krasie,
+Tam już Pałac Cezara czeka w pełnej krasie,
 
 W magicznym kasynie niejeden zgubić da się.
 
 ![](/images/IMG-8807.jpeg)
 
-Villa tam jak w „Kac Vegas”, kusi minibarkiem,
+Villa w nim jak w „Kac Vegas”, kusi minibarkiem,
 
-A spacer po Strip Street cały czas z zegarkiem,
+A spacer po Strip Street, cały czas z zegarkiem,
 
 By w Bellagio przy fontannie podczas pokazu
 
@@ -113,7 +113,7 @@ By klient o poranku na basen wyruszył.
 
 Cezar, Neptun, Apollo ruchem tu kierują,
 
-Czas mija wnet, a polskie dziewczyny brylują.
+Czas wnet mija, tam polskie dziewczyny brylują.
 
 ![](/images/IMG-1020.jpg)
 
@@ -123,7 +123,7 @@ Ups, outlecik i zniknęły kolejne koła.
 
 Również te od Mazdy, co zaliczyła przegląd,
 
-Czas ruszać już do Zion, co ma cudny wygląd.
+Czas ruszać już do Zion, co ma piękny wygląd.
 
 ![](/images/IMG-1076.JPG)
 
@@ -179,7 +179,7 @@ Zachodu i wschodu słońca nic tu nie przesłania.
 
 O poranku bieganko drogą asfaltową,
 
-Forresta Gumpa przykłady tu nam pomogą.
+Forresta Gumpa przykłady tutaj pomogą.
 
 Czas ruszać nad Kanion i to nie byle jaki,
 
@@ -249,11 +249,11 @@ Nawet gdy Hollywood Boulevard dobrze oświetlone.
 
 Coś się nie spina, bo gwiazdy na ziemi leżą,
 
-Elvisa, Michaela, Dolly, funi tu bieżą.
+Elvisa, Michaela, Dolly, funi tutaj bieżą.
 
 My też przybieżeli, jak ci pasterze,
 
-Z głośnika na rogu dużo słychać o wierze.
+Z głośnika na rogu słychać dużo o wierze.
 
 ![](/images/IMG-1612.JPG)
 
@@ -287,7 +287,7 @@ W miejsce „La La Landu” wrócimy, nie dziwota
 
 ![](/images/IMG-1747.JPG)
 
-.Noc ciemna, a droga do hotelu daleka,
+Noc ciemna, a droga do hotelu daleka,
 
 Nim dotrzemy, wyprzedaż za 5$ nas czeka.
 
@@ -297,9 +297,9 @@ Emocji co niemiara, uśmiechnięte lica.
 
 ![](/images/78056.jpg)
 
-Pobudka wczesna, bo studio już uniwersalne,
+Pobudka wczesna, bo dziś studio uniwersalne,
 
-Cokolwiek tam nie zrobimy, będzie zabawne.
+Co tam nie zrobimy, to będzie to zabawne.
 
 Święta Monika już czeka ze swym molem sławnym,
 
@@ -309,11 +309,11 @@ Route 66 kończy się tu znakiem poważnym.
 
 My sprytnie tak zboczku mijamy kolejki milę.
 
+Pod którym tłum turystów uwiecznić chce tą chwilę,
+
 Jeszcze szybkie Faithas, rzut oka na LA,
 
 Długo nie zapomnimy świetnej przygody tej.
-
-Pod którym tłum turystów uwiecznić chce tę chwilę,
 
 ![](/images/IMG-1785.jpg)
 
@@ -389,7 +389,7 @@ Nasz Chrysler z trudem dzisiejsze wzgórza przemierza.
 
 Wreszcie Santa Cruz, latarnia z mekką surferów,
 
-Ocean niespokojny, za mało spacerów spacerów.
+Ocean niespokojny, brak nam spacerów.
 
 Ruszamy starą jedynką w stronę San Francisco,
 
@@ -403,7 +403,7 @@ Golden Gate jest symbolem widocznym z oddali.
 
 My przyszliśmy blisko, by na koniec podróży
 
-Tu łatwo wspomnienia w pamięci zanurzyć.
+By wspomnienia na zawsze w pamięci zanurzyć.
 
 ![](/images/IMG-3997.jpeg)
 
