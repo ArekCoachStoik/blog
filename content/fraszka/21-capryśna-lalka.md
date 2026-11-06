@@ -1,5 +1,5 @@
 ---
-title: '#21 CAPRYŚNA LALKA'
+title: '#21 CAPRYŚNA WYSPA'
 date: 2026-10-31T17:55:00
 description: Cypr -  31.10-04.11
 featured_image: /images/IMG-1288.jpg
