@@ -157,7 +157,7 @@ Capryśny, słoneczny, smakami też zanęci
 
 Wrócimy tu chętnie na kolejne przygody
 
-Poznać caprysy, miast, ludzi - pięknej przyrody
+Poznać kaprysy miast, ludzi - pięknej przyrody
 
 .
 
