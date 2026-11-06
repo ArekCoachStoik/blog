@@ -1,5 +1,5 @@
 ---
-title: '#21 CAPRYŚNA WYSPA'
+title: '#21 CYPRYŚNA WYSPA'
 date: 2026-10-31T17:55:00
 description: Cypr -  31.10-04.11
 featured_image: /images/IMG-2293.jpg
@@ -153,7 +153,7 @@ Tym razem tęcza sporo dodała humoru
 
 Taki niech już zostanie Cypr w naszej pamięci
 
-Capryśny, słoneczny, smakami też zanęci
+Cypryśny, słoneczny, smakami też zanęci
 
 Wrócimy tu chętnie na kolejne przygody
 
