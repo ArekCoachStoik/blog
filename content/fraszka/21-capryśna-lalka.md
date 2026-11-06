@@ -159,4 +159,6 @@ Wrócimy tu chętnie na kolejne przygody
 
 Poznać caprysy, miast, ludzi - pięknej przyrody
 
+.
+
 ![](/images/IMG-2535.jpg)
