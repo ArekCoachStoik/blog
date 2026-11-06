@@ -2,8 +2,10 @@
 title: '#21 CAPRYŚNA WYSPA'
 date: 2026-10-31T17:55:00
 description: Cypr -  31.10-04.11
-featured_image: /images/IMG-1288.jpg
+featured_image: /images/IMG-2293.jpg
 ---
+
+![](/images/IMG-2475.JPG)
 
 .
 
@@ -76,6 +78,8 @@ W tawernie rodzinnej, skusić się na meze
 To nie do przejedzenia, stawiam taką tezę
 
 .
+
+![](/images/IMG-2397.jpg)
 
 Dipów, kiszonek, owoców morza bez liku
 
@@ -154,3 +158,5 @@ Capryśny, słoneczny, smakami też zanęci
 Wrócimy tu chętnie na kolejne przygody
 
 Poznać caprysy, miast, ludzi - pięknej przyrody
+
+![](/images/IMG-2535.jpg)
