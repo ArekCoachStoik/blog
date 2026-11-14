@@ -12,23 +12,23 @@ DROGI CZYTELNIKU Jeśli trafiłeś tutaj przed przeczytaniem wcześniejszych wpi
 
 .
 
-**_„Istota ludzka rodzi się ze skłonnością do cnoty"_ – Muzoniusz Rufus.**
+**_„Czyż lampa nie świeci i nie roztacza blasku do czasu wyczerpania się oliwy? Dlaczego więc prawda, sprawiedliwość i opanowanie nie miałyby świecić w tobie do momentu twego odejścia"_ – Marek Aureliusz.**
 
 .
 
-**XXXXX**
+**ŚWIECIĆ PRZYKŁADEM ŁATWO POWIEDZIEĆ**
 
 Sanket Mishra z Unsplash
 
-**XXXXX**
+**WYPOWIEDZIANEGO SLOWA NIE DA SIĘ COFNĄĆ**
 
 Holly Mandarich z Unsplash
 
-**XXXXX**
-
 Ziko Liu z Unsplash
 
-**XXXX**
+**DLACZEGO WARTO BYĆ DOBRYM**
+
+**Scrouagge Dicekens**
 
 Jak zawsze na koniec życzenia.
 
