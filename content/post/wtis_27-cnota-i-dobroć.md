@@ -2,7 +2,7 @@
 title: WTiS_27 - CNOTA I DOBROĆ
 date: 2026-10-29T08:19:00
 description: WODA TLEN I SEN
-featured_image: /images/svklimkin-Md449nTVCXk-unsplash.jpg
+featured_image: /images/prateek-gautam-wX1GSlEHzuc-unsplash.jpg
 draft: false
 ---
 
