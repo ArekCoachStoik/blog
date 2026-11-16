@@ -26,15 +26,17 @@ W chwilach refleksji, próbujemy sobie przypomnieć nasze najlepsze cechy - czas
 
 Sanket Mishra z Unsplash
 
+**DLACZEGO WARTO BYĆ DOBRYM DLA SIEBIE I INNYCH**
+
+Wiele jest ku temu powodów. Znając naturę człowieka zacznę od tego najbardziej egoistycznego. Cieżko jest w byciu złym znaleźć coś wartościowego co sprawi że nasze życie będzie szczęśliwe. Tylko z bycia dobrym można czerpać prawdziwą radość życia. Ludzie z natury szukają dobra jak się nie da idą na skróty. Zasłaniają się wtedy wyborem najmniejszego zła, dzięki któremu to im będzie lepiej. Stoicy w takiej sytuacji zawsze przypominają słowa Marka Aureliusza "Co nie jest dobre dla ula nie jest dobre dla pszczoły". Mają one nawiązywać do tego że jesteśmy częścią większej całości, że tylko to co jest dobre dla ogółu jest naprawdę dobre. Jeśli ktoś egoistycznie myśli tylko o sobie i swoim zadowoleniu nie biorąc pod uwagę tego czy to nie wpływa negatywnie na innych świadomie bądź nieświadomie czyni źle. 
+
+**Scrouagge Dicekens**
+
 **WYPOWIEDZIANEGO SLOWA NIE DA SIĘ COFNĄĆ**
 
 Holly Mandarich z Unsplash
 
 Ziko Liu z Unsplash
-
-**DLACZEGO WARTO BYĆ DOBRYM**
-
-**Scrouagge Dicekens**
 
 Jak zawsze na koniec życzenia.
 
@@ -42,6 +44,6 @@ Jak zawsze na koniec życzenia.
 
 **Życzę Ci abyś się nie lekał i wykorzystywał każdą przeciwność do treningu nad hartem swego ducha.**
 
-**BĄDŹ ODPORNY SWOJĄ ANTYKRUCHOŚCIĄ !**
+**NIE MUSISZ POKAZYWAĆ ŻE JESTEŚ DOBRY - PO PROSTU BĄDŹ !**
 
 **ARCOS**
