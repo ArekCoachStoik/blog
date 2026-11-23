@@ -83,7 +83,7 @@ Trasa walońsko-szklarska szybko wyznaczona
 
 Na koniec Niebo w gębie okrasze wspomnienia
 
-Jak kawa wypita w Jeleniej wypita oku mngnienia.
+Jak kawa wypita w Jeleniej oku mgnienia.
 
 Karkonosze przed zimą mają swe uroki
 
