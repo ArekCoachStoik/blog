@@ -41,11 +41,11 @@ A w Chatce Górzystów - znajdziemy ich bez liku
 
 Czas goni a torfowisko drogę nam wskaże
 
-Planety jedna po drugiej ich nic nie wymaże
+Planety jedna po drugiej, ich nic nie wymaże
 
-Wnet koło Słońca Orzel się nam tu wyłania
+Wnet koło Słońca Orzeł się nam tu wyłania
 
-W nim piec kaflowy, tu poprzedni wiek się klania,
+W nim piec kaflowy, tu poprzedni wiek się kłania,
 
 ![](/images/IMG-2590.jpg)
 
