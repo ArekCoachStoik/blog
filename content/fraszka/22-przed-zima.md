@@ -25,7 +25,7 @@ Iść czy nie iść , i gdzie, czy Emi coś wymodzi
 
 Zostawia czoło wycieczki - z siostrą chce zostać
 
-By matchy i spracerom po kurorcie sprostać
+By matchy i spacerom po kurorcie sprostać
 
 .
 
