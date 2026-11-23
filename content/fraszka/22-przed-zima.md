@@ -1,7 +1,7 @@
 ---
 title: '#22 PRZED ZIMA'
-date: 2026-10-31T17:55:00
-description: Cypr -  31.10-04.11
+date: 2026-11-23T17:55:00
+description: Szklarska Poręba -  20.11-22.11
 featured_image: /images/IMG-2589.JPG
 ---
 
