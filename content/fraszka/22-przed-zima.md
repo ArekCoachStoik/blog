@@ -11,7 +11,7 @@ featured_image: /images/IMG-2589.JPG
 
 Ni to jesien ni to zima toć to przed zima
 
-Czy w gory pojechać  - już dylematu ni ma   
+Czy w góry pojechać  - dylematu nikt ni ma   
 
 Dziś Szklarska Poręba otwiera swoje wrota
 
