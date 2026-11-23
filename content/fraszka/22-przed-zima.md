@@ -33,7 +33,7 @@ Twardziele jadą autem w kierunku Izerów
 
 Znana Górska Piekarnia została bez sterów
 
-Ruszamy na trasę w kierunku nalesników
+Ruszamy na trasę w kierunku naleśników
 
 W Chatce Górzystów odnajdziemy ich bez liku
 
