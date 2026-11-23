@@ -5,76 +5,82 @@ description: Cypr -  31.10-04.11
 featured_image: /images/IMG-2293.jpg
 ---
 
-
 .
 
-Ni to jesien ni to zima jak to przed zima
+Ni to jesien ni to zima toć to przed zima
 
-Czy w gory pojechać już dylematu ni ma   
+Czy w gory pojechać  - już dylematu ni ma   
 
 Dziś Szklarska Poręba otwiera swoje wrota
 
-Do Blue jedziemy a to już nie dziwota
+My do Blue pojedziemy to już nie dziwota
 
-Poranego dość wczesny czas rozważań nadchodzi
+.
+
+Poranek dość wczesny czas rozważań nadchodzi
 
 Iść czy nie iść , i gdzie, czy Emi coś wymodzi
 
-Zostawia czoło wycieczki by z siostrą zostać
+Zostawia czoło wycieczki - z siostrą chce zostać
 
-Matchy i spracerowi po kurorcie sprostać
+By matchy i spracerom po kurorcie sprostać
+
+.
 
 Twardziele jadą autem w kierunku Izerów
 
-Znajoma Gorska piekarnia już jest bez sterów
+Znana Górska Piekarnia została bez sterów
 
 Ruszamy na trasę w kierunku nalesników
 
-W chatce gorzystow znajdziemy ich bez liku
+W Chatce Górzystów odnajdziemy ich bez liku
 
-Czas goni a torfowisko droge nam wskaże
+.
+
+Czas goni a torfowisko drogę nam wskaże
 
 Planety jedna po drugiej ich nic nie wymaże
 
-Wnet koło Słońca Orzel się nam tu wylania
+Wnet koło Słońca Orzel się nam tu wyłania
 
-W nim piec kaflowy, poprzedni wiek się tu klania,
+W nim piec kaflowy, tu poprzedni wiek się klania,
+
+.
 
 Droga już prosta aby do Piasta nas wiodła
 
-Jakuszyce to nazwa dla NIemca dość podła
+Jakuszyce to nazwa dla Niemca dość podła
 
-Głod szybko chwyta, Hutnik w oddali migocze
+Głód szybko chwyta, Hutnik w oddali migocze
 
-Golonka, pierogi i pstrągi, do Blue ledwo krocze
+Golonka, pierogi, pstrągi, do Blue ja ledwo krocze
 
-Na nogi nas postawi  rytuał saunowy
+.
+
+Na nogi nas postawi rytuał saunowy
 
 Człowiek po nim się czuje jak zupełnie nowy,
 
-Na koniec Hitster na stole, nie dostał swej szansy 
+Na koniec Hitster na stole, nie dostał szansy 
 
 Za to rozmowy, plotki takie konwenansy
 
+.
 
+Poranne rozkminy - jajecznica czy carry
 
-Poranne dylematy,
+Lidl z Cukrówką wparze takie czary mary
 
-Gory Izerskie, zima, Chatka Gorzystow, Torfowisko, Nalesnik, Orle, 
+Siły dobrze nabrane doba przedłużona
 
-Hata Hutnika, rytual saunowy, Hitster nie wypalil
-
-Jajecznica, przedluzenie pobytu, Szklarka, Niebo w gebie
-
+Trasa walońsko-szklarska szybko wyznaczona
 
 .
 
-Taki niech już zostanie Cypr w naszej pamięci
+Na koniec Niebo w gębie okrasze wspomnienia
 
-Cypryśny, słoneczny, smakami też zanęci
+Jak kawa w Jeleniej wypita w oku mngnienia.
 
-Wrócimy tu chętnie na kolejne przygody
+Karkonosze przed zimą mają swe uroki
 
-Poznać kaprysy miast, ludzi - pięknej przyrody
-
-.
+Już bardzo niedługo staną tu nasze kroki
