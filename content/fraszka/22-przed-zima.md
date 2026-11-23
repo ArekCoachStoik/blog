@@ -71,7 +71,7 @@ Za to rozmowy, plotki takie konwenansy
 
 .
 
-Poranne rozkminy - jajecznica czy carry
+Poranne rozkminy - jajecznica czy curry
 
 Lidl z Cukrówką wparze takie czary mary
 
