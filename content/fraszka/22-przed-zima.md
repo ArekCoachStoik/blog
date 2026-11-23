@@ -2,8 +2,10 @@
 title: '#22 PRZED ZIMA'
 date: 2026-10-31T17:55:00
 description: Cypr -  31.10-04.11
-featured_image: /images/IMG-2293.jpg
+featured_image: /images/IMG-2589.JPG
 ---
+
+![](/images/IMG-2600.JPG)
 
 .
 
@@ -45,6 +47,8 @@ Wnet koło Słońca Orzel się nam tu wyłania
 
 W nim piec kaflowy, tu poprzedni wiek się klania,
 
+![](/images/IMG-2590.jpg)
+
 .
 
 Droga już prosta aby do Piasta nas wiodła
@@ -84,3 +88,5 @@ Jak kawa w Jeleniej wypita w oku mngnienia.
 Karkonosze przed zimą mają swe uroki
 
 Już bardzo niedługo staną tu nasze kroki
+
+![](/images/IMG-2612.jpg)
